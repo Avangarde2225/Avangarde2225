@@ -1,21 +1,19 @@
-### Hi there 👋
-
-
 [![GitHub Banner](./assets/img.jpg)](https://avangarde2225.github.io/portfolio/)
-
- 
-  
- 
-   <a href="https://github.com/Avangarde2225/github-readme-stats/issues">
+## Hi there 👋
+   <p> <a href="https://github.com/Avangarde2225/github-readme-stats/issues">
       <img alt="Issues" src="https://img.shields.io/github/issues/Avangarde2225/github-readme-stats?color=0088ff" />
     </a>
    <a href="https://github.com/Avangarde2225/github-readme-stats/pulls">
       <img alt="GitHub pull requests" src="https://img.shields.io/github/issues-pr/Avangarde2225/github-readme-stats?color=0088ff" />
    </a>
-    <br />
-    <br />
+   
+   <a>
+   
+   [![Linkedin: Serdar Celebi](https://img.shields.io/badge/-Serdar%20Celebi-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/serdarcelebi/)](https://www.linkedin.com/in/serdarcelebi/) 
+   
+   </a> </p>
 
-  </p>
+
 
 
 # GitHub Stats Card
