@@ -17,7 +17,9 @@
 
   </p>
 
- 
+ # 📩 Latest Blog Posts from authors I love to follow
+ <!-- BLOG-POST-LIST:START -->
+ <!-- BLOG-POST-LIST:END -->
 
 
 
