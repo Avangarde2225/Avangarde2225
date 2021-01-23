@@ -64,7 +64,7 @@
 ![](https://img.shields.io/badge/Test-LoadRunnerDesktop-informational?style=flat&logo=LoadRunnerDesktop&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Test-LoadRunnerCloud-informational?style=flat&logo=LoadRunnerCloud&logoColor=white&color=4AB197)
 
-![](https://img.shields.io/badge/Tools-Jenkins-informational?style=flat&logo=jenkins&logoColor=white&color=4AB197)
+
 ![](https://img.shields.io/badge/Tools-Postman-informational?style=flat&logo=Postman&logoColor=white&color=4AB197)
 
 ![](https://img.shields.io/badge/Tools-Bitbucket-informational?style=flat&logo=Bitbucket&logoColor=white&color=4AB197)
