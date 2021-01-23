@@ -1,4 +1,4 @@
-<img src="./assets/img.jpg"/>
+<img src="https://drive.google.com/file/d/1y1RjHD8qxBNRMl0xKrFMwmIWeFpRtz-J/view?usp=sharing"/>
 
 ## Hi there 👋
    <p> <a href="https://github.com/Avangarde2225/github-readme-stats/issues">
