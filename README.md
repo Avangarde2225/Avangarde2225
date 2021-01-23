@@ -1,8 +1,8 @@
-<br> 
+<br>  
 
-![Github Banner](./assets/img.jpg?raw=true)
+![Github Banner](assets/img.JPG)
 
-</br>
+
 
 ## Hi there 👋
    
