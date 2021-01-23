@@ -18,12 +18,12 @@
 
 ![My github stats](https://github-readme-stats.vercel.app/api?username=Avangarde2225&bg_color=30,e96443,904e95&title_color=fff&text_color=fff)
 
-
-
-[![ReadMe Card](https://github-readme-stats.vercel.app/api/pin/?username=Avangarde2225&repo=github-readme-stats&show_owner=true)](https://github.com/Avangarde2225/github-readme-stats)
-
+<a href="https://github.com/Avangarde2225">
+  <img align="center" style="margin:0.5rem" src="https://github-readme-stats.vercel.app/api/top-langs/?username=Avangarde2225&hide=html,css&title_color=ffffff&text_color=c9cacc&icon_color=4AB197&bg_color=1A2B34" />
+</a>
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Avangarde2225)](https://github.com/Avangarde2225/github-readme-stats)
+
 
  # 📩 Latest WallStreetBeats Subreddit Topics
  <!-- BLOG-POST-LIST:START -->
