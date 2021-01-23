@@ -32,11 +32,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
  <!-- BLOG-POST-LIST:START -->
+- [Do NOT sell GME for BB/PLTR/anything until we hit $1000+](https://www.reddit.com/r/wallstreetbets/comments/l35s4w/do_not_sell_gme_for_bbpltranything_until_we_hit/)
+- [$400k deep into $BB... let’s go 😤](https://www.reddit.com/r/wallstreetbets/comments/l3501b/400k_deep_into_bb_lets_go/)
 - [This week literally changed my life](https://www.reddit.com/r/wallstreetbets/comments/l34dis/this_week_literally_changed_my_life/)
 - [GME is going into triple digits next week sell at your own risk](https://www.reddit.com/r/wallstreetbets/comments/l31zkn/gme_is_going_into_triple_digits_next_week_sell_at/)
 - [I listened to Andrew Left.......](https://www.reddit.com/r/wallstreetbets/comments/l31llr/i_listened_to_andrew_left/)
-- [We hit 10 comments per second in today's GME thread, congrats to every participant in the most active community on Reddit](https://www.reddit.com/r/wallstreetbets/comments/l31iaf/we_hit_10_comments_per_second_in_todays_gme/)
-- [Boomer Old Money has bled and will get dirty going forward. Don’t be an idiot, Don’t poke the beehive with tweets, phone call harassment or callouts. Keep our head down and nose to the grindstone.](https://www.reddit.com/r/wallstreetbets/comments/l30tps/boomer_old_money_has_bled_and_will_get_dirty/)
 <!-- BLOG-POST-LIST:END -->
 
 
