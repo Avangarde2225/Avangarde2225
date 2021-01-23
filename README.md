@@ -1,4 +1,5 @@
-[![GitHub Banner](./assets/img.jpg)](https://avangarde2225.github.io/portfolio/)
+<img src="./assets/img.jpg"/>
+
 ## Hi there 👋
    <p> <a href="https://github.com/Avangarde2225/github-readme-stats/issues">
       <img alt="Issues" src="https://img.shields.io/github/issues/Avangarde2225/github-readme-stats?color=0088ff" />
