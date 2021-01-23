@@ -1,14 +1,13 @@
 <br>  
 
-![Github Banner](assets/img.JPG)
-
-
-
-## Hi there 👋
+## Hi there welcome to my page! 👋
    
-   [![Linkedin: Linkedin](https://img.shields.io/badge/-Linkedin-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/serdarcelebi/)](https://www.linkedin.com/in/serdarcelebi/) 
+[![Linkedin: Linkedin](https://img.shields.io/badge/-Linkedin-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/serdarcelebi/)](https://www.linkedin.com/in/serdarcelebi/) 
    
   
+
+![Github Banner](assets/img.JPG)
+
 
 
 
@@ -38,18 +37,23 @@
 
 ## 💼 Skills
 
-
-![](https://img.shields.io/badge/Code-JavaScript-informational?style=flat&logo=JavaScript&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Code-Java-informational?style=flat&logo=Java&logoColor=white&color=4AB197)
+![](https://img.shields.io/badge/Code-JavaScript-informational?style=flat&logo=JavaScript&logoColor=white&color=4AB197)
+![](https://img.shields.io/badge/Code-Python-informational?style=flat&logo=Python&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Code-MongoDB-informational?style=flat&logo=MongoDB&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Code-MySQL-informational?style=flat&logo=MySQL&logoColor=white&color=4AB197)
 
 ![](https://img.shields.io/badge/Test-Cypress-informational?style=flat&logo=Cypress&logoColor=white&color=4AB197)
+![](https://img.shields.io/badge/Test-Selenium-informational?style=flat&logo=Selenium&logoColor=white&color=4AB197)
+![](https://img.shields.io/badge/Test-LoadRunnerDesktop-informational?style=flat&logo=LoadRunnerDesktop&logoColor=white&color=4AB197)
+![](https://img.shields.io/badge/Test-LoadRunnerCloud-informational?style=flat&logo=LoadRunnerCloud&logoColor=white&color=4AB197)
 
 ![](https://img.shields.io/badge/Tools-Jenkins-informational?style=flat&logo=jenkins&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Tools-Postman-informational?style=flat&logo=Postman&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Tools-Bitbucket-informational?style=flat&logo=Bitbucket&logoColor=white&color=4AB197)
+![](https://img.shields.io/badge/Tools-Github-informational?style=flat&logo=Github&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Tools-Jira-informational?style=flat&logo=Jira-Software&logoColor=white&color=4AB197)
+![](https://img.shields.io/badge/Tools-Rally-informational?style=flat&logo=Rally-Software&logoColor=white&color=4AB197)
 
 <br>
 
