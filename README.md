@@ -2,18 +2,10 @@
 
 
 ## Hi there 👋
-   <p> <a href="https://github.com/Avangarde2225/github-readme-stats/issues">
-      <img alt="Issues" src="https://img.shields.io/github/issues/Avangarde2225/github-readme-stats?color=0088ff" />
-    </a>
-   <a href="https://github.com/Avangarde2225/github-readme-stats/pulls">
-      <img alt="GitHub pull requests" src="https://img.shields.io/github/issues-pr/Avangarde2225/github-readme-stats?color=0088ff" />
-   </a>
-   
-   <a>
    
    [![Linkedin: Serdar Celebi](https://img.shields.io/badge/-Serdar%20Celebi-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/serdarcelebi/)](https://www.linkedin.com/in/serdarcelebi/) 
    
-   </a> </p>
+  
 
 
 
@@ -21,7 +13,7 @@
 # GitHub Stats Card
 
 
-![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=Avangarde2225&bg_color=30,e96443,904e95&title_color=fff&text_color=fff)
+![My github stats](https://github-readme-stats.vercel.app/api?username=Avangarde2225&bg_color=30,e96443,904e95&title_color=fff&text_color=fff)
 
 
 
