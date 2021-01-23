@@ -3,7 +3,7 @@
 ## Hi there welcome to my page! 👋
    
 [![Linkedin: Linkedin](https://img.shields.io/badge/-Linkedin-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/serdarcelebi/)](https://www.linkedin.com/in/serdarcelebi/) 
-   
+[![Visits Badge](https://badges.pufler.dev/visits/Avangarde2225/Avangarde2225)](https://github.com/Avangarde2225)   
   
 
 ![Github Banner](assets/img.JPG)
