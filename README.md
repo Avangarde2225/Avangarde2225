@@ -17,7 +17,7 @@
 
   </p>
 
- # 📩 Latest Blog Posts from authors I love to follow
+ # 📩 Latest WallStreetBeats Subreddit Topics
  <!-- BLOG-POST-LIST:START -->
  <!-- BLOG-POST-LIST:END -->
 
