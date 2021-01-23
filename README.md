@@ -6,7 +6,7 @@
 
 ## Hi there 👋
    
-   [![Linkedin: Linkedin](https://img.shields.io/badge/-Serdar%20Celebi-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/serdarcelebi/)](https://www.linkedin.com/in/serdarcelebi/) 
+   [![Linkedin: Linkedin](https://img.shields.io/badge/-Linkedin-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/serdarcelebi/)](https://www.linkedin.com/in/serdarcelebi/) 
    
   
 
