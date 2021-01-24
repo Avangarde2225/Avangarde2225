@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do NOT sell GME for BB/PLTR/anything until we hit $1000+](https://www.reddit.com/r/wallstreetbets/comments/l35s4w/do_not_sell_gme_for_bbpltranything_until_we_hit/)
-- [$400k deep into $BB... let’s go 😤](https://www.reddit.com/r/wallstreetbets/comments/l3501b/400k_deep_into_bb_lets_go/)
-- [This week literally changed my life](https://www.reddit.com/r/wallstreetbets/comments/l34dis/this_week_literally_changed_my_life/)
-- [GME is going into triple digits next week sell at your own risk](https://www.reddit.com/r/wallstreetbets/comments/l31zkn/gme_is_going_into_triple_digits_next_week_sell_at/)
-- [I listened to Andrew Left.......](https://www.reddit.com/r/wallstreetbets/comments/l31llr/i_listened_to_andrew_left/)
+- [Takeda Pharmaceutical Co. ($TAK) - The Undervalued ARKG Sleeper that Cathie Woods is Quietly Rock Hard For](https://www.reddit.com/r/wallstreetbets/comments/l3mtrk/takeda_pharmaceutical_co_tak_the_undervalued_arkg/)
+- [Disgraceful & false media narrative about GME](https://www.reddit.com/r/wallstreetbets/comments/l3mpmw/disgraceful_false_media_narrative_about_gme/)
+- [GME - The Market Structure Changed, Rational Shorts Will Cover This Week](https://www.reddit.com/r/wallstreetbets/comments/l3moqo/gme_the_market_structure_changed_rational_shorts/)
+- [SEC statement on social media and stock promotion](https://www.reddit.com/r/wallstreetbets/comments/l3mm9a/sec_statement_on_social_media_and_stock_promotion/)
+- [$BB is Canada’s biggest patent holder 🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/l3mlpo/bb_is_canadas_biggest_patent_holder/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
