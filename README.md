@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Takeda Pharmaceutical Co. ($TAK) - The Undervalued ARKG Sleeper that Cathie Woods is Quietly Rock Hard For](https://www.reddit.com/r/wallstreetbets/comments/l3mtrk/takeda_pharmaceutical_co_tak_the_undervalued_arkg/)
-- [Disgraceful & false media narrative about GME](https://www.reddit.com/r/wallstreetbets/comments/l3mpmw/disgraceful_false_media_narrative_about_gme/)
-- [GME - The Market Structure Changed, Rational Shorts Will Cover This Week](https://www.reddit.com/r/wallstreetbets/comments/l3moqo/gme_the_market_structure_changed_rational_shorts/)
-- [SEC statement on social media and stock promotion](https://www.reddit.com/r/wallstreetbets/comments/l3mm9a/sec_statement_on_social_media_and_stock_promotion/)
-- [$BB is Canada’s biggest patent holder 🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/l3mlpo/bb_is_canadas_biggest_patent_holder/)
+- [Gather round autist. Lets talk about where we stand GME.](https://www.reddit.com/r/wallstreetbets/comments/l4afs8/gather_round_autist_lets_talk_about_where_we/)
+- [Options: A beginners guide (with greeks)](https://www.reddit.com/r/wallstreetbets/comments/l49mqd/options_a_beginners_guide_with_greeks/)
+- [Word of advice: Don’t cash advance your credit cards to buy stock](https://www.reddit.com/r/wallstreetbets/comments/l495oj/word_of_advice_dont_cash_advance_your_credit/)
+- [Most Recent GME Short Interest Data, Please Stop Posting Outdated Data](https://www.reddit.com/r/wallstreetbets/comments/l48nsp/most_recent_gme_short_interest_data_please_stop/)
+- [The wallstreetbets index is up 916% this year](https://www.reddit.com/r/wallstreetbets/comments/l48954/the_wallstreetbets_index_is_up_916_this_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
