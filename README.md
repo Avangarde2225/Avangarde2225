@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Gather round autist. Lets talk about where we stand GME.](https://www.reddit.com/r/wallstreetbets/comments/l4afs8/gather_round_autist_lets_talk_about_where_we/)
-- [Options: A beginners guide (with greeks)](https://www.reddit.com/r/wallstreetbets/comments/l49mqd/options_a_beginners_guide_with_greeks/)
-- [Word of advice: Don’t cash advance your credit cards to buy stock](https://www.reddit.com/r/wallstreetbets/comments/l495oj/word_of_advice_dont_cash_advance_your_credit/)
-- [Most Recent GME Short Interest Data, Please Stop Posting Outdated Data](https://www.reddit.com/r/wallstreetbets/comments/l48nsp/most_recent_gme_short_interest_data_please_stop/)
-- [The wallstreetbets index is up 916% this year](https://www.reddit.com/r/wallstreetbets/comments/l48954/the_wallstreetbets_index_is_up_916_this_year/)
+- [One of us on CNBC. QuirkyMushroom you famous bro.](https://www.reddit.com/r/wallstreetbets/comments/l4zg6g/one_of_us_on_cnbc_quirkymushroom_you_famous_bro/)
+- [Today was a coordinated attack by institutions against the longs. Here's how it played out.](https://www.reddit.com/r/wallstreetbets/comments/l4zbff/today_was_a_coordinated_attack_by_institutions/)
+- [GME - WATCH OUT](https://www.reddit.com/r/wallstreetbets/comments/l4ypu3/gme_watch_out/)
+- [They dont want you to win - my experience with Wall St firms.](https://www.reddit.com/r/wallstreetbets/comments/l4xxjm/they_dont_want_you_to_win_my_experience_with_wall/)
+- [January 25th, 2021 GME Battle Diary: 4:00AM - 4:00PM](https://www.reddit.com/r/wallstreetbets/comments/l4xs9m/january_25th_2021_gme_battle_diary_400am_400pm/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
