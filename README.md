@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One of us on CNBC. QuirkyMushroom you famous bro.](https://www.reddit.com/r/wallstreetbets/comments/l4zg6g/one_of_us_on_cnbc_quirkymushroom_you_famous_bro/)
-- [Today was a coordinated attack by institutions against the longs. Here's how it played out.](https://www.reddit.com/r/wallstreetbets/comments/l4zbff/today_was_a_coordinated_attack_by_institutions/)
-- [GME - WATCH OUT](https://www.reddit.com/r/wallstreetbets/comments/l4ypu3/gme_watch_out/)
-- [They dont want you to win - my experience with Wall St firms.](https://www.reddit.com/r/wallstreetbets/comments/l4xxjm/they_dont_want_you_to_win_my_experience_with_wall/)
-- [January 25th, 2021 GME Battle Diary: 4:00AM - 4:00PM](https://www.reddit.com/r/wallstreetbets/comments/l4xs9m/january_25th_2021_gme_battle_diary_400am_400pm/)
+- [6M in GameStop GME. Following through. Can’t stop, won’t stop, lift off](https://www.reddit.com/r/wallstreetbets/comments/l5pmv1/6m_in_gamestop_gme_following_through_cant_stop/)
+- [Argument with my economics teacher over GME today, ended quite amazing.](https://www.reddit.com/r/wallstreetbets/comments/l5oetx/argument_with_my_economics_teacher_over_gme_today/)
+- [HOLY FUCKING TITBALLS PAPA ELON TWEETED WE ARE GOING TO A MILLION 🚀🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/l5nqz0/holy_fucking_titballs_papa_elon_tweeted_we_are/)
+- [IM GONNA CUM!🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/l5nqcu/im_gonna_cum/)
+- [GME YOLO update — Jan 26 2021](https://www.reddit.com/r/wallstreetbets/comments/l5nphz/gme_yolo_update_jan_26_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
