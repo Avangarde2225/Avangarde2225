@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Not sure if anyone posted this here, but yikes](https://www.reddit.com/r/wallstreetbets/comments/l7bh1m/not_sure_if_anyone_posted_this_here_but_yikes/)
-- [JOSH SHAPIRO, Attorney General of Pennsylvania, is showing his support on Twitter!!!! 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/l7b321/josh_shapiro_attorney_general_of_pennsylvania_is/)
-- [A dark part WallStreetBets history, and why it's important for you to know and remember](https://www.reddit.com/r/wallstreetbets/comments/l7b1b7/a_dark_part_wallstreetbets_history_and_why_its/)
-- [Mic drop](https://www.reddit.com/r/wallstreetbets/comments/l7aj2e/mic_drop/)
-- [Jon Stewart just joined twitter and he likes the stock!](https://www.reddit.com/r/wallstreetbets/comments/l7a9m0/jon_stewart_just_joined_twitter_and_he_likes_the/)
+- [What in the world is Wallstreetbets?](https://www.reddit.com/r/wallstreetbets/comments/l8694g/what_in_the_world_is_wallstreetbets/)
+- [Serious: WSB Lifetime Channel Moments](https://www.reddit.com/r/wallstreetbets/comments/l856qs/serious_wsb_lifetime_channel_moments/)
+- [CNBC now running Ads promoting that Melvin Capital closed their short positions on $GME](https://www.reddit.com/r/wallstreetbets/comments/l8539h/cnbc_now_running_ads_promoting_that_melvin/)
+- [Amazon reacting to the market by discounting rentals of The Big Short](https://www.reddit.com/r/wallstreetbets/comments/l84pz9/amazon_reacting_to_the_market_by_discounting/)
+- [For those who have been around for a while: What are the most outlandish bets, gains, or losses you've seen on r/wallstreetbets?](https://www.reddit.com/r/wallstreetbets/comments/l84ner/for_those_who_have_been_around_for_a_while_what/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
