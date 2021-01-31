@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What in the world is Wallstreetbets?](https://www.reddit.com/r/wallstreetbets/comments/l8694g/what_in_the_world_is_wallstreetbets/)
-- [Serious: WSB Lifetime Channel Moments](https://www.reddit.com/r/wallstreetbets/comments/l856qs/serious_wsb_lifetime_channel_moments/)
-- [CNBC now running Ads promoting that Melvin Capital closed their short positions on $GME](https://www.reddit.com/r/wallstreetbets/comments/l8539h/cnbc_now_running_ads_promoting_that_melvin/)
-- [Amazon reacting to the market by discounting rentals of The Big Short](https://www.reddit.com/r/wallstreetbets/comments/l84pz9/amazon_reacting_to_the_market_by_discounting/)
-- [For those who have been around for a while: What are the most outlandish bets, gains, or losses you've seen on r/wallstreetbets?](https://www.reddit.com/r/wallstreetbets/comments/l84ner/for_those_who_have_been_around_for_a_while_what/)
+- [Cool, but why would they bother telling us?](https://www.reddit.com/r/wallstreetbets/comments/l8xsfa/cool_but_why_would_they_bother_telling_us/)
+- [Robbing the Hood](https://www.reddit.com/r/wallstreetbets/comments/l8x0nt/robbing_the_hood/)
+- [NICE TRY, HEDGIE SPY](https://www.reddit.com/r/wallstreetbets/comments/l8wl42/nice_try_hedgie_spy/)
+- [Insight from a GameStop Employee](https://www.reddit.com/r/wallstreetbets/comments/l8vuoc/insight_from_a_gamestop_employee/)
+- [Went from -$6000 to +$2M in $GME and I AINT SELLING till gme hits $5000+💎🤚🚀](https://www.reddit.com/r/wallstreetbets/comments/l8voe4/went_from_6000_to_2m_in_gme_and_i_aint_selling/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
