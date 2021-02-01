@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cool, but why would they bother telling us?](https://www.reddit.com/r/wallstreetbets/comments/l8xsfa/cool_but_why_would_they_bother_telling_us/)
-- [Robbing the Hood](https://www.reddit.com/r/wallstreetbets/comments/l8x0nt/robbing_the_hood/)
-- [NICE TRY, HEDGIE SPY](https://www.reddit.com/r/wallstreetbets/comments/l8wl42/nice_try_hedgie_spy/)
-- [Insight from a GameStop Employee](https://www.reddit.com/r/wallstreetbets/comments/l8vuoc/insight_from_a_gamestop_employee/)
-- [Went from -$6000 to +$2M in $GME and I AINT SELLING till gme hits $5000+💎🤚🚀](https://www.reddit.com/r/wallstreetbets/comments/l8voe4/went_from_6000_to_2m_in_gme_and_i_aint_selling/)
+- [$GME and $AMC are no longer trending on Twitter (in North America). LETS GET THEM TRENDING. FREEEEEEEEEDOMMMMMMMM](https://www.reddit.com/r/wallstreetbets/comments/l9nkk0/gme_and_amc_are_no_longer_trending_on_twitter_in/)
+- [When we do it, we are barbarians. Fuck you WSJ.](https://www.reddit.com/r/wallstreetbets/comments/l9nbs1/when_we_do_it_we_are_barbarians_fuck_you_wsj/)
+- [A SIMPLE REMINDER FOR MONDAY!! $GME ONLY](https://www.reddit.com/r/wallstreetbets/comments/l9n5sz/a_simple_reminder_for_monday_gme_only/)
+- [The moon has been reached. Next stop: MARS! 🚀🚀🚀🚀🚀🚀🚀💎🙌 See ya on Monday!](https://www.reddit.com/r/wallstreetbets/comments/l9mo6a/the_moon_has_been_reached_next_stop_mars_see_ya/)
+- [What Are Your Moves Tomorrow, February 01, 2021](https://www.reddit.com/r/wallstreetbets/comments/l9lvrn/what_are_your_moves_tomorrow_february_01_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
