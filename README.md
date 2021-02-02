@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$GME and $AMC are no longer trending on Twitter (in North America). LETS GET THEM TRENDING. FREEEEEEEEEDOMMMMMMMM](https://www.reddit.com/r/wallstreetbets/comments/l9nkk0/gme_and_amc_are_no_longer_trending_on_twitter_in/)
-- [When we do it, we are barbarians. Fuck you WSJ.](https://www.reddit.com/r/wallstreetbets/comments/l9nbs1/when_we_do_it_we_are_barbarians_fuck_you_wsj/)
-- [A SIMPLE REMINDER FOR MONDAY!! $GME ONLY](https://www.reddit.com/r/wallstreetbets/comments/l9n5sz/a_simple_reminder_for_monday_gme_only/)
-- [The moon has been reached. Next stop: MARS! 🚀🚀🚀🚀🚀🚀🚀💎🙌 See ya on Monday!](https://www.reddit.com/r/wallstreetbets/comments/l9mo6a/the_moon_has_been_reached_next_stop_mars_see_ya/)
-- [What Are Your Moves Tomorrow, February 01, 2021](https://www.reddit.com/r/wallstreetbets/comments/l9lvrn/what_are_your_moves_tomorrow_february_01_2021/)
+- [Millions in GME calls bought today at ~$800. HOLD!](https://www.reddit.com/r/wallstreetbets/comments/lagd2m/millions_in_gme_calls_bought_today_at_800_hold/)
+- [In case you needed proof that there are imposters among us. A bot posting the same negative sentiment comment multiple times per minute 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/lafh4d/in_case_you_needed_proof_that_there_are_imposters/)
+- [15 U.S.C.A. § 78i - the Illegality of Short Ladder Attacks (Legal insight)](https://www.reddit.com/r/wallstreetbets/comments/laferl/15_usca_78i_the_illegality_of_short_ladder/)
+- [💎🙌🏻 You heard the Wolf!](https://www.reddit.com/r/wallstreetbets/comments/lafahh/you_heard_the_wolf/)
+- [Johnny Sins is with us!!! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/laeixr/johnny_sins_is_with_us/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
