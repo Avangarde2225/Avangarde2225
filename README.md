@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Millions in GME calls bought today at ~$800. HOLD!](https://www.reddit.com/r/wallstreetbets/comments/lagd2m/millions_in_gme_calls_bought_today_at_800_hold/)
-- [In case you needed proof that there are imposters among us. A bot posting the same negative sentiment comment multiple times per minute 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/lafh4d/in_case_you_needed_proof_that_there_are_imposters/)
-- [15 U.S.C.A. § 78i - the Illegality of Short Ladder Attacks (Legal insight)](https://www.reddit.com/r/wallstreetbets/comments/laferl/15_usca_78i_the_illegality_of_short_ladder/)
-- [💎🙌🏻 You heard the Wolf!](https://www.reddit.com/r/wallstreetbets/comments/lafahh/you_heard_the_wolf/)
-- [Johnny Sins is with us!!! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/laeixr/johnny_sins_is_with_us/)
+- [Why the fuck are we acting like we lost? We made GME go from 4 to 400 and it took combined trading platforms to silence and cheat to bring it to 90.](https://www.reddit.com/r/wallstreetbets/comments/lb8lwf/why_the_fuck_are_we_acting_like_we_lost_we_made/)
+- [WSB right now](https://www.reddit.com/r/wallstreetbets/comments/lb8jtk/wsb_right_now/)
+- [GME overnight Pajama party megathread 9000](https://www.reddit.com/r/wallstreetbets/comments/lb7rg4/gme_overnight_pajama_party_megathread_9000/)
+- [What explains this symmetry?](https://www.reddit.com/r/wallstreetbets/comments/lb70ix/what_explains_this_symmetry/)
+- [Down $1.1 Million over the week, and I Didn’t Hear No Bell 💎 👊 🦍](https://www.reddit.com/r/wallstreetbets/comments/lb6w36/down_11_million_over_the_week_and_i_didnt_hear_no/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
