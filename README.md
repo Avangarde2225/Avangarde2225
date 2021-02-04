@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why the fuck are we acting like we lost? We made GME go from 4 to 400 and it took combined trading platforms to silence and cheat to bring it to 90.](https://www.reddit.com/r/wallstreetbets/comments/lb8lwf/why_the_fuck_are_we_acting_like_we_lost_we_made/)
-- [WSB right now](https://www.reddit.com/r/wallstreetbets/comments/lb8jtk/wsb_right_now/)
-- [GME overnight Pajama party megathread 9000](https://www.reddit.com/r/wallstreetbets/comments/lb7rg4/gme_overnight_pajama_party_megathread_9000/)
-- [What explains this symmetry?](https://www.reddit.com/r/wallstreetbets/comments/lb70ix/what_explains_this_symmetry/)
-- [Down $1.1 Million over the week, and I Didn’t Hear No Bell 💎 👊 🦍](https://www.reddit.com/r/wallstreetbets/comments/lb6w36/down_11_million_over_the_week_and_i_didnt_hear_no/)
+- [Some of you have less than 100 shares and y’all crying and selling because y’all lost some money. Fucking pussies. I’m holding](https://www.reddit.com/r/wallstreetbets/comments/lbzfe2/some_of_you_have_less_than_100_shares_and_yall/)
+- [After seeing DFV posted his yolo update](https://www.reddit.com/r/wallstreetbets/comments/lbyo7l/after_seeing_dfv_posted_his_yolo_update/)
+- [GME YOLO update — Feb 3 2021 – heads up gonna back off the daily updates for now](https://www.reddit.com/r/wallstreetbets/comments/lbykxg/gme_yolo_update_feb_3_2021_heads_up_gonna_back/)
+- [GME overnight thread / SEC intern meet-and-greet](https://www.reddit.com/r/wallstreetbets/comments/lbyf09/gme_overnight_thread_sec_intern_meetandgreet/)
+- [What Are Your Moves Tomorrow, February 04, 2021](https://www.reddit.com/r/wallstreetbets/comments/lby4jj/what_are_your_moves_tomorrow_february_04_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
