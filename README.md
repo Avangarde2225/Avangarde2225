@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Some of you have less than 100 shares and y’all crying and selling because y’all lost some money. Fucking pussies. I’m holding](https://www.reddit.com/r/wallstreetbets/comments/lbzfe2/some_of_you_have_less_than_100_shares_and_yall/)
-- [After seeing DFV posted his yolo update](https://www.reddit.com/r/wallstreetbets/comments/lbyo7l/after_seeing_dfv_posted_his_yolo_update/)
-- [GME YOLO update — Feb 3 2021 – heads up gonna back off the daily updates for now](https://www.reddit.com/r/wallstreetbets/comments/lbykxg/gme_yolo_update_feb_3_2021_heads_up_gonna_back/)
-- [GME overnight thread / SEC intern meet-and-greet](https://www.reddit.com/r/wallstreetbets/comments/lbyf09/gme_overnight_thread_sec_intern_meetandgreet/)
-- [What Are Your Moves Tomorrow, February 04, 2021](https://www.reddit.com/r/wallstreetbets/comments/lby4jj/what_are_your_moves_tomorrow_february_04_2021/)
+- [Hey SEC, remember one week ago today when WSB's most discussed stock was trading at over $450 and they simply banned and blocked retail from trading securities nosediving the price of the stock costing retail traders millions of dollars? Do your job and place the correct motherfuckers in jail...](https://www.reddit.com/r/wallstreetbets/comments/lcry4s/hey_sec_remember_one_week_ago_today_when_wsbs/)
+- [WHO ELSE HOLDING FOR $0](https://www.reddit.com/r/wallstreetbets/comments/lcqj6d/who_else_holding_for_0/)
+- [Who's still holding after hours? Not selling, down 65%. Like this, if you still holding as the price keeps falling](https://www.reddit.com/r/wallstreetbets/comments/lcqitb/whos_still_holding_after_hours_not_selling_down/)
+- [What Are Your Moves Tomorrow, February 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/lcq65y/what_are_your_moves_tomorrow_february_05_2021/)
+- [How $GME can still be a great play](https://www.reddit.com/r/wallstreetbets/comments/lcpwh0/how_gme_can_still_be_a_great_play/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
