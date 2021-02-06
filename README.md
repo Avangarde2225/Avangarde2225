@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hey SEC, remember one week ago today when WSB's most discussed stock was trading at over $450 and they simply banned and blocked retail from trading securities nosediving the price of the stock costing retail traders millions of dollars? Do your job and place the correct motherfuckers in jail...](https://www.reddit.com/r/wallstreetbets/comments/lcry4s/hey_sec_remember_one_week_ago_today_when_wsbs/)
-- [WHO ELSE HOLDING FOR $0](https://www.reddit.com/r/wallstreetbets/comments/lcqj6d/who_else_holding_for_0/)
-- [Who's still holding after hours? Not selling, down 65%. Like this, if you still holding as the price keeps falling](https://www.reddit.com/r/wallstreetbets/comments/lcqitb/whos_still_holding_after_hours_not_selling_down/)
-- [What Are Your Moves Tomorrow, February 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/lcq65y/what_are_your_moves_tomorrow_february_05_2021/)
-- [How $GME can still be a great play](https://www.reddit.com/r/wallstreetbets/comments/lcpwh0/how_gme_can_still_be_a_great_play/)
+- [I'm convinced we're living in a simulation at this point.](https://www.reddit.com/r/wallstreetbets/comments/ldhx5d/im_convinced_were_living_in_a_simulation_at_this/)
+- [Hold is Gold](https://www.reddit.com/r/wallstreetbets/comments/ldhs4j/hold_is_gold/)
+- [I will never give up hope](https://www.reddit.com/r/wallstreetbets/comments/ldhqqx/i_will_never_give_up_hope/)
+- [The can’t SE-SEE](https://www.reddit.com/r/wallstreetbets/comments/ldho93/the_cant_sesee/)
+- [Weekend Discussion Thread for the Weekend of February 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/ldh5fc/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
