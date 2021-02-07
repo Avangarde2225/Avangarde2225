@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I'm convinced we're living in a simulation at this point.](https://www.reddit.com/r/wallstreetbets/comments/ldhx5d/im_convinced_were_living_in_a_simulation_at_this/)
-- [Hold is Gold](https://www.reddit.com/r/wallstreetbets/comments/ldhs4j/hold_is_gold/)
-- [I will never give up hope](https://www.reddit.com/r/wallstreetbets/comments/ldhqqx/i_will_never_give_up_hope/)
-- [The can’t SE-SEE](https://www.reddit.com/r/wallstreetbets/comments/ldho93/the_cant_sesee/)
-- [Weekend Discussion Thread for the Weekend of February 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/ldh5fc/weekend_discussion_thread_for_the_weekend_of/)
+- [Regarding the removal of /u/zjz and other moderators](https://www.reddit.com/r/wallstreetbets/comments/le8skv/regarding_the_removal_of_uzjz_and_other_moderators/)
+- [Turn Margin off or switch to a cash account!!! Margin enabled allows ur shares to be borrowed to shorters. Less shares available to borrow higher the interest rate. More they pay sooner they’ll have to cover their short position.](https://www.reddit.com/r/wallstreetbets/comments/le7m9y/turn_margin_off_or_switch_to_a_cash_account/)
+- [Archive of the 177% $GME Post that was removed by mods](https://www.reddit.com/r/wallstreetbets/comments/le76wy/archive_of_the_177_gme_post_that_was_removed_by/)
+- [If holding is getting a bit stressful, here's some bubble wrap you can pop:](https://www.reddit.com/r/wallstreetbets/comments/le72eu/if_holding_is_getting_a_bit_stressful_heres_some/)
+- [This was a solid DD that got removed by the moderators. I believe it is worth talking about.](https://www.reddit.com/r/wallstreetbets/comments/le6zj2/this_was_a_solid_dd_that_got_removed_by_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
