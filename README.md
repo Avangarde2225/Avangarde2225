@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Regarding the removal of /u/zjz and other moderators](https://www.reddit.com/r/wallstreetbets/comments/le8skv/regarding_the_removal_of_uzjz_and_other_moderators/)
-- [Turn Margin off or switch to a cash account!!! Margin enabled allows ur shares to be borrowed to shorters. Less shares available to borrow higher the interest rate. More they pay sooner they’ll have to cover their short position.](https://www.reddit.com/r/wallstreetbets/comments/le7m9y/turn_margin_off_or_switch_to_a_cash_account/)
-- [Archive of the 177% $GME Post that was removed by mods](https://www.reddit.com/r/wallstreetbets/comments/le76wy/archive_of_the_177_gme_post_that_was_removed_by/)
-- [If holding is getting a bit stressful, here's some bubble wrap you can pop:](https://www.reddit.com/r/wallstreetbets/comments/le72eu/if_holding_is_getting_a_bit_stressful_heres_some/)
-- [This was a solid DD that got removed by the moderators. I believe it is worth talking about.](https://www.reddit.com/r/wallstreetbets/comments/le6zj2/this_was_a_solid_dd_that_got_removed_by_the/)
+- [Apes strong together! We made it to the Super Bowl!](https://www.reddit.com/r/wallstreetbets/comments/ley35h/apes_strong_together_we_made_it_to_the_super_bowl/)
+- [Wow super bowl commercial for us](https://www.reddit.com/r/wallstreetbets/comments/lexy8t/wow_super_bowl_commercial_for_us/)
+- [It's not much, but I reached an important milestone today](https://www.reddit.com/r/wallstreetbets/comments/lewajd/its_not_much_but_i_reached_an_important_milestone/)
+- [You need to read this. It's not over. Best DD](https://www.reddit.com/r/wallstreetbets/comments/lew1td/you_need_to_read_this_its_not_over_best_dd/)
+- [What Are Your Moves Tomorrow, February 08, 2021](https://www.reddit.com/r/wallstreetbets/comments/levf1j/what_are_your_moves_tomorrow_february_08_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
