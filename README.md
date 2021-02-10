@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Legend of $GME](https://www.reddit.com/r/wallstreetbets/comments/lfni5b/the_legend_of_gme/)
-- [GME Go BRRRR In Dallas 💎🚀](https://www.reddit.com/r/wallstreetbets/comments/lfmt62/gme_go_brrrr_in_dallas/)
-- [My best GME gain porn. $1,295 --> $959,663 in just over 3 weeks. Sold because of brokers blocking buy orders. Sorry](https://www.reddit.com/r/wallstreetbets/comments/lfm36e/my_best_gme_gain_porn_1295_959663_in_just_over_3/)
-- [Fellow GME bagholders and retard brother apes, the 🐷💩want you to sell. Don’t do it because of them.](https://www.reddit.com/r/wallstreetbets/comments/lflzy4/fellow_gme_bagholders_and_retard_brother_apes_the/)
-- [What Are Your Moves Tomorrow, February 09, 2021](https://www.reddit.com/r/wallstreetbets/comments/lflpoz/what_are_your_moves_tomorrow_february_09_2021/)
+- [In what other scenario would you see: massive censorship and removal of certain topics, brand new accounts with the same kind of message in every thread, and older accounts with no post history in WSB suddenly becoming active JUST to downplay something, and NOT think that it was very, very odd?](https://www.reddit.com/r/wallstreetbets/comments/lgevvc/in_what_other_scenario_would_you_see_massive/)
+- [$TLRY $APHA calls since 1/5/2021 got me to over $500k today. Still think it has much upside 🚀🌳🚀🌳🚀🌳🚀](https://www.reddit.com/r/wallstreetbets/comments/lgeuop/tlry_apha_calls_since_152021_got_me_to_over_500k/)
+- [Get prepared for a downvote brigade and post/comment removals!](https://www.reddit.com/r/wallstreetbets/comments/lge1fl/get_prepared_for_a_downvote_brigade_and/)
+- [What Are Your Moves Tomorrow, February 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/lgdb2j/what_are_your_moves_tomorrow_february_10_2021/)
+- [Psychedelics, PSYK, CMPS, MMED, your guide to new horizons](https://www.reddit.com/r/wallstreetbets/comments/lgd9px/psychedelics_psyk_cmps_mmed_your_guide_to_new/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
