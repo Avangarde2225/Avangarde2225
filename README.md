@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [In what other scenario would you see: massive censorship and removal of certain topics, brand new accounts with the same kind of message in every thread, and older accounts with no post history in WSB suddenly becoming active JUST to downplay something, and NOT think that it was very, very odd?](https://www.reddit.com/r/wallstreetbets/comments/lgevvc/in_what_other_scenario_would_you_see_massive/)
-- [$TLRY $APHA calls since 1/5/2021 got me to over $500k today. Still think it has much upside 🚀🌳🚀🌳🚀🌳🚀](https://www.reddit.com/r/wallstreetbets/comments/lgeuop/tlry_apha_calls_since_152021_got_me_to_over_500k/)
-- [Get prepared for a downvote brigade and post/comment removals!](https://www.reddit.com/r/wallstreetbets/comments/lge1fl/get_prepared_for_a_downvote_brigade_and/)
-- [What Are Your Moves Tomorrow, February 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/lgdb2j/what_are_your_moves_tomorrow_february_10_2021/)
-- [Psychedelics, PSYK, CMPS, MMED, your guide to new horizons](https://www.reddit.com/r/wallstreetbets/comments/lgd9px/psychedelics_psyk_cmps_mmed_your_guide_to_new/)
+- [AMC & GME tickers looking identical again. What a surprise...](https://www.reddit.com/r/wallstreetbets/comments/lh55eu/amc_gme_tickers_looking_identical_again_what_a/)
+- [Anyone else suspicious about all of these beta ass weed memes?](https://www.reddit.com/r/wallstreetbets/comments/lh4yss/anyone_else_suspicious_about_all_of_these_beta/)
+- [$800 -> $10,800 TLRY🌳](https://www.reddit.com/r/wallstreetbets/comments/lh4oj6/800_10800_tlry/)
+- [InvestorPlace has written a positive article in support of GME Diamond Hands Apes!](https://www.reddit.com/r/wallstreetbets/comments/lh40to/investorplace_has_written_a_positive_article_in/)
+- [Another Boring Educational Post For The New Traders](https://www.reddit.com/r/wallstreetbets/comments/lh3z6b/another_boring_educational_post_for_the_new/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
