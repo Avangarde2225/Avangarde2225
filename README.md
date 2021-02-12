@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC & GME tickers looking identical again. What a surprise...](https://www.reddit.com/r/wallstreetbets/comments/lh55eu/amc_gme_tickers_looking_identical_again_what_a/)
-- [Anyone else suspicious about all of these beta ass weed memes?](https://www.reddit.com/r/wallstreetbets/comments/lh4yss/anyone_else_suspicious_about_all_of_these_beta/)
-- [$800 -> $10,800 TLRY🌳](https://www.reddit.com/r/wallstreetbets/comments/lh4oj6/800_10800_tlry/)
-- [InvestorPlace has written a positive article in support of GME Diamond Hands Apes!](https://www.reddit.com/r/wallstreetbets/comments/lh40to/investorplace_has_written_a_positive_article_in/)
-- [Another Boring Educational Post For The New Traders](https://www.reddit.com/r/wallstreetbets/comments/lh3z6b/another_boring_educational_post_for_the_new/)
+- [Me, making my gains/taking profit off all of your DD into amazing companies.](https://www.reddit.com/r/wallstreetbets/comments/lhw1s5/me_making_my_gainstaking_profit_off_all_of_your/)
+- [GME long. DFV had it right on the fundamentals in market context and still has it right.](https://www.reddit.com/r/wallstreetbets/comments/lhvzuq/gme_long_dfv_had_it_right_on_the_fundamentals_in/)
+- [A WSB-Hyped stock when I DON'T buy it](https://www.reddit.com/r/wallstreetbets/comments/lhuzuy/a_wsbhyped_stock_when_i_dont_buy_it/)
+- [I don’t know what I’m doing.](https://www.reddit.com/r/wallstreetbets/comments/lhutx5/i_dont_know_what_im_doing/)
+- [What Are Your Moves Tomorrow, February 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/lhumfo/what_are_your_moves_tomorrow_february_12_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
