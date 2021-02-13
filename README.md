@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me, making my gains/taking profit off all of your DD into amazing companies.](https://www.reddit.com/r/wallstreetbets/comments/lhw1s5/me_making_my_gainstaking_profit_off_all_of_your/)
-- [GME long. DFV had it right on the fundamentals in market context and still has it right.](https://www.reddit.com/r/wallstreetbets/comments/lhvzuq/gme_long_dfv_had_it_right_on_the_fundamentals_in/)
-- [A WSB-Hyped stock when I DON'T buy it](https://www.reddit.com/r/wallstreetbets/comments/lhuzuy/a_wsbhyped_stock_when_i_dont_buy_it/)
-- [I don’t know what I’m doing.](https://www.reddit.com/r/wallstreetbets/comments/lhutx5/i_dont_know_what_im_doing/)
-- [What Are Your Moves Tomorrow, February 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/lhumfo/what_are_your_moves_tomorrow_february_12_2021/)
+- [Dear CNBC](https://www.reddit.com/r/wallstreetbets/comments/linjhq/dear_cnbc/)
+- [I think today was a win](https://www.reddit.com/r/wallstreetbets/comments/lillpp/i_think_today_was_a_win/)
+- [GME price action DD: making higher lows and turning an ancient resistance into support](https://www.reddit.com/r/wallstreetbets/comments/lil9ku/gme_price_action_dd_making_higher_lows_and/)
+- [Weekend Discussion Thread for the Weekend of February 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/likmpp/weekend_discussion_thread_for_the_weekend_of/)
+- [The GME shit in summary](https://www.reddit.com/r/wallstreetbets/comments/likajv/the_gme_shit_in_summary/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
