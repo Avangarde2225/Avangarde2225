@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dear CNBC](https://www.reddit.com/r/wallstreetbets/comments/linjhq/dear_cnbc/)
-- [I think today was a win](https://www.reddit.com/r/wallstreetbets/comments/lillpp/i_think_today_was_a_win/)
-- [GME price action DD: making higher lows and turning an ancient resistance into support](https://www.reddit.com/r/wallstreetbets/comments/lil9ku/gme_price_action_dd_making_higher_lows_and/)
-- [Weekend Discussion Thread for the Weekend of February 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/likmpp/weekend_discussion_thread_for_the_weekend_of/)
-- [The GME shit in summary](https://www.reddit.com/r/wallstreetbets/comments/likajv/the_gme_shit_in_summary/)
+- [No tendies for valentines](https://www.reddit.com/r/wallstreetbets/comments/ljbho3/no_tendies_for_valentines/)
+- [Weed stocks are NOT like GME.](https://www.reddit.com/r/wallstreetbets/comments/ljak7l/weed_stocks_are_not_like_gme/)
+- [Upcoming Week 2/19 Geee Em Eeee ITM Options Targets: Playing The Market Fuckery... Pt. 2...](https://www.reddit.com/r/wallstreetbets/comments/lj8gh1/upcoming_week_219_geee_em_eeee_itm_options/)
+- [Day 1 of GameStop Hearing - House Committee on Financial Services](https://www.reddit.com/r/wallstreetbets/comments/lj8djx/day_1_of_gamestop_hearing_house_committee_on/)
+- [Maybe the funniest meme yet, imo.](https://www.reddit.com/r/wallstreetbets/comments/lj7rdz/maybe_the_funniest_meme_yet_imo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
