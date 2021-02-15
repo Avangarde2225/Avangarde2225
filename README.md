@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [No tendies for valentines](https://www.reddit.com/r/wallstreetbets/comments/ljbho3/no_tendies_for_valentines/)
-- [Weed stocks are NOT like GME.](https://www.reddit.com/r/wallstreetbets/comments/ljak7l/weed_stocks_are_not_like_gme/)
-- [Upcoming Week 2/19 Geee Em Eeee ITM Options Targets: Playing The Market Fuckery... Pt. 2...](https://www.reddit.com/r/wallstreetbets/comments/lj8gh1/upcoming_week_219_geee_em_eeee_itm_options/)
-- [Day 1 of GameStop Hearing - House Committee on Financial Services](https://www.reddit.com/r/wallstreetbets/comments/lj8djx/day_1_of_gamestop_hearing_house_committee_on/)
-- [Maybe the funniest meme yet, imo.](https://www.reddit.com/r/wallstreetbets/comments/lj7rdz/maybe_the_funniest_meme_yet_imo/)
+- [AMC Blockbuster DD](https://www.reddit.com/r/wallstreetbets/comments/ljz99b/amc_blockbuster_dd/)
+- [A Comprehensive Compilation of DD for our Favourite Stock](https://www.reddit.com/r/wallstreetbets/comments/ljymbp/a_comprehensive_compilation_of_dd_for_our/)
+- [What Are Your Moves Tomorrow, February 15, 2021](https://www.reddit.com/r/wallstreetbets/comments/ljx9by/what_are_your_moves_tomorrow_february_15_2021/)
+- [Valentines Gift 🎁](https://www.reddit.com/r/wallstreetbets/comments/ljvuld/valentines_gift/)
+- [PALANQUEERS RISE: THE FINAL FRONTIER](https://www.reddit.com/r/wallstreetbets/comments/ljv8ju/palanqueers_rise_the_final_frontier/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
