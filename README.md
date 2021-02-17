@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$T - AT&T Short Term Bull Thesis - Insider Trading Galore](https://www.reddit.com/r/wallstreetbets/comments/lkpu79/t_att_short_term_bull_thesis_insider_trading/)
-- [AMC Blockbuster DD: The Sequel](https://www.reddit.com/r/wallstreetbets/comments/lkpfti/amc_blockbuster_dd_the_sequel/)
-- [Anyone feel this way?](https://www.reddit.com/r/wallstreetbets/comments/lkp7r7/anyone_feel_this_way/)
-- [The DTCC that enabled the Hedge Fund’s naked short selling forced Robinhood and other brokers to prevent investors from buying GME and AMC. They crushed GME stock price down 77% on low volume and stopped the epic short squeeze.](https://www.reddit.com/r/wallstreetbets/comments/lkp3u1/the_dtcc_that_enabled_the_hedge_funds_naked_short/)
-- [While the market was closed I held an impromptu science experiment](https://www.reddit.com/r/wallstreetbets/comments/lkoron/while_the_market_was_closed_i_held_an_impromptu/)
+- [Welcome back, zjz.](https://www.reddit.com/r/wallstreetbets/comments/llgits/welcome_back_zjz/)
+- [Personal opinion: Increased my GME position by about 20% today, not recommending you do the same.](https://www.reddit.com/r/wallstreetbets/comments/llftek/personal_opinion_increased_my_gme_position_by/)
+- [Looks like I picked the wrong week to quit sniffing glue!](https://www.reddit.com/r/wallstreetbets/comments/llegcj/looks_like_i_picked_the_wrong_week_to_quit/)
+- [I'm a sucker for holding GME?](https://www.reddit.com/r/wallstreetbets/comments/lldxno/im_a_sucker_for_holding_gme/)
+- [$100K PLTR and CRSR YOLO UPDATE. 💎🙌 . I’m in my mid 20’s, what could go wrong?](https://www.reddit.com/r/wallstreetbets/comments/lldn9m/100k_pltr_and_crsr_yolo_update_im_in_my_mid_20s/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
