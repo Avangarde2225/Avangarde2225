@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Welcome back, zjz.](https://www.reddit.com/r/wallstreetbets/comments/llgits/welcome_back_zjz/)
-- [Personal opinion: Increased my GME position by about 20% today, not recommending you do the same.](https://www.reddit.com/r/wallstreetbets/comments/llftek/personal_opinion_increased_my_gme_position_by/)
-- [Looks like I picked the wrong week to quit sniffing glue!](https://www.reddit.com/r/wallstreetbets/comments/llegcj/looks_like_i_picked_the_wrong_week_to_quit/)
-- [I'm a sucker for holding GME?](https://www.reddit.com/r/wallstreetbets/comments/lldxno/im_a_sucker_for_holding_gme/)
-- [$100K PLTR and CRSR YOLO UPDATE. 💎🙌 . I’m in my mid 20’s, what could go wrong?](https://www.reddit.com/r/wallstreetbets/comments/lldn9m/100k_pltr_and_crsr_yolo_update_im_in_my_mid_20s/)
+- [Congressional hearings / DFV / GME / etc megathread](https://www.reddit.com/r/wallstreetbets/comments/lm7n51/congressional_hearings_dfv_gme_etc_megathread/)
+- [Key moments from DFV's testimony tomorrow](https://www.reddit.com/r/wallstreetbets/comments/lm4svh/key_moments_from_dfvs_testimony_tomorrow/)
+- [What Are Your Moves Tomorrow, February 18, 2021](https://www.reddit.com/r/wallstreetbets/comments/lm4k2z/what_are_your_moves_tomorrow_february_18_2021/)
+- [GME: The Big Squeeze (2021) coming soon to AMC theaters 🚀](https://www.reddit.com/r/wallstreetbets/comments/lm4g19/gme_the_big_squeeze_2021_coming_soon_to_amc/)
+- [Doesn’t look too bad... haven’t eaten since last week. Pls help.](https://www.reddit.com/r/wallstreetbets/comments/lm43n6/doesnt_look_too_bad_havent_eaten_since_last_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
