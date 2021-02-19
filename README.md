@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Congressional hearings / DFV / GME / etc megathread](https://www.reddit.com/r/wallstreetbets/comments/lm7n51/congressional_hearings_dfv_gme_etc_megathread/)
-- [Key moments from DFV's testimony tomorrow](https://www.reddit.com/r/wallstreetbets/comments/lm4svh/key_moments_from_dfvs_testimony_tomorrow/)
-- [What Are Your Moves Tomorrow, February 18, 2021](https://www.reddit.com/r/wallstreetbets/comments/lm4k2z/what_are_your_moves_tomorrow_february_18_2021/)
-- [GME: The Big Squeeze (2021) coming soon to AMC theaters 🚀](https://www.reddit.com/r/wallstreetbets/comments/lm4g19/gme_the_big_squeeze_2021_coming_soon_to_amc/)
-- [Doesn’t look too bad... haven’t eaten since last week. Pls help.](https://www.reddit.com/r/wallstreetbets/comments/lm43n6/doesnt_look_too_bad_havent_eaten_since_last_week/)
+- [DFV’s smile, he’s watching all us apes support him.](https://www.reddit.com/r/wallstreetbets/comments/lmyan9/dfvs_smile_hes_watching_all_us_apes_support_him/)
+- [The reason DVF is so succinct in his answers.](https://www.reddit.com/r/wallstreetbets/comments/lmy5li/the_reason_dvf_is_so_succinct_in_his_answers/)
+- [The CEO of Reddit raising what seems to be a nice glass of IPA after his testimony on the Robinhood™️ hearing today like a boss !](https://www.reddit.com/r/wallstreetbets/comments/lmxbr3/the_ceo_of_reddit_raising_what_seems_to_be_a_nice/)
+- [What Are Your Moves Tomorrow, February 19, 2021](https://www.reddit.com/r/wallstreetbets/comments/lmx3k3/what_are_your_moves_tomorrow_february_19_2021/)
+- [GameStop Congressional Hearings - Part 2](https://www.reddit.com/r/wallstreetbets/comments/lmvqyw/gamestop_congressional_hearings_part_2/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
