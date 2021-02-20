@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DFV’s smile, he’s watching all us apes support him.](https://www.reddit.com/r/wallstreetbets/comments/lmyan9/dfvs_smile_hes_watching_all_us_apes_support_him/)
-- [The reason DVF is so succinct in his answers.](https://www.reddit.com/r/wallstreetbets/comments/lmy5li/the_reason_dvf_is_so_succinct_in_his_answers/)
-- [The CEO of Reddit raising what seems to be a nice glass of IPA after his testimony on the Robinhood™️ hearing today like a boss !](https://www.reddit.com/r/wallstreetbets/comments/lmxbr3/the_ceo_of_reddit_raising_what_seems_to_be_a_nice/)
-- [What Are Your Moves Tomorrow, February 19, 2021](https://www.reddit.com/r/wallstreetbets/comments/lmx3k3/what_are_your_moves_tomorrow_february_19_2021/)
-- [GameStop Congressional Hearings - Part 2](https://www.reddit.com/r/wallstreetbets/comments/lmvqyw/gamestop_congressional_hearings_part_2/)
+- [A word of caution from me, the guy who made $4million on GME... and yes, I'm still holding a lot. ✋💎🤚](https://www.reddit.com/r/wallstreetbets/comments/lnt2np/a_word_of_caution_from_me_the_guy_who_made/)
+- [DFV don’t lie.](https://www.reddit.com/r/wallstreetbets/comments/lnss80/dfv_dont_lie/)
+- [Diamond Hands to further smooth my brain](https://www.reddit.com/r/wallstreetbets/comments/lnsqll/diamond_hands_to_further_smooth_my_brain/)
+- [Watching my portfolio this week ♿️](https://www.reddit.com/r/wallstreetbets/comments/lnsly0/watching_my_portfolio_this_week/)
+- [Motion for Gamestop to appoint Keith Gill to the company's board of directors](https://www.reddit.com/r/wallstreetbets/comments/lnrynb/motion_for_gamestop_to_appoint_keith_gill_to_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
