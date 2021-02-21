@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A word of caution from me, the guy who made $4million on GME... and yes, I'm still holding a lot. ✋💎🤚](https://www.reddit.com/r/wallstreetbets/comments/lnt2np/a_word_of_caution_from_me_the_guy_who_made/)
-- [DFV don’t lie.](https://www.reddit.com/r/wallstreetbets/comments/lnss80/dfv_dont_lie/)
-- [Diamond Hands to further smooth my brain](https://www.reddit.com/r/wallstreetbets/comments/lnsqll/diamond_hands_to_further_smooth_my_brain/)
-- [Watching my portfolio this week ♿️](https://www.reddit.com/r/wallstreetbets/comments/lnsly0/watching_my_portfolio_this_week/)
-- [Motion for Gamestop to appoint Keith Gill to the company's board of directors](https://www.reddit.com/r/wallstreetbets/comments/lnrynb/motion_for_gamestop_to_appoint_keith_gill_to_the/)
+- [Went to my family accountant with my Robinhood 1099 ... he asked what the fuck did I do in the best bull market ever](https://www.reddit.com/r/wallstreetbets/comments/lohbb7/went_to_my_family_accountant_with_my_robinhood/)
+- [Round 2 - The Deep Fucking Finale 🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/logd9i/round_2_the_deep_fucking_finale/)
+- [Mods keep deleting, $6969 donation to my local center for people experiencing homelessness. TY GME](https://www.reddit.com/r/wallstreetbets/comments/logbql/mods_keep_deleting_6969_donation_to_my_local/)
+- [Never shorted a company in my life but gonna short the shit out of ROBINPOOP right on the day of IPO](https://www.reddit.com/r/wallstreetbets/comments/log2tt/never_shorted_a_company_in_my_life_but_gonna/)
+- [DTCC confirms they waived additional margin requirements to all brokers PRIOR to the opening bell on Jan 28th](https://www.reddit.com/r/wallstreetbets/comments/lofrgo/dtcc_confirms_they_waived_additional_margin/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
