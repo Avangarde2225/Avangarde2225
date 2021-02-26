@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To all the people who were down and held...](https://www.reddit.com/r/wallstreetbets/comments/lrpmx4/to_all_the_people_who_were_down_and_held/)
-- [After-hours is already at 154, where are the two retards that promised a tattoo at 100?](https://www.reddit.com/r/wallstreetbets/comments/lrog8n/afterhours_is_already_at_154_where_are_the_two/)
-- [Don’t break even. Break their wallets](https://www.reddit.com/r/wallstreetbets/comments/lroabb/dont_break_even_break_their_wallets/)
-- [When he doubles down, I double down. Why? DFV with the in-depth analysis...](https://www.reddit.com/r/wallstreetbets/comments/lro7y5/when_he_doubles_down_i_double_down_why_dfv_with/)
-- [Let’s Run It Back 🦍](https://www.reddit.com/r/wallstreetbets/comments/lro4hl/lets_run_it_back/)
+- [Just a little advice from a Billionaire... “if you still believe in the reason you bought the stock, and that hasn’t changed, why sell?”](https://www.reddit.com/r/wallstreetbets/comments/lsij89/just_a_little_advice_from_a_billionaire_if_you/)
+- [$GME priveous behaviour is IDENTICAL to what is going on now.](https://www.reddit.com/r/wallstreetbets/comments/lsh9vf/gme_priveous_behaviour_is_identical_to_what_is/)
+- [Tried to quickly buy 50k worth of GME before close but fat fingered and ended up buying “GMED”](https://www.reddit.com/r/wallstreetbets/comments/lsgv43/tried_to_quickly_buy_50k_worth_of_gme_before/)
+- [What Are Your Moves Tomorrow, February 26, 2021](https://www.reddit.com/r/wallstreetbets/comments/lsgrk1/what_are_your_moves_tomorrow_february_26_2021/)
+- [I don't need Fox Business to hold me accountable, but I'll take it!](https://www.reddit.com/r/wallstreetbets/comments/lsgqig/i_dont_need_fox_business_to_hold_me_accountable/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
