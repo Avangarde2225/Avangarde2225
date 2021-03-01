@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [There Will Be Tendies](https://www.reddit.com/r/wallstreetbets/comments/ltzaoi/there_will_be_tendies/)
-- [The Legend of GME.](https://www.reddit.com/r/wallstreetbets/comments/ltys5m/the_legend_of_gme/)
-- [Planet GME (i made this when we couldn't post videos but now we can post videos)](https://www.reddit.com/r/wallstreetbets/comments/ltv4nn/planet_gme_i_made_this_when_we_couldnt_post/)
-- [$3M loss....got a call yesterday to say that a margin call that wouldn't be due until next wednesday was escalated to needing to be taken care of by EOD yesterday...](https://www.reddit.com/r/wallstreetbets/comments/ltuu37/3m_lossgot_a_call_yesterday_to_say_that_a_margin/)
-- [(GME DD) Why the Volkswagen Comparison is much more inaccurate than you thought, but in A DIFFERENT WAY](https://www.reddit.com/r/wallstreetbets/comments/ltudu7/gme_dd_why_the_volkswagen_comparison_is_much_more/)
+- [If GME was a sitcom](https://www.reddit.com/r/wallstreetbets/comments/lusqh7/if_gme_was_a_sitcom/)
+- [💎🙌 WHAT'S AN EXIT STRATEGY? 🙌💎](https://www.reddit.com/r/wallstreetbets/comments/lur470/whats_an_exit_strategy/)
+- [GME explained via Smash Ultimate](https://www.reddit.com/r/wallstreetbets/comments/lur27s/gme_explained_via_smash_ultimate/)
+- [The War Is Not Over Yet! GME To The Moon 🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/luqc98/the_war_is_not_over_yet_gme_to_the_moon/)
+- [What Are Your Moves Tomorrow, March 01, 2021](https://www.reddit.com/r/wallstreetbets/comments/luqc3p/what_are_your_moves_tomorrow_march_01_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
