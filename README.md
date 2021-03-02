@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If GME was a sitcom](https://www.reddit.com/r/wallstreetbets/comments/lusqh7/if_gme_was_a_sitcom/)
-- [💎🙌 WHAT'S AN EXIT STRATEGY? 🙌💎](https://www.reddit.com/r/wallstreetbets/comments/lur470/whats_an_exit_strategy/)
-- [GME explained via Smash Ultimate](https://www.reddit.com/r/wallstreetbets/comments/lur27s/gme_explained_via_smash_ultimate/)
-- [The War Is Not Over Yet! GME To The Moon 🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/luqc98/the_war_is_not_over_yet_gme_to_the_moon/)
-- [What Are Your Moves Tomorrow, March 01, 2021](https://www.reddit.com/r/wallstreetbets/comments/luqc3p/what_are_your_moves_tomorrow_march_01_2021/)
+- [Because many of you don’t understand trade regulation and law.](https://www.reddit.com/r/wallstreetbets/comments/lvljme/because_many_of_you_dont_understand_trade/)
+- [If this isn't raw talent, then I don't know what is 💎🖐 bought GME at $493 when its 52wk high was $483🚀🚀 If I can hodl, so can u 😎](https://www.reddit.com/r/wallstreetbets/comments/lvleax/if_this_isnt_raw_talent_then_i_dont_know_what_is/)
+- [Which one of you beautiful dipshits bought $12.7 mil of GME after hours](https://www.reddit.com/r/wallstreetbets/comments/lvkqmu/which_one_of_you_beautiful_dipshits_bought_127/)
+- [What Are Your Moves Tomorrow, March 02, 2021](https://www.reddit.com/r/wallstreetbets/comments/lvkeek/what_are_your_moves_tomorrow_march_02_2021/)
+- [GME 900 shares. Leggo](https://www.reddit.com/r/wallstreetbets/comments/lvjosn/gme_900_shares_leggo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
