@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Because many of you don’t understand trade regulation and law.](https://www.reddit.com/r/wallstreetbets/comments/lvljme/because_many_of_you_dont_understand_trade/)
-- [If this isn't raw talent, then I don't know what is 💎🖐 bought GME at $493 when its 52wk high was $483🚀🚀 If I can hodl, so can u 😎](https://www.reddit.com/r/wallstreetbets/comments/lvleax/if_this_isnt_raw_talent_then_i_dont_know_what_is/)
-- [Which one of you beautiful dipshits bought $12.7 mil of GME after hours](https://www.reddit.com/r/wallstreetbets/comments/lvkqmu/which_one_of_you_beautiful_dipshits_bought_127/)
-- [What Are Your Moves Tomorrow, March 02, 2021](https://www.reddit.com/r/wallstreetbets/comments/lvkeek/what_are_your_moves_tomorrow_march_02_2021/)
-- [GME 900 shares. Leggo](https://www.reddit.com/r/wallstreetbets/comments/lvjosn/gme_900_shares_leggo/)
+- [u/SquishedPeter's Cat Megathread for March 2nd, 2021](https://www.reddit.com/r/wallstreetbets/comments/lwfem7/usquishedpeters_cat_megathread_for_march_2nd_2021/)
+- [Shout out to the diamond hands](https://www.reddit.com/r/wallstreetbets/comments/lwep8m/shout_out_to_the_diamond_hands/)
+- [I'm happy for you $RKT peeps, but I hope you know where the real squeeze is gonna happen. $GME](https://www.reddit.com/r/wallstreetbets/comments/lwd55n/im_happy_for_you_rkt_peeps_but_i_hope_you_know/)
+- [Movie time on the moon!](https://www.reddit.com/r/wallstreetbets/comments/lwcneo/movie_time_on_the_moon/)
+- [FUCK IT IM IN 💎🙌🏻🚀](https://www.reddit.com/r/wallstreetbets/comments/lwchqg/fuck_it_im_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
