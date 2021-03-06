@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GME - POSSIBILITY OF GAMMA SQUEEZE JUST WENT THROUGH THE ROOF](https://www.reddit.com/r/wallstreetbets/comments/lxwhpy/gme_possibility_of_gamma_squeeze_just_went/)
-- [What Are Your Moves Tomorrow, March 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/lxva6s/what_are_your_moves_tomorrow_march_05_2021/)
-- [A Piss Debt is owed. Mods you know what to do if he doesn't own up.](https://www.reddit.com/r/wallstreetbets/comments/lxv4k6/a_piss_debt_is_owed_mods_you_know_what_to_do_if/)
-- [Decided to trade options for the first time today to learn. Somehow both my put and call made money and I learned nothing](https://www.reddit.com/r/wallstreetbets/comments/lxtyl1/decided_to_trade_options_for_the_first_time_today/)
-- [Raising Yield Bonds, GME, and why the Hedge funds are finished](https://www.reddit.com/r/wallstreetbets/comments/lxtjky/raising_yield_bonds_gme_and_why_the_hedge_funds/)
+- ["Hold GME" message board on Route 9 in NJ in front of Bimmer Clinic.](https://www.reddit.com/r/wallstreetbets/comments/lyo05p/hold_gme_message_board_on_route_9_in_nj_in_front/)
+- [My portfolio for the whole time I‘ve had it. And yes, that‘s me, very objectively a very fucken retard. Hold my banana and watch this!](https://www.reddit.com/r/wallstreetbets/comments/lymsjd/my_portfolio_for_the_whole_time_ive_had_it_and/)
+- [The $130 resistance barrier was completely left in the dust today. The $140 barrier? Smashed through it with minimal volume. While the $150 barrier held strong today, yesterday's close became our new floor. Violent price swings with minimal volume - GME is only getting started bois!](https://www.reddit.com/r/wallstreetbets/comments/lymlmf/the_130_resistance_barrier_was_completely_left_in/)
+- [Looking at my accounts in the morning](https://www.reddit.com/r/wallstreetbets/comments/lymdsh/looking_at_my_accounts_in_the_morning/)
+- [I Will Own GameStop Update - Mar 5, 2021](https://www.reddit.com/r/wallstreetbets/comments/lym9nz/i_will_own_gamestop_update_mar_5_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
