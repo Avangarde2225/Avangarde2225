@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- ["Hold GME" message board on Route 9 in NJ in front of Bimmer Clinic.](https://www.reddit.com/r/wallstreetbets/comments/lyo05p/hold_gme_message_board_on_route_9_in_nj_in_front/)
-- [My portfolio for the whole time I‘ve had it. And yes, that‘s me, very objectively a very fucken retard. Hold my banana and watch this!](https://www.reddit.com/r/wallstreetbets/comments/lymsjd/my_portfolio_for_the_whole_time_ive_had_it_and/)
-- [The $130 resistance barrier was completely left in the dust today. The $140 barrier? Smashed through it with minimal volume. While the $150 barrier held strong today, yesterday's close became our new floor. Violent price swings with minimal volume - GME is only getting started bois!](https://www.reddit.com/r/wallstreetbets/comments/lymlmf/the_130_resistance_barrier_was_completely_left_in/)
-- [Looking at my accounts in the morning](https://www.reddit.com/r/wallstreetbets/comments/lymdsh/looking_at_my_accounts_in_the_morning/)
-- [I Will Own GameStop Update - Mar 5, 2021](https://www.reddit.com/r/wallstreetbets/comments/lym9nz/i_will_own_gamestop_update_mar_5_2021/)
+- [Fellow retard in the wild at Lake Tahoe.](https://www.reddit.com/r/wallstreetbets/comments/lzc4uh/fellow_retard_in_the_wild_at_lake_tahoe/)
+- [Good news for market 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/lzbqhd/good_news_for_market/)
+- [GME realistic price prediction DD](https://www.reddit.com/r/wallstreetbets/comments/lzbh46/gme_realistic_price_prediction_dd/)
+- [How Do People Not See That Chamath is a Blatant Shill](https://www.reddit.com/r/wallstreetbets/comments/lza6fc/how_do_people_not_see_that_chamath_is_a_blatant/)
+- [The 20 most used words, found in comments, on 3/5/21.](https://www.reddit.com/r/wallstreetbets/comments/lz8xfl/the_20_most_used_words_found_in_comments_on_3521/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
