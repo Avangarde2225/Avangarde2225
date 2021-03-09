@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- ["you can't time the market." no, YOU can't time the market. roth IRA post part 2](https://www.reddit.com/r/wallstreetbets/comments/m0168n/you_cant_time_the_market_no_you_cant_time_the/)
-- [I got a sign from above....all the DD I needed.](https://www.reddit.com/r/wallstreetbets/comments/m00gqa/i_got_a_sign_from_aboveall_the_dd_i_needed/)
-- [What Are Your Moves Tomorrow, March 08, 2021](https://www.reddit.com/r/wallstreetbets/comments/lzzknh/what_are_your_moves_tomorrow_march_08_2021/)
-- [Alll aboard!! 🦍🚄 🚀 Looks like a good weekend for AMC!! 525% apes strong together](https://www.reddit.com/r/wallstreetbets/comments/lzz5rn/alll_aboard_looks_like_a_good_weekend_for_amc_525/)
-- [Tomorrow shall be wild](https://www.reddit.com/r/wallstreetbets/comments/lzz1mc/tomorrow_shall_be_wild/)
+- [I work for the railroad and this rolled in the other night!😎](https://www.reddit.com/r/wallstreetbets/comments/m0raja/i_work_for_the_railroad_and_this_rolled_in_the/)
+- [Technicals Show GME is Going Much Higher. Analysis on Volume, MACD, and Short Availability. 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/m0r4gd/technicals_show_gme_is_going_much_higher_analysis/)
+- [1 year today, the oracle of WSB](https://www.reddit.com/r/wallstreetbets/comments/m0qjln/1_year_today_the_oracle_of_wsb/)
+- ["Short sellers are down 609 million in Monday's trading alone"](https://www.reddit.com/r/wallstreetbets/comments/m0q5ly/short_sellers_are_down_609_million_in_mondays/)
+- [GME YOLO update — Mar 8 2021](https://www.reddit.com/r/wallstreetbets/comments/m0q5bm/gme_yolo_update_mar_8_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
