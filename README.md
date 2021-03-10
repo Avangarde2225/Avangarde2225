@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I work for the railroad and this rolled in the other night!😎](https://www.reddit.com/r/wallstreetbets/comments/m0raja/i_work_for_the_railroad_and_this_rolled_in_the/)
-- [Technicals Show GME is Going Much Higher. Analysis on Volume, MACD, and Short Availability. 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/m0r4gd/technicals_show_gme_is_going_much_higher_analysis/)
-- [1 year today, the oracle of WSB](https://www.reddit.com/r/wallstreetbets/comments/m0qjln/1_year_today_the_oracle_of_wsb/)
-- ["Short sellers are down 609 million in Monday's trading alone"](https://www.reddit.com/r/wallstreetbets/comments/m0q5ly/short_sellers_are_down_609_million_in_mondays/)
-- [GME YOLO update — Mar 8 2021](https://www.reddit.com/r/wallstreetbets/comments/m0q5bm/gme_yolo_update_mar_8_2021/)
+- [Diamond hands found in VT.](https://www.reddit.com/r/wallstreetbets/comments/m1i2h5/diamond_hands_found_in_vt/)
+- [Legend of the GameStop Short Squeeze.](https://www.reddit.com/r/wallstreetbets/comments/m1gn5e/legend_of_the_gamestop_short_squeeze/)
+- [What Are Your Moves Tomorrow, March 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/m1g6cf/what_are_your_moves_tomorrow_march_10_2021/)
+- [GME chart analysis, EXTREMELY bullish pattern forming](https://www.reddit.com/r/wallstreetbets/comments/m1f7bq/gme_chart_analysis_extremely_bullish_pattern/)
+- [Vibe at work while the GME rocket flies](https://www.reddit.com/r/wallstreetbets/comments/m1f30t/vibe_at_work_while_the_gme_rocket_flies/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
