@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Diamond hands found in VT.](https://www.reddit.com/r/wallstreetbets/comments/m1i2h5/diamond_hands_found_in_vt/)
-- [Legend of the GameStop Short Squeeze.](https://www.reddit.com/r/wallstreetbets/comments/m1gn5e/legend_of_the_gamestop_short_squeeze/)
-- [What Are Your Moves Tomorrow, March 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/m1g6cf/what_are_your_moves_tomorrow_march_10_2021/)
-- [GME chart analysis, EXTREMELY bullish pattern forming](https://www.reddit.com/r/wallstreetbets/comments/m1f7bq/gme_chart_analysis_extremely_bullish_pattern/)
-- [Vibe at work while the GME rocket flies](https://www.reddit.com/r/wallstreetbets/comments/m1f30t/vibe_at_work_while_the_gme_rocket_flies/)
+- [Today pretty much](https://www.reddit.com/r/wallstreetbets/comments/m299u5/today_pretty_much/)
+- [We had a $150+ drop and ended the day green. Make your wife's boyfriends sleep on the couch tonight.](https://www.reddit.com/r/wallstreetbets/comments/m28grt/we_had_a_150_drop_and_ended_the_day_green_make/)
+- [What Are Your Moves Tomorrow, March 11, 2021](https://www.reddit.com/r/wallstreetbets/comments/m28d30/what_are_your_moves_tomorrow_march_11_2021/)
+- [Still finished up 10% today](https://www.reddit.com/r/wallstreetbets/comments/m283qb/still_finished_up_10_today/)
+- [GME MEGATHREAD PART III](https://www.reddit.com/r/wallstreetbets/comments/m27zg5/gme_megathread_part_iii/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
