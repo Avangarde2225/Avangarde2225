@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do not despair +400 $GME apes! 🦍 Coming for you tomorrow 💎🙌🚀](https://www.reddit.com/r/wallstreetbets/comments/m32dy2/do_not_despair_400_gme_apes_coming_for_you/)
-- [The only true way to buy $GME is to buy it on a video game console in a virtual world.](https://www.reddit.com/r/wallstreetbets/comments/m31sm8/the_only_true_way_to_buy_gme_is_to_buy_it_on_a/)
-- [Me and the boys watching GME today](https://www.reddit.com/r/wallstreetbets/comments/m31opa/me_and_the_boys_watching_gme_today/)
-- [Territorial markings of a wild ape found off 495 in the DMV.](https://www.reddit.com/r/wallstreetbets/comments/m31ctl/territorial_markings_of_a_wild_ape_found_off_495/)
-- [Found out how to buy call options today.](https://www.reddit.com/r/wallstreetbets/comments/m31138/found_out_how_to_buy_call_options_today/)
+- [My portfoilio after holding GME calls the past two days](https://www.reddit.com/r/wallstreetbets/comments/m3reku/my_portfoilio_after_holding_gme_calls_the_past/)
+- [Found out how to buy call options yesterday](https://www.reddit.com/r/wallstreetbets/comments/m3r3v2/found_out_how_to_buy_call_options_yesterday/)
+- [Waiting for Monday's market open](https://www.reddit.com/r/wallstreetbets/comments/m3r1ks/waiting_for_mondays_market_open/)
+- [Weekend Discussion Thread for the Weekend of March 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/m3r158/weekend_discussion_thread_for_the_weekend_of/)
+- [CNBC guest says that r/wallstreetbets community is doing better financial analysis than Hedge Funds](https://www.reddit.com/r/wallstreetbets/comments/m3pxz1/cnbc_guest_says_that_rwallstreetbets_community_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
