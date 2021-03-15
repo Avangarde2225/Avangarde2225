@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A message to WSB from the Director of the Dian Fossey Gorilla Fund!](https://www.reddit.com/r/wallstreetbets/comments/m4i2ib/a_message_to_wsb_from_the_director_of_the_dian/)
-- [I am but a young ape with unrealised gme gains but ape take care of ape, say hello to Popi guys.](https://www.reddit.com/r/wallstreetbets/comments/m4h928/i_am_but_a_young_ape_with_unrealised_gme_gains/)
-- [Just helping out my fellow apes!](https://www.reddit.com/r/wallstreetbets/comments/m4h5jd/just_helping_out_my_fellow_apes/)
-- [Literally cant go tits up! #ApesAdoptingApes](https://www.reddit.com/r/wallstreetbets/comments/m4gw2m/literally_cant_go_tits_up_apesadoptingapes/)
-- [Adopted a family](https://www.reddit.com/r/wallstreetbets/comments/m4go6s/adopted_a_family/)
+- [How it feels buying into GME after scrolling through WSB](https://www.reddit.com/r/wallstreetbets/comments/m56eni/how_it_feels_buying_into_gme_after_scrolling/)
+- [STIMMMYYYY!!!!](https://www.reddit.com/r/wallstreetbets/comments/m55a38/stimmmyyyy/)
+- [WSB degenerates after selling GME for $500k a share](https://www.reddit.com/r/wallstreetbets/comments/m554fa/wsb_degenerates_after_selling_gme_for_500k_a_share/)
+- [Don‘t forget to get your bananas, because „Monkey never cramps“ 🍌🦍](https://www.reddit.com/r/wallstreetbets/comments/m54j4x/dont_forget_to_get_your_bananas_because_monkey/)
+- [Sup, apetards! I've been DOING some technical ANALysis recently (fractals and shit), and found out that GeeMEeee is going to fking PENETRATE $1K next week. Hope you enjoy the read!](https://www.reddit.com/r/wallstreetbets/comments/m54fzc/sup_apetards_ive_been_doing_some_technical/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
