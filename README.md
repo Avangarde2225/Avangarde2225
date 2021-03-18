@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me 100%](https://www.reddit.com/r/wallstreetbets/comments/m6j0h6/me_100/)
-- [How to not be a dick to your loved ones after a bad day.](https://www.reddit.com/r/wallstreetbets/comments/m6i91b/how_to_not_be_a_dick_to_your_loved_ones_after_a/)
-- [What Are Your Moves Tomorrow, March 17, 2021](https://www.reddit.com/r/wallstreetbets/comments/m6hx6h/what_are_your_moves_tomorrow_march_17_2021/)
-- [Bill Gross is short GME. Selling $250 and $300 calls.](https://www.reddit.com/r/wallstreetbets/comments/m6hpof/bill_gross_is_short_gme_selling_250_and_300_calls/)
-- [1.2 mil yolo (sorry first one I had to delet real quick and mark out our acct number)](https://www.reddit.com/r/wallstreetbets/comments/m6hcw5/12_mil_yolo_sorry_first_one_i_had_to_delet_real/)
+- [AMC Theatres® to Have 98% of Its U.S. Locations Open Beginning Friday, March 19](https://www.reddit.com/r/wallstreetbets/comments/m7asag/amc_theatres_to_have_98_of_its_us_locations_open/)
+- [Highlights from Today’s Hearing.](https://www.reddit.com/r/wallstreetbets/comments/m7a79s/highlights_from_todays_hearing/)
+- [Why the $GME MOASS (Mother of All Short Squeezes) is real and why it is scary for the rest of the market](https://www.reddit.com/r/wallstreetbets/comments/m79wdx/why_the_gme_moass_mother_of_all_short_squeezes_is/)
+- [Sorry for your loss Ryan Cohen. Condolences from Wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/m79nw6/sorry_for_your_loss_ryan_cohen_condolences_from/)
+- [When it hits green within a minute of EOD! 🦍🚀🦍](https://www.reddit.com/r/wallstreetbets/comments/m79mx1/when_it_hits_green_within_a_minute_of_eod/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
