@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Visual representation of what happens when I buy any stock.](https://www.reddit.com/r/wallstreetbets/comments/m82xo7/visual_representation_of_what_happens_when_i_buy/)
-- [How neat is this. They loved our support for the gorillas so much, they made our own 💎🙌 🦍 shirt as a thank you! Ordered one for myself too!](https://www.reddit.com/r/wallstreetbets/comments/m82cvd/how_neat_is_this_they_loved_our_support_for_the/)
-- [GME supply running low...](https://www.reddit.com/r/wallstreetbets/comments/m81b2a/gme_supply_running_low/)
-- [That dip was nice. Got anymore?](https://www.reddit.com/r/wallstreetbets/comments/m7zine/that_dip_was_nice_got_anymore/)
-- [Apes together strong🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/m7zgff/apes_together_strong/)
+- [Does GME make up 99.9% of my portfolio? YES. Did I sell my shares? NO. I’ve been buying shares and options for GME since December. I LIKE THE STOCK.](https://www.reddit.com/r/wallstreetbets/comments/m8rc3v/does_gme_make_up_999_of_my_portfolio_yes_did_i/)
+- [BLOOMBERG TERMINAL GME DATA - As of EOD 03-19](https://www.reddit.com/r/wallstreetbets/comments/m8racu/bloomberg_terminal_gme_data_as_of_eod_0319/)
+- [My wife must have overheard me talking this past three months because she had this 3D printed! 🚀 It arrived today after market close. I just like the stock 🙌💎](https://www.reddit.com/r/wallstreetbets/comments/m8r2ly/my_wife_must_have_overheard_me_talking_this_past/)
+- [Latitude 30°-34° N Longitude 36°-40° W is officially reserved for GameStop on the Moon. See you there 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/m8r2eb/latitude_3034_n_longitude_3640_w_is_officially/)
+- [Federal Reserve announces it will no longer provide emergency funding to big banks](https://www.reddit.com/r/wallstreetbets/comments/m8qqm7/federal_reserve_announces_it_will_no_longer/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
