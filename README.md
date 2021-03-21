@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Does GME make up 99.9% of my portfolio? YES. Did I sell my shares? NO. I’ve been buying shares and options for GME since December. I LIKE THE STOCK.](https://www.reddit.com/r/wallstreetbets/comments/m8rc3v/does_gme_make_up_999_of_my_portfolio_yes_did_i/)
-- [BLOOMBERG TERMINAL GME DATA - As of EOD 03-19](https://www.reddit.com/r/wallstreetbets/comments/m8racu/bloomberg_terminal_gme_data_as_of_eod_0319/)
-- [My wife must have overheard me talking this past three months because she had this 3D printed! 🚀 It arrived today after market close. I just like the stock 🙌💎](https://www.reddit.com/r/wallstreetbets/comments/m8r2ly/my_wife_must_have_overheard_me_talking_this_past/)
-- [Latitude 30°-34° N Longitude 36°-40° W is officially reserved for GameStop on the Moon. See you there 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/m8r2eb/latitude_3034_n_longitude_3640_w_is_officially/)
-- [Federal Reserve announces it will no longer provide emergency funding to big banks](https://www.reddit.com/r/wallstreetbets/comments/m8qqm7/federal_reserve_announces_it_will_no_longer/)
+- [they're now blaming you guys for "This year's volatility" lmaoooo](https://www.reddit.com/r/wallstreetbets/comments/m9irrx/theyre_now_blaming_you_guys_for_this_years/)
+- [My Previous YOLOs from the past two months (oh ye with little faith! come see and touch my stigmata tendies! See the truth for your own eyes! For God KNOWS and SEES all!!!)](https://www.reddit.com/r/wallstreetbets/comments/m9he02/my_previous_yolos_from_the_past_two_months_oh_ye/)
+- [$GME Options for April 16 (27 Days) are absolutely nuts - Decryption assistance needed looking at OI](https://www.reddit.com/r/wallstreetbets/comments/m9fx0y/gme_options_for_april_16_27_days_are_absolutely/)
+- [Enough with the techno mumbo jumbo A Fundamentalist Analysis of UWMC - Why I'm doubling Down](https://www.reddit.com/r/wallstreetbets/comments/m9frpz/enough_with_the_techno_mumbo_jumbo_a/)
+- [$GME Potential Pattern: Descending Triangle to Cup Handle Formation and Possible Bullish Overturn Breakdown with MACD, W%R, and DMI. This time with pretty shapes!](https://www.reddit.com/r/wallstreetbets/comments/m9fq7w/gme_potential_pattern_descending_triangle_to_cup/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
