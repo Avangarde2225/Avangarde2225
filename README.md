@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [they're now blaming you guys for "This year's volatility" lmaoooo](https://www.reddit.com/r/wallstreetbets/comments/m9irrx/theyre_now_blaming_you_guys_for_this_years/)
-- [My Previous YOLOs from the past two months (oh ye with little faith! come see and touch my stigmata tendies! See the truth for your own eyes! For God KNOWS and SEES all!!!)](https://www.reddit.com/r/wallstreetbets/comments/m9he02/my_previous_yolos_from_the_past_two_months_oh_ye/)
-- [$GME Options for April 16 (27 Days) are absolutely nuts - Decryption assistance needed looking at OI](https://www.reddit.com/r/wallstreetbets/comments/m9fx0y/gme_options_for_april_16_27_days_are_absolutely/)
-- [Enough with the techno mumbo jumbo A Fundamentalist Analysis of UWMC - Why I'm doubling Down](https://www.reddit.com/r/wallstreetbets/comments/m9frpz/enough_with_the_techno_mumbo_jumbo_a/)
-- [$GME Potential Pattern: Descending Triangle to Cup Handle Formation and Possible Bullish Overturn Breakdown with MACD, W%R, and DMI. This time with pretty shapes!](https://www.reddit.com/r/wallstreetbets/comments/m9fq7w/gme_potential_pattern_descending_triangle_to_cup/)
+- [~$400 to about $45k Thanks r/WSB](https://www.reddit.com/r/wallstreetbets/comments/ma82gw/400_to_about_45k_thanks_rwsb/)
+- [Is this Balls Deep Diamond Hand Enough for Yall](https://www.reddit.com/r/wallstreetbets/comments/ma7t12/is_this_balls_deep_diamond_hand_enough_for_yall/)
+- [Sweet Jumps](https://www.reddit.com/r/wallstreetbets/comments/ma7l16/sweet_jumps/)
+- [Balls deep in PLTR](https://www.reddit.com/r/wallstreetbets/comments/ma6svo/balls_deep_in_pltr/)
+- [Breaking out of the handle like:](https://www.reddit.com/r/wallstreetbets/comments/ma6qas/breaking_out_of_the_handle_like/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
