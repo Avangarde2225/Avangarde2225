@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [~$400 to about $45k Thanks r/WSB](https://www.reddit.com/r/wallstreetbets/comments/ma82gw/400_to_about_45k_thanks_rwsb/)
-- [Is this Balls Deep Diamond Hand Enough for Yall](https://www.reddit.com/r/wallstreetbets/comments/ma7t12/is_this_balls_deep_diamond_hand_enough_for_yall/)
-- [Sweet Jumps](https://www.reddit.com/r/wallstreetbets/comments/ma7l16/sweet_jumps/)
-- [Balls deep in PLTR](https://www.reddit.com/r/wallstreetbets/comments/ma6svo/balls_deep_in_pltr/)
-- [Breaking out of the handle like:](https://www.reddit.com/r/wallstreetbets/comments/ma6qas/breaking_out_of_the_handle_like/)
+- [Live footage of Hedgies talking to an ape](https://www.reddit.com/r/wallstreetbets/comments/mb09jt/live_footage_of_hedgies_talking_to_an_ape/)
+- [Trying to time a TSLA trade](https://www.reddit.com/r/wallstreetbets/comments/mb08an/trying_to_time_a_tsla_trade/)
+- [Good news : Short sellers have been decimated even worse than the 2000 tech bubble. Keep it going.](https://www.reddit.com/r/wallstreetbets/comments/maxymu/good_news_short_sellers_have_been_decimated_even/)
+- [GME: Poker, cannibalism, and why the apes are going to win this hand.](https://www.reddit.com/r/wallstreetbets/comments/maxt80/gme_poker_cannibalism_and_why_the_apes_are_going/)
+- [Shout out to my fellow Great Danes on this sub. 🚀🚀🚀KEEP HOLDING TO VALHALA! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/maxcc1/shout_out_to_my_fellow_great_danes_on_this_sub/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
