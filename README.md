@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Live footage of Hedgies talking to an ape](https://www.reddit.com/r/wallstreetbets/comments/mb09jt/live_footage_of_hedgies_talking_to_an_ape/)
-- [Trying to time a TSLA trade](https://www.reddit.com/r/wallstreetbets/comments/mb08an/trying_to_time_a_tsla_trade/)
-- [Good news : Short sellers have been decimated even worse than the 2000 tech bubble. Keep it going.](https://www.reddit.com/r/wallstreetbets/comments/maxymu/good_news_short_sellers_have_been_decimated_even/)
-- [GME: Poker, cannibalism, and why the apes are going to win this hand.](https://www.reddit.com/r/wallstreetbets/comments/maxt80/gme_poker_cannibalism_and_why_the_apes_are_going/)
-- [Shout out to my fellow Great Danes on this sub. 🚀🚀🚀KEEP HOLDING TO VALHALA! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/maxcc1/shout_out_to_my_fellow_great_danes_on_this_sub/)
+- [Short Squeeze potential confirmed. Taken from GameStop's SEC filing. Page 15](https://www.reddit.com/r/wallstreetbets/comments/mbrcze/short_squeeze_potential_confirmed_taken_from/)
+- [GameStop (GME) plans to expand into PC gaming, monitor, & gaming TV sales](https://www.reddit.com/r/wallstreetbets/comments/mbr9o3/gamestop_gme_plans_to_expand_into_pc_gaming/)
+- [GME: 4 Additional Board Members Expected to leave in June. Possible additional changes to senior executives.](https://www.reddit.com/r/wallstreetbets/comments/mbqxm9/gme_4_additional_board_members_expected_to_leave/)
+- [GME 10~k filing mentions squeeze!](https://www.reddit.com/r/wallstreetbets/comments/mbqroi/gme_10k_filing_mentions_squeeze/)
+- [GME Q4 Earnings Analysis by an Autist.](https://www.reddit.com/r/wallstreetbets/comments/mbq4pe/gme_q4_earnings_analysis_by_an_autist/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
