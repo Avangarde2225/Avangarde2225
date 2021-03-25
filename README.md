@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Short Squeeze potential confirmed. Taken from GameStop's SEC filing. Page 15](https://www.reddit.com/r/wallstreetbets/comments/mbrcze/short_squeeze_potential_confirmed_taken_from/)
-- [GameStop (GME) plans to expand into PC gaming, monitor, & gaming TV sales](https://www.reddit.com/r/wallstreetbets/comments/mbr9o3/gamestop_gme_plans_to_expand_into_pc_gaming/)
-- [GME: 4 Additional Board Members Expected to leave in June. Possible additional changes to senior executives.](https://www.reddit.com/r/wallstreetbets/comments/mbqxm9/gme_4_additional_board_members_expected_to_leave/)
-- [GME 10~k filing mentions squeeze!](https://www.reddit.com/r/wallstreetbets/comments/mbqroi/gme_10k_filing_mentions_squeeze/)
-- [GME Q4 Earnings Analysis by an Autist.](https://www.reddit.com/r/wallstreetbets/comments/mbq4pe/gme_q4_earnings_analysis_by_an_autist/)
+- [They really didn’t want this leaked.. hang on, lads](https://www.reddit.com/r/wallstreetbets/comments/mcjo1c/they_really_didnt_want_this_leaked_hang_on_lads/)
+- [Gentlemen, it has been a privilige holding with you tonight (dont worry, I'm holding)](https://www.reddit.com/r/wallstreetbets/comments/mci9wu/gentlemen_it_has_been_a_privilige_holding_with/)
+- [GME YOLO update — Mar 24 2021](https://www.reddit.com/r/wallstreetbets/comments/mch84i/gme_yolo_update_mar_24_2021/)
+- [unzip your pants bears 🐻 here you go —down $400k for the day but to be honest, i like the stock even more now 💎🤲🏼](https://www.reddit.com/r/wallstreetbets/comments/mcg5cx/unzip_your_pants_bears_here_you_go_down_400k_for/)
+- [Look how they massacred my boy](https://www.reddit.com/r/wallstreetbets/comments/mcfz0n/look_how_they_massacred_my_boy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
