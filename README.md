@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [They really didn’t want this leaked.. hang on, lads](https://www.reddit.com/r/wallstreetbets/comments/mcjo1c/they_really_didnt_want_this_leaked_hang_on_lads/)
-- [Gentlemen, it has been a privilige holding with you tonight (dont worry, I'm holding)](https://www.reddit.com/r/wallstreetbets/comments/mci9wu/gentlemen_it_has_been_a_privilige_holding_with/)
-- [GME YOLO update — Mar 24 2021](https://www.reddit.com/r/wallstreetbets/comments/mch84i/gme_yolo_update_mar_24_2021/)
-- [unzip your pants bears 🐻 here you go —down $400k for the day but to be honest, i like the stock even more now 💎🤲🏼](https://www.reddit.com/r/wallstreetbets/comments/mcg5cx/unzip_your_pants_bears_here_you_go_down_400k_for/)
-- [Look how they massacred my boy](https://www.reddit.com/r/wallstreetbets/comments/mcfz0n/look_how_they_massacred_my_boy/)
+- [When GME recovers 52% in one day](https://www.reddit.com/r/wallstreetbets/comments/mdccn5/when_gme_recovers_52_in_one_day/)
+- [Me on my way home to tell my wife’s boyfriend about the day GME had](https://www.reddit.com/r/wallstreetbets/comments/mdbzmn/me_on_my_way_home_to_tell_my_wifes_boyfriend/)
+- [$GME YOLO - If I'm still in, then I'm still in. BTFD](https://www.reddit.com/r/wallstreetbets/comments/mdahdr/gme_yolo_if_im_still_in_then_im_still_in_btfd/)
+- [Kenny Beats - Gamestonk Anthem feat. AllDad & E-Hess the Best 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/md9uu0/kenny_beats_gamestonk_anthem_feat_alldad_ehess/)
+- [Either I’m going to the poorhouse... or getting me a lambo. Taxes be damned. All in baby! 😎](https://www.reddit.com/r/wallstreetbets/comments/md9ga1/either_im_going_to_the_poorhouse_or_getting_me_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
