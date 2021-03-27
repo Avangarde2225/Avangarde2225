@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When GME recovers 52% in one day](https://www.reddit.com/r/wallstreetbets/comments/mdccn5/when_gme_recovers_52_in_one_day/)
-- [Me on my way home to tell my wife’s boyfriend about the day GME had](https://www.reddit.com/r/wallstreetbets/comments/mdbzmn/me_on_my_way_home_to_tell_my_wifes_boyfriend/)
-- [$GME YOLO - If I'm still in, then I'm still in. BTFD](https://www.reddit.com/r/wallstreetbets/comments/mdahdr/gme_yolo_if_im_still_in_then_im_still_in_btfd/)
-- [Kenny Beats - Gamestonk Anthem feat. AllDad & E-Hess the Best 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/md9uu0/kenny_beats_gamestonk_anthem_feat_alldad_ehess/)
-- [Either I’m going to the poorhouse... or getting me a lambo. Taxes be damned. All in baby! 😎](https://www.reddit.com/r/wallstreetbets/comments/md9ga1/either_im_going_to_the_poorhouse_or_getting_me_a/)
+- [GME - I spent a long time on this pls be kind](https://www.reddit.com/r/wallstreetbets/comments/me09qm/gme_i_spent_a_long_time_on_this_pls_be_kind/)
+- [Citadel After getting another fine](https://www.reddit.com/r/wallstreetbets/comments/me02s5/citadel_after_getting_another_fine/)
+- [Join /r/WallStreetBets' Third Annual Paper Trading Competition!](https://www.reddit.com/r/wallstreetbets/comments/mdz6oc/join_rwallstreetbets_third_annual_paper_trading/)
+- [$10k in now worthless GME puts. Was feeling great mid-week, but you damn dirty apes somehow fought your way back.](https://www.reddit.com/r/wallstreetbets/comments/mdxf1j/10k_in_now_worthless_gme_puts_was_feeling_great/)
+- [Live look inside The Motley Fool board meeting.](https://www.reddit.com/r/wallstreetbets/comments/mdxdfv/live_look_inside_the_motley_fool_board_meeting/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
