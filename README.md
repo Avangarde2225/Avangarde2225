@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GME - I spent a long time on this pls be kind](https://www.reddit.com/r/wallstreetbets/comments/me09qm/gme_i_spent_a_long_time_on_this_pls_be_kind/)
-- [Citadel After getting another fine](https://www.reddit.com/r/wallstreetbets/comments/me02s5/citadel_after_getting_another_fine/)
-- [Join /r/WallStreetBets' Third Annual Paper Trading Competition!](https://www.reddit.com/r/wallstreetbets/comments/mdz6oc/join_rwallstreetbets_third_annual_paper_trading/)
-- [$10k in now worthless GME puts. Was feeling great mid-week, but you damn dirty apes somehow fought your way back.](https://www.reddit.com/r/wallstreetbets/comments/mdxf1j/10k_in_now_worthless_gme_puts_was_feeling_great/)
-- [Live look inside The Motley Fool board meeting.](https://www.reddit.com/r/wallstreetbets/comments/mdxdfv/live_look_inside_the_motley_fool_board_meeting/)
+- [This took forever to make, I hope you guys like it. ALL THE WAY TO THE MOON!](https://www.reddit.com/r/wallstreetbets/comments/mepq05/this_took_forever_to_make_i_hope_you_guys_like_it/)
+- [Best Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/mep225/best_technical_analysis/)
+- [Every time you dip I buy more. I like the stock 🦍 🦧](https://www.reddit.com/r/wallstreetbets/comments/meo55y/every_time_you_dip_i_buy_more_i_like_the_stock/)
+- [The next full moon is March 28. So, will GME head for the Full Moon again this cycle?](https://www.reddit.com/r/wallstreetbets/comments/men59u/the_next_full_moon_is_march_28_so_will_gme_head/)
+- [My favorite "forget Gamestop" story of all time](https://www.reddit.com/r/wallstreetbets/comments/memhmt/my_favorite_forget_gamestop_story_of_all_time/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
