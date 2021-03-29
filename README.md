@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This took forever to make, I hope you guys like it. ALL THE WAY TO THE MOON!](https://www.reddit.com/r/wallstreetbets/comments/mepq05/this_took_forever_to_make_i_hope_you_guys_like_it/)
-- [Best Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/mep225/best_technical_analysis/)
-- [Every time you dip I buy more. I like the stock 🦍 🦧](https://www.reddit.com/r/wallstreetbets/comments/meo55y/every_time_you_dip_i_buy_more_i_like_the_stock/)
-- [The next full moon is March 28. So, will GME head for the Full Moon again this cycle?](https://www.reddit.com/r/wallstreetbets/comments/men59u/the_next_full_moon_is_march_28_so_will_gme_head/)
-- [My favorite "forget Gamestop" story of all time](https://www.reddit.com/r/wallstreetbets/comments/memhmt/my_favorite_forget_gamestop_story_of_all_time/)
+- [Loss porn: The meme stock effect](https://www.reddit.com/r/wallstreetbets/comments/mfdem4/loss_porn_the_meme_stock_effect/)
+- [GME YOLO - 3/26 - Still thinking whether to aim for 999 or 1k shares this week](https://www.reddit.com/r/wallstreetbets/comments/mfd6c8/gme_yolo_326_still_thinking_whether_to_aim_for/)
+- [Suez Newbie DD #2](https://www.reddit.com/r/wallstreetbets/comments/mfcz79/suez_newbie_dd_2/)
+- [$PLTR yolo update, bought a few deep otm monthlies will buy a couple more FDs next week.](https://www.reddit.com/r/wallstreetbets/comments/mfcqgj/pltr_yolo_update_bought_a_few_deep_otm_monthlies/)
+- [[$AMRS] 🚀 🌕 THE ULTIMATE DD 🚀 🌕 DEEP LONG-TERM VALUE WITH MASSIVE NEAR-TERM CATALYSTS](https://www.reddit.com/r/wallstreetbets/comments/mfc86c/amrs_the_ultimate_dd_deep_longterm_value_with/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
