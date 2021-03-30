@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Loss porn: The meme stock effect](https://www.reddit.com/r/wallstreetbets/comments/mfdem4/loss_porn_the_meme_stock_effect/)
-- [GME YOLO - 3/26 - Still thinking whether to aim for 999 or 1k shares this week](https://www.reddit.com/r/wallstreetbets/comments/mfd6c8/gme_yolo_326_still_thinking_whether_to_aim_for/)
-- [Suez Newbie DD #2](https://www.reddit.com/r/wallstreetbets/comments/mfcz79/suez_newbie_dd_2/)
-- [$PLTR yolo update, bought a few deep otm monthlies will buy a couple more FDs next week.](https://www.reddit.com/r/wallstreetbets/comments/mfcqgj/pltr_yolo_update_bought_a_few_deep_otm_monthlies/)
-- [[$AMRS] 🚀 🌕 THE ULTIMATE DD 🚀 🌕 DEEP LONG-TERM VALUE WITH MASSIVE NEAR-TERM CATALYSTS](https://www.reddit.com/r/wallstreetbets/comments/mfc86c/amrs_the_ultimate_dd_deep_longterm_value_with/)
+- [I aint no fucking pussy. i bought the fucking PLTR dip bitches. catch me in a lambo or catch me in a 99 camry](https://www.reddit.com/r/wallstreetbets/comments/mg0di8/i_aint_no_fucking_pussy_i_bought_the_fucking_pltr/)
+- [$BB YOLO because MarketWatch can kiss my gorilla ass for spreading FUD before earnings](https://www.reddit.com/r/wallstreetbets/comments/mfzcar/bb_yolo_because_marketwatch_can_kiss_my_gorilla/)
+- [What Are Your Moves Tomorrow, March 30, 2021](https://www.reddit.com/r/wallstreetbets/comments/mfy3xf/what_are_your_moves_tomorrow_march_30_2021/)
+- [National Security risks of hedge fund over-leveraging](https://www.reddit.com/r/wallstreetbets/comments/mfxfuo/national_security_risks_of_hedge_fund/)
+- [Morgan Stanley has no more RKT blocks to sell LOL](https://www.reddit.com/r/wallstreetbets/comments/mfw9bs/morgan_stanley_has_no_more_rkt_blocks_to_sell_lol/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
