@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I aint no fucking pussy. i bought the fucking PLTR dip bitches. catch me in a lambo or catch me in a 99 camry](https://www.reddit.com/r/wallstreetbets/comments/mg0di8/i_aint_no_fucking_pussy_i_bought_the_fucking_pltr/)
-- [$BB YOLO because MarketWatch can kiss my gorilla ass for spreading FUD before earnings](https://www.reddit.com/r/wallstreetbets/comments/mfzcar/bb_yolo_because_marketwatch_can_kiss_my_gorilla/)
-- [What Are Your Moves Tomorrow, March 30, 2021](https://www.reddit.com/r/wallstreetbets/comments/mfy3xf/what_are_your_moves_tomorrow_march_30_2021/)
-- [National Security risks of hedge fund over-leveraging](https://www.reddit.com/r/wallstreetbets/comments/mfxfuo/national_security_risks_of_hedge_fund/)
-- [Morgan Stanley has no more RKT blocks to sell LOL](https://www.reddit.com/r/wallstreetbets/comments/mfw9bs/morgan_stanley_has_no_more_rkt_blocks_to_sell_lol/)
+- [Dear Captain Cohen, please consider seating u/DeepFuckingValue to your board as a SPECIAL APEVISOR. Signed, yours truly with - $132K YOLO](https://www.reddit.com/r/wallstreetbets/comments/mgsu0o/dear_captain_cohen_please_consider_seating/)
+- [Live look at me trying to bring down my cost basis for BB](https://www.reddit.com/r/wallstreetbets/comments/mgsoyk/live_look_at_me_trying_to_bring_down_my_cost/)
+- [Cramer says he’s down for an AMA on Reddit](https://www.reddit.com/r/wallstreetbets/comments/mgscv8/cramer_says_hes_down_for_an_ama_on_reddit/)
+- [Future interns of Brokers and Financial Planners](https://www.reddit.com/r/wallstreetbets/comments/mgqsoc/future_interns_of_brokers_and_financial_planners/)
+- [No BB Loss porn yet? I'll go first. Probably gonna be down even more before the market opens.](https://www.reddit.com/r/wallstreetbets/comments/mgqlzu/no_bb_loss_porn_yet_ill_go_first_probably_gonna/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
