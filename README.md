@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dear Captain Cohen, please consider seating u/DeepFuckingValue to your board as a SPECIAL APEVISOR. Signed, yours truly with - $132K YOLO](https://www.reddit.com/r/wallstreetbets/comments/mgsu0o/dear_captain_cohen_please_consider_seating/)
-- [Live look at me trying to bring down my cost basis for BB](https://www.reddit.com/r/wallstreetbets/comments/mgsoyk/live_look_at_me_trying_to_bring_down_my_cost/)
-- [Cramer says he’s down for an AMA on Reddit](https://www.reddit.com/r/wallstreetbets/comments/mgscv8/cramer_says_hes_down_for_an_ama_on_reddit/)
-- [Future interns of Brokers and Financial Planners](https://www.reddit.com/r/wallstreetbets/comments/mgqsoc/future_interns_of_brokers_and_financial_planners/)
-- [No BB Loss porn yet? I'll go first. Probably gonna be down even more before the market opens.](https://www.reddit.com/r/wallstreetbets/comments/mgqlzu/no_bb_loss_porn_yet_ill_go_first_probably_gonna/)
+- [True from what I have seen](https://www.reddit.com/r/wallstreetbets/comments/mix28v/true_from_what_i_have_seen/)
+- [That 4:01 pm feeling.](https://www.reddit.com/r/wallstreetbets/comments/miw8if/that_401_pm_feeling/)
+- [150k on TSLA $700c 4/9](https://www.reddit.com/r/wallstreetbets/comments/miup38/150k_on_tsla_700c_49/)
+- [Palantir wins new contract with the U.S Department of Energy potentially worth 89 million dollars.](https://www.reddit.com/r/wallstreetbets/comments/mis7fx/palantir_wins_new_contract_with_the_us_department/)
+- [lowering cost basis $$BB - bargain prices](https://www.reddit.com/r/wallstreetbets/comments/mirj53/lowering_cost_basis_bb_bargain_prices/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
