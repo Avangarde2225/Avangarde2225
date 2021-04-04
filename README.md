@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [True from what I have seen](https://www.reddit.com/r/wallstreetbets/comments/mix28v/true_from_what_i_have_seen/)
-- [That 4:01 pm feeling.](https://www.reddit.com/r/wallstreetbets/comments/miw8if/that_401_pm_feeling/)
-- [150k on TSLA $700c 4/9](https://www.reddit.com/r/wallstreetbets/comments/miup38/150k_on_tsla_700c_49/)
-- [Palantir wins new contract with the U.S Department of Energy potentially worth 89 million dollars.](https://www.reddit.com/r/wallstreetbets/comments/mis7fx/palantir_wins_new_contract_with_the_us_department/)
-- [lowering cost basis $$BB - bargain prices](https://www.reddit.com/r/wallstreetbets/comments/mirj53/lowering_cost_basis_bb_bargain_prices/)
+- [SNDL, and why the options chain matters.](https://www.reddit.com/r/wallstreetbets/comments/mjjj14/sndl_and_why_the_options_chain_matters/)
+- [GME DD on April 2020 similarities to today](https://www.reddit.com/r/wallstreetbets/comments/mjf7mg/gme_dd_on_april_2020_similarities_to_today/)
+- [Understanding The Infrastructure Bill: The Federal Goals, Employment Solutions, and AutoDesk's Role in the Post-COVID Economy.](https://www.reddit.com/r/wallstreetbets/comments/mjcpfw/understanding_the_infrastructure_bill_the_federal/)
+- [With fake yolos being easy to make, what is a way to actually prove someones position on reddit considering screenshots can be compromised?](https://www.reddit.com/r/wallstreetbets/comments/mjbg4j/with_fake_yolos_being_easy_to_make_what_is_a_way/)
+- [[GME] Will we see another 100% increase next week?](https://www.reddit.com/r/wallstreetbets/comments/mj5rgl/gme_will_we_see_another_100_increase_next_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
