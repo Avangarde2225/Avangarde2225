@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SNDL, and why the options chain matters.](https://www.reddit.com/r/wallstreetbets/comments/mjjj14/sndl_and_why_the_options_chain_matters/)
-- [GME DD on April 2020 similarities to today](https://www.reddit.com/r/wallstreetbets/comments/mjf7mg/gme_dd_on_april_2020_similarities_to_today/)
-- [Understanding The Infrastructure Bill: The Federal Goals, Employment Solutions, and AutoDesk's Role in the Post-COVID Economy.](https://www.reddit.com/r/wallstreetbets/comments/mjcpfw/understanding_the_infrastructure_bill_the_federal/)
-- [With fake yolos being easy to make, what is a way to actually prove someones position on reddit considering screenshots can be compromised?](https://www.reddit.com/r/wallstreetbets/comments/mjbg4j/with_fake_yolos_being_easy_to_make_what_is_a_way/)
-- [[GME] Will we see another 100% increase next week?](https://www.reddit.com/r/wallstreetbets/comments/mj5rgl/gme_will_we_see_another_100_increase_next_week/)
+- [In honor of 3 months on WSB I present to you me turning $40k in high interest debt to $425k in less than 2 weeks.](https://www.reddit.com/r/wallstreetbets/comments/mk8i5b/in_honor_of_3_months_on_wsb_i_present_to_you_me/)
+- [WSB decades from now, reacting to news headlines](https://www.reddit.com/r/wallstreetbets/comments/mk728g/wsb_decades_from_now_reacting_to_news_headlines/)
+- [WSB Leveraged Smart-Beta Still Going Bonkers (Up +320K, 97% CAGR)](https://www.reddit.com/r/wallstreetbets/comments/mk71rt/wsb_leveraged_smartbeta_still_going_bonkers_up/)
+- [10 TSLA $750C 6/18 (from the grave)](https://www.reddit.com/r/wallstreetbets/comments/mk706x/10_tsla_750c_618_from_the_grave/)
+- [210 to 25k in the last week of Jan on gme](https://www.reddit.com/r/wallstreetbets/comments/mk6z3w/210_to_25k_in_the_last_week_of_jan_on_gme/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
