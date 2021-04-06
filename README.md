@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [In honor of 3 months on WSB I present to you me turning $40k in high interest debt to $425k in less than 2 weeks.](https://www.reddit.com/r/wallstreetbets/comments/mk8i5b/in_honor_of_3_months_on_wsb_i_present_to_you_me/)
-- [WSB decades from now, reacting to news headlines](https://www.reddit.com/r/wallstreetbets/comments/mk728g/wsb_decades_from_now_reacting_to_news_headlines/)
-- [WSB Leveraged Smart-Beta Still Going Bonkers (Up +320K, 97% CAGR)](https://www.reddit.com/r/wallstreetbets/comments/mk71rt/wsb_leveraged_smartbeta_still_going_bonkers_up/)
-- [10 TSLA $750C 6/18 (from the grave)](https://www.reddit.com/r/wallstreetbets/comments/mk706x/10_tsla_750c_618_from_the_grave/)
-- [210 to 25k in the last week of Jan on gme](https://www.reddit.com/r/wallstreetbets/comments/mk6z3w/210_to_25k_in_the_last_week_of_jan_on_gme/)
+- [Apes win again! Let's Go!](https://www.reddit.com/r/wallstreetbets/comments/mkwiqp/apes_win_again_lets_go/)
+- [GME Weeklies YOLO 😅 Guys please give me some confirmation bias - feeling pretty 🌈🌈](https://www.reddit.com/r/wallstreetbets/comments/mkv95z/gme_weeklies_yolo_guys_please_give_me_some/)
+- [26k-> 99k in a day . Mainly thanks to $SPY yolo 😀](https://www.reddit.com/r/wallstreetbets/comments/mktvom/26k_99k_in_a_day_mainly_thanks_to_spy_yolo/)
+- [Bears like they say history will repeat itself. You r fuk.](https://www.reddit.com/r/wallstreetbets/comments/mktof2/bears_like_they_say_history_will_repeat_itself/)
+- [What Are Your Moves Tomorrow, April 06, 2021](https://www.reddit.com/r/wallstreetbets/comments/mktg0s/what_are_your_moves_tomorrow_april_06_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
