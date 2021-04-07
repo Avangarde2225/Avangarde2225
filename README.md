@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apes win again! Let's Go!](https://www.reddit.com/r/wallstreetbets/comments/mkwiqp/apes_win_again_lets_go/)
-- [GME Weeklies YOLO 😅 Guys please give me some confirmation bias - feeling pretty 🌈🌈](https://www.reddit.com/r/wallstreetbets/comments/mkv95z/gme_weeklies_yolo_guys_please_give_me_some/)
-- [26k-> 99k in a day . Mainly thanks to $SPY yolo 😀](https://www.reddit.com/r/wallstreetbets/comments/mktvom/26k_99k_in_a_day_mainly_thanks_to_spy_yolo/)
-- [Bears like they say history will repeat itself. You r fuk.](https://www.reddit.com/r/wallstreetbets/comments/mktof2/bears_like_they_say_history_will_repeat_itself/)
-- [What Are Your Moves Tomorrow, April 06, 2021](https://www.reddit.com/r/wallstreetbets/comments/mktg0s/what_are_your_moves_tomorrow_april_06_2021/)
+- [GME YOLO Continued](https://www.reddit.com/r/wallstreetbets/comments/mloobn/gme_yolo_continued/)
+- [Yolo’d my life savings into ASO @ $31.24 ($125,000)](https://www.reddit.com/r/wallstreetbets/comments/mlo9na/yolod_my_life_savings_into_aso_3124_125000/)
+- [$SPY - The Coked Out Bull Who Outran Inflation - S&P 500 Trade Thesis](https://www.reddit.com/r/wallstreetbets/comments/mlm0b0/spy_the_coked_out_bull_who_outran_inflation_sp/)
+- [If the SEC ever decides to do their job](https://www.reddit.com/r/wallstreetbets/comments/mllpnx/if_the_sec_ever_decides_to_do_their_job/)
+- [The AIR FORCE NUCLEAR WEAPON CENTER apparently proposed a sole-source contract to Palantir Technologies.](https://www.reddit.com/r/wallstreetbets/comments/mlligg/the_air_force_nuclear_weapon_center_apparently/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
