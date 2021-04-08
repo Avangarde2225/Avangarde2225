@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GME YOLO Continued](https://www.reddit.com/r/wallstreetbets/comments/mloobn/gme_yolo_continued/)
-- [Yolo’d my life savings into ASO @ $31.24 ($125,000)](https://www.reddit.com/r/wallstreetbets/comments/mlo9na/yolod_my_life_savings_into_aso_3124_125000/)
-- [$SPY - The Coked Out Bull Who Outran Inflation - S&P 500 Trade Thesis](https://www.reddit.com/r/wallstreetbets/comments/mlm0b0/spy_the_coked_out_bull_who_outran_inflation_sp/)
-- [If the SEC ever decides to do their job](https://www.reddit.com/r/wallstreetbets/comments/mllpnx/if_the_sec_ever_decides_to_do_their_job/)
-- [The AIR FORCE NUCLEAR WEAPON CENTER apparently proposed a sole-source contract to Palantir Technologies.](https://www.reddit.com/r/wallstreetbets/comments/mlligg/the_air_force_nuclear_weapon_center_apparently/)
+- [PLTR all in! First post, wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/mmayfj/pltr_all_in_first_post_wish_me_luck/)
+- [RKT $450k YOLO. 925 golden tickets for the $23.89 1/21/22 train. All aboard! Lambo or bus pass!](https://www.reddit.com/r/wallstreetbets/comments/mmauxk/rkt_450k_yolo_925_golden_tickets_for_the_2389/)
+- [What Are Your Moves Tomorrow, April 08, 2021](https://www.reddit.com/r/wallstreetbets/comments/mmakl8/what_are_your_moves_tomorrow_april_08_2021/)
+- [Hitch a $RIDE to the Moon: Technical Analysis of Lordstown Motors](https://www.reddit.com/r/wallstreetbets/comments/mma558/hitch_a_ride_to_the_moon_technical_analysis_of/)
+- [100k in July 800c GME. April 16 800c is GREEN while GME is red today. Last time I noticed calls up, spot down dynamic was Feb 19th. Do with that info what you will](https://www.reddit.com/r/wallstreetbets/comments/mma221/100k_in_july_800c_gme_april_16_800c_is_green/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
