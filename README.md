@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PLTR all in! First post, wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/mmayfj/pltr_all_in_first_post_wish_me_luck/)
-- [RKT $450k YOLO. 925 golden tickets for the $23.89 1/21/22 train. All aboard! Lambo or bus pass!](https://www.reddit.com/r/wallstreetbets/comments/mmauxk/rkt_450k_yolo_925_golden_tickets_for_the_2389/)
-- [What Are Your Moves Tomorrow, April 08, 2021](https://www.reddit.com/r/wallstreetbets/comments/mmakl8/what_are_your_moves_tomorrow_april_08_2021/)
-- [Hitch a $RIDE to the Moon: Technical Analysis of Lordstown Motors](https://www.reddit.com/r/wallstreetbets/comments/mma558/hitch_a_ride_to_the_moon_technical_analysis_of/)
-- [100k in July 800c GME. April 16 800c is GREEN while GME is red today. Last time I noticed calls up, spot down dynamic was Feb 19th. Do with that info what you will](https://www.reddit.com/r/wallstreetbets/comments/mma221/100k_in_july_800c_gme_april_16_800c_is_green/)
+- [YOLO’ed everything into GME like a true retard.](https://www.reddit.com/r/wallstreetbets/comments/mn3le5/yoloed_everything_into_gme_like_a_true_retard/)
+- [GME + ASO $40k Retard YOLO. Wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/mn20fx/gme_aso_40k_retard_yolo_wish_me_luck/)
+- [My final average up, last 100k I had in cash is in! 💎 🤲🏻](https://www.reddit.com/r/wallstreetbets/comments/mn208f/my_final_average_up_last_100k_i_had_in_cash_is_in/)
+- [GME I need u to quit bullshitting and start your engine. I feel like we are riding a spaceship built by spaceX lls](https://www.reddit.com/r/wallstreetbets/comments/mn1bsx/gme_i_need_u_to_quit_bullshitting_and_start_your/)
+- [How to vote in GME shareholders meeting For Fidelity](https://www.reddit.com/r/wallstreetbets/comments/mn0stp/how_to_vote_in_gme_shareholders_meeting_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
