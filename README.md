@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [YOLO’ed everything into GME like a true retard.](https://www.reddit.com/r/wallstreetbets/comments/mn3le5/yoloed_everything_into_gme_like_a_true_retard/)
-- [GME + ASO $40k Retard YOLO. Wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/mn20fx/gme_aso_40k_retard_yolo_wish_me_luck/)
-- [My final average up, last 100k I had in cash is in! 💎 🤲🏻](https://www.reddit.com/r/wallstreetbets/comments/mn208f/my_final_average_up_last_100k_i_had_in_cash_is_in/)
-- [GME I need u to quit bullshitting and start your engine. I feel like we are riding a spaceship built by spaceX lls](https://www.reddit.com/r/wallstreetbets/comments/mn1bsx/gme_i_need_u_to_quit_bullshitting_and_start_your/)
-- [How to vote in GME shareholders meeting For Fidelity](https://www.reddit.com/r/wallstreetbets/comments/mn0stp/how_to_vote_in_gme_shareholders_meeting_for/)
+- [Lost $4 Billion in 3 Months. WSB'er at heart.](https://www.reddit.com/r/wallstreetbets/comments/mntuwe/lost_4_billion_in_3_months_wsber_at_heart/)
+- [All my earning for the past few months are tied up in GME! I'm not going anywhere without you boys! 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/mnsvji/all_my_earning_for_the_past_few_months_are_tied/)
+- [Used $10k of my Jan GME profits to open a “fun money” account at the end of Feb. Ended up with no fun and no money 😐](https://www.reddit.com/r/wallstreetbets/comments/mnre07/used_10k_of_my_jan_gme_profits_to_open_a_fun/)
+- [Hawaiian Shirt Megathread for April 9th 2021](https://www.reddit.com/r/wallstreetbets/comments/mnqqr5/hawaiian_shirt_megathread_for_april_9th_2021/)
+- [$FUBO YOLO Update - $130k Profit - House Paid Off](https://www.reddit.com/r/wallstreetbets/comments/mnqou0/fubo_yolo_update_130k_profit_house_paid_off/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
