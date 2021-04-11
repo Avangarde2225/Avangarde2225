@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lost $4 Billion in 3 Months. WSB'er at heart.](https://www.reddit.com/r/wallstreetbets/comments/mntuwe/lost_4_billion_in_3_months_wsber_at_heart/)
-- [All my earning for the past few months are tied up in GME! I'm not going anywhere without you boys! 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/mnsvji/all_my_earning_for_the_past_few_months_are_tied/)
-- [Used $10k of my Jan GME profits to open a “fun money” account at the end of Feb. Ended up with no fun and no money 😐](https://www.reddit.com/r/wallstreetbets/comments/mnre07/used_10k_of_my_jan_gme_profits_to_open_a_fun/)
-- [Hawaiian Shirt Megathread for April 9th 2021](https://www.reddit.com/r/wallstreetbets/comments/mnqqr5/hawaiian_shirt_megathread_for_april_9th_2021/)
-- [$FUBO YOLO Update - $130k Profit - House Paid Off](https://www.reddit.com/r/wallstreetbets/comments/mnqou0/fubo_yolo_update_130k_profit_house_paid_off/)
+- [I just keep buying more GME. I have no idea why. Love you silly apes!](https://www.reddit.com/r/wallstreetbets/comments/mof1f5/i_just_keep_buying_more_gme_i_have_no_idea_why/)
+- [EDIT - everything tastes better crispr](https://www.reddit.com/r/wallstreetbets/comments/mocpd2/edit_everything_tastes_better_crispr/)
+- [Will DFV exercise his contract for 50,000 GME shares next Friday? And how heavy a catalyst will it be?](https://www.reddit.com/r/wallstreetbets/comments/mock33/will_dfv_exercise_his_contract_for_50000_gme/)
+- [106K in PLTR 5/21 25c YOLO!](https://www.reddit.com/r/wallstreetbets/comments/moc5zo/106k_in_pltr_521_25c_yolo/)
+- [Shortage on vegetables/fruits](https://www.reddit.com/r/wallstreetbets/comments/moak5a/shortage_on_vegetablesfruits/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
