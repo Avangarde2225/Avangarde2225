@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I just keep buying more GME. I have no idea why. Love you silly apes!](https://www.reddit.com/r/wallstreetbets/comments/mof1f5/i_just_keep_buying_more_gme_i_have_no_idea_why/)
-- [EDIT - everything tastes better crispr](https://www.reddit.com/r/wallstreetbets/comments/mocpd2/edit_everything_tastes_better_crispr/)
-- [Will DFV exercise his contract for 50,000 GME shares next Friday? And how heavy a catalyst will it be?](https://www.reddit.com/r/wallstreetbets/comments/mock33/will_dfv_exercise_his_contract_for_50000_gme/)
-- [106K in PLTR 5/21 25c YOLO!](https://www.reddit.com/r/wallstreetbets/comments/moc5zo/106k_in_pltr_521_25c_yolo/)
-- [Shortage on vegetables/fruits](https://www.reddit.com/r/wallstreetbets/comments/moak5a/shortage_on_vegetablesfruits/)
+- [Thanks for all the upvotes last night. I don't even know anymore. YOLO $GMED?](https://www.reddit.com/r/wallstreetbets/comments/mp1mjk/thanks_for_all_the_upvotes_last_night_i_dont_even/)
+- [Remember to DIVERSIFY your stock portfolio. And then proceed to make losses on every single stock you touch.](https://www.reddit.com/r/wallstreetbets/comments/mp1k5t/remember_to_diversify_your_stock_portfolio_and/)
+- [Pot stocks this week](https://www.reddit.com/r/wallstreetbets/comments/mp0odg/pot_stocks_this_week/)
+- [Please go vote ! DFV asking for our opinion](https://www.reddit.com/r/wallstreetbets/comments/mp0nzr/please_go_vote_dfv_asking_for_our_opinion/)
+- [I heard y’all like juicy options round these parts](https://www.reddit.com/r/wallstreetbets/comments/mozz91/i_heard_yall_like_juicy_options_round_these_parts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
