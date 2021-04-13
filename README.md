@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks for all the upvotes last night. I don't even know anymore. YOLO $GMED?](https://www.reddit.com/r/wallstreetbets/comments/mp1mjk/thanks_for_all_the_upvotes_last_night_i_dont_even/)
-- [Remember to DIVERSIFY your stock portfolio. And then proceed to make losses on every single stock you touch.](https://www.reddit.com/r/wallstreetbets/comments/mp1k5t/remember_to_diversify_your_stock_portfolio_and/)
-- [Pot stocks this week](https://www.reddit.com/r/wallstreetbets/comments/mp0odg/pot_stocks_this_week/)
-- [Please go vote ! DFV asking for our opinion](https://www.reddit.com/r/wallstreetbets/comments/mp0nzr/please_go_vote_dfv_asking_for_our_opinion/)
-- [I heard y’all like juicy options round these parts](https://www.reddit.com/r/wallstreetbets/comments/mozz91/i_heard_yall_like_juicy_options_round_these_parts/)
+- [LISTEN UP, WE EITHER GO TO 5K A SHARE OR 0. IM HOLDING NOT MATTER WHAT](https://www.reddit.com/r/wallstreetbets/comments/mppnei/listen_up_we_either_go_to_5k_a_share_or_0_im/)
+- [Haha. I feel like I should be a little bit more upset. If you can't handle the dips you don't deserve to be at the top](https://www.reddit.com/r/wallstreetbets/comments/mpnrvk/haha_i_feel_like_i_should_be_a_little_bit_more/)
+- [I ain’t ever selling](https://www.reddit.com/r/wallstreetbets/comments/mpn0td/i_aint_ever_selling/)
+- [What Are Your Moves Tomorrow, April 13, 2021](https://www.reddit.com/r/wallstreetbets/comments/mplzze/what_are_your_moves_tomorrow_april_13_2021/)
+- [Steve Cohen’s Manhattan Penthouse Sells After 74% Price Cut](https://www.reddit.com/r/wallstreetbets/comments/mplxi9/steve_cohens_manhattan_penthouse_sells_after_74/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
