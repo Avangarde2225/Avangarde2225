@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [LISTEN UP, WE EITHER GO TO 5K A SHARE OR 0. IM HOLDING NOT MATTER WHAT](https://www.reddit.com/r/wallstreetbets/comments/mppnei/listen_up_we_either_go_to_5k_a_share_or_0_im/)
-- [Haha. I feel like I should be a little bit more upset. If you can't handle the dips you don't deserve to be at the top](https://www.reddit.com/r/wallstreetbets/comments/mpnrvk/haha_i_feel_like_i_should_be_a_little_bit_more/)
-- [I ain’t ever selling](https://www.reddit.com/r/wallstreetbets/comments/mpn0td/i_aint_ever_selling/)
-- [What Are Your Moves Tomorrow, April 13, 2021](https://www.reddit.com/r/wallstreetbets/comments/mplzze/what_are_your_moves_tomorrow_april_13_2021/)
-- [Steve Cohen’s Manhattan Penthouse Sells After 74% Price Cut](https://www.reddit.com/r/wallstreetbets/comments/mplxi9/steve_cohens_manhattan_penthouse_sells_after_74/)
+- [AFTER LOSING MY JOB. I STARTED A YEAR AGO WITH A 5K CASH ADVANCE ON CREDIT CARD.](https://www.reddit.com/r/wallstreetbets/comments/mqdwry/after_losing_my_job_i_started_a_year_ago_with_a/)
+- [There's something about WSB](https://www.reddit.com/r/wallstreetbets/comments/mqdvww/theres_something_about_wsb/)
+- [GME - It's all coming together](https://www.reddit.com/r/wallstreetbets/comments/mqd3o5/gme_its_all_coming_together/)
+- [GME YOLO, down $1M since the last update and I couldn't care less](https://www.reddit.com/r/wallstreetbets/comments/mqc5ag/gme_yolo_down_1m_since_the_last_update_and_i/)
+- [GME Current Technical Analysis Standpoint](https://www.reddit.com/r/wallstreetbets/comments/mqbftn/gme_current_technical_analysis_standpoint/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
