@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AFTER LOSING MY JOB. I STARTED A YEAR AGO WITH A 5K CASH ADVANCE ON CREDIT CARD.](https://www.reddit.com/r/wallstreetbets/comments/mqdwry/after_losing_my_job_i_started_a_year_ago_with_a/)
-- [There's something about WSB](https://www.reddit.com/r/wallstreetbets/comments/mqdvww/theres_something_about_wsb/)
-- [GME - It's all coming together](https://www.reddit.com/r/wallstreetbets/comments/mqd3o5/gme_its_all_coming_together/)
-- [GME YOLO, down $1M since the last update and I couldn't care less](https://www.reddit.com/r/wallstreetbets/comments/mqc5ag/gme_yolo_down_1m_since_the_last_update_and_i/)
-- [GME Current Technical Analysis Standpoint](https://www.reddit.com/r/wallstreetbets/comments/mqbftn/gme_current_technical_analysis_standpoint/)
+- ['COIN' gifted $25,000 in stocks to all 1700 employees ahead of IPO](https://www.reddit.com/r/wallstreetbets/comments/mr18ar/coin_gifted_25000_in_stocks_to_all_1700_employees/)
+- [GameStop forfeits over 587,000 shares from CEO for not meeting targets](https://www.reddit.com/r/wallstreetbets/comments/mr0shp/gamestop_forfeits_over_587000_shares_from_ceo_for/)
+- [Goldman says copper is the new oil, raises price forecast to $11,000 per metric ton](https://www.reddit.com/r/wallstreetbets/comments/mr0awe/goldman_says_copper_is_the_new_oil_raises_price/)
+- [$38K GME YOLO - 100% exposure by Friday](https://www.reddit.com/r/wallstreetbets/comments/mqytoa/38k_gme_yolo_100_exposure_by_friday/)
+- [I aped all my money into COIN, can I join your retard club?](https://www.reddit.com/r/wallstreetbets/comments/mqys20/i_aped_all_my_money_into_coin_can_i_join_your/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
