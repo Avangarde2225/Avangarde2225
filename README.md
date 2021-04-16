@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- ['COIN' gifted $25,000 in stocks to all 1700 employees ahead of IPO](https://www.reddit.com/r/wallstreetbets/comments/mr18ar/coin_gifted_25000_in_stocks_to_all_1700_employees/)
-- [GameStop forfeits over 587,000 shares from CEO for not meeting targets](https://www.reddit.com/r/wallstreetbets/comments/mr0shp/gamestop_forfeits_over_587000_shares_from_ceo_for/)
-- [Goldman says copper is the new oil, raises price forecast to $11,000 per metric ton](https://www.reddit.com/r/wallstreetbets/comments/mr0awe/goldman_says_copper_is_the_new_oil_raises_price/)
-- [$38K GME YOLO - 100% exposure by Friday](https://www.reddit.com/r/wallstreetbets/comments/mqytoa/38k_gme_yolo_100_exposure_by_friday/)
-- [I aped all my money into COIN, can I join your retard club?](https://www.reddit.com/r/wallstreetbets/comments/mqys20/i_aped_all_my_money_into_coin_can_i_join_your/)
+- [I Will Own GameStop Update - APR 15, 2021 (inb4 whatever news comes out about a particular 500-call exercise) | 10% Increase from Last Week, Again](https://www.reddit.com/r/wallstreetbets/comments/mrqu7t/i_will_own_gamestop_update_apr_15_2021_inb4/)
+- [There once was a time where SPY ruled the lands, that day is upon us once again.](https://www.reddit.com/r/wallstreetbets/comments/mrqcgh/there_once_was_a_time_where_spy_ruled_the_lands/)
+- [Massachusetts regulators seek to revoke Robinhood's license; brokerage sues.](https://www.reddit.com/r/wallstreetbets/comments/mrpjht/massachusetts_regulators_seek_to_revoke/)
+- [75K yolo in GME average of 80.... on this account XD](https://www.reddit.com/r/wallstreetbets/comments/mro79e/75k_yolo_in_gme_average_of_80_on_this_account_xd/)
+- [Subtitles are hard but Hedge Funds like to fuck investors harder.](https://www.reddit.com/r/wallstreetbets/comments/mrnr5z/subtitles_are_hard_but_hedge_funds_like_to_fuck/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
