@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I Will Own GameStop Update - APR 15, 2021 (inb4 whatever news comes out about a particular 500-call exercise) | 10% Increase from Last Week, Again](https://www.reddit.com/r/wallstreetbets/comments/mrqu7t/i_will_own_gamestop_update_apr_15_2021_inb4/)
-- [There once was a time where SPY ruled the lands, that day is upon us once again.](https://www.reddit.com/r/wallstreetbets/comments/mrqcgh/there_once_was_a_time_where_spy_ruled_the_lands/)
-- [Massachusetts regulators seek to revoke Robinhood's license; brokerage sues.](https://www.reddit.com/r/wallstreetbets/comments/mrpjht/massachusetts_regulators_seek_to_revoke/)
-- [75K yolo in GME average of 80.... on this account XD](https://www.reddit.com/r/wallstreetbets/comments/mro79e/75k_yolo_in_gme_average_of_80_on_this_account_xd/)
-- [Subtitles are hard but Hedge Funds like to fuck investors harder.](https://www.reddit.com/r/wallstreetbets/comments/mrnr5z/subtitles_are_hard_but_hedge_funds_like_to_fuck/)
+- [Cheers everyone!](https://www.reddit.com/r/wallstreetbets/comments/msfw2x/cheers_everyone/)
+- [If he's still in, I'm not fucking leaving 💎](https://www.reddit.com/r/wallstreetbets/comments/msevli/if_hes_still_in_im_not_fucking_leaving/)
+- [I'M ALL IN](https://www.reddit.com/r/wallstreetbets/comments/mseqc1/im_all_in/)
+- [First time poster - $39K GME YOLO. Feels so awesome to be a part of the apes!! Been following since Dec!](https://www.reddit.com/r/wallstreetbets/comments/msd8ys/first_time_poster_39k_gme_yolo_feels_so_awesome/)
+- [Happy DFV day y’all](https://www.reddit.com/r/wallstreetbets/comments/mscyzv/happy_dfv_day_yall/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
