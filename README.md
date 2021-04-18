@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cheers everyone!](https://www.reddit.com/r/wallstreetbets/comments/msfw2x/cheers_everyone/)
-- [If he's still in, I'm not fucking leaving 💎](https://www.reddit.com/r/wallstreetbets/comments/msevli/if_hes_still_in_im_not_fucking_leaving/)
-- [I'M ALL IN](https://www.reddit.com/r/wallstreetbets/comments/mseqc1/im_all_in/)
-- [First time poster - $39K GME YOLO. Feels so awesome to be a part of the apes!! Been following since Dec!](https://www.reddit.com/r/wallstreetbets/comments/msd8ys/first_time_poster_39k_gme_yolo_feels_so_awesome/)
-- [Happy DFV day y’all](https://www.reddit.com/r/wallstreetbets/comments/mscyzv/happy_dfv_day_yall/)
+- [$AMC Positions 4/17/21 and Bikini Photo 🥳 Apes Let’s GO!! 🍸🍹🥂💎🙌](https://www.reddit.com/r/wallstreetbets/comments/mt13a0/amc_positions_41721_and_bikini_photo_apes_lets_go/)
+- [SPY 6/19 $420 LEAPs - bought for $0.69. 1100% Gain](https://www.reddit.com/r/wallstreetbets/comments/mt0oyc/spy_619_420_leaps_bought_for_069_1100_gain/)
+- [WSB Leveraged Smart-Beta Update (Now Up +$350K, +108%)](https://www.reddit.com/r/wallstreetbets/comments/mt0ec3/wsb_leveraged_smartbeta_update_now_up_350k_108/)
+- [Welcome to Wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/mt0ac4/welcome_to_wallstreetbets/)
+- [$AMC 🎥 🎥🎥 HOT GIRL 👯👯👯 SUMMER AROUND THE CORNER! BOX OFFICE GRO$$E$ 💰💰💰 HEATING UP 🔥🔥🔥](https://www.reddit.com/r/wallstreetbets/comments/mszpwl/amc_hot_girl_summer_around_the_corner_box_office/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
