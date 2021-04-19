@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$AMC Positions 4/17/21 and Bikini Photo 🥳 Apes Let’s GO!! 🍸🍹🥂💎🙌](https://www.reddit.com/r/wallstreetbets/comments/mt13a0/amc_positions_41721_and_bikini_photo_apes_lets_go/)
-- [SPY 6/19 $420 LEAPs - bought for $0.69. 1100% Gain](https://www.reddit.com/r/wallstreetbets/comments/mt0oyc/spy_619_420_leaps_bought_for_069_1100_gain/)
-- [WSB Leveraged Smart-Beta Update (Now Up +$350K, +108%)](https://www.reddit.com/r/wallstreetbets/comments/mt0ec3/wsb_leveraged_smartbeta_update_now_up_350k_108/)
-- [Welcome to Wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/mt0ac4/welcome_to_wallstreetbets/)
-- [$AMC 🎥 🎥🎥 HOT GIRL 👯👯👯 SUMMER AROUND THE CORNER! BOX OFFICE GRO$$E$ 💰💰💰 HEATING UP 🔥🔥🔥](https://www.reddit.com/r/wallstreetbets/comments/mszpwl/amc_hot_girl_summer_around_the_corner_box_office/)
+- [DFV added more, so I bought "some". GME set for 🚀mode.](https://www.reddit.com/r/wallstreetbets/comments/mtn4bc/dfv_added_more_so_i_bought_some_gme_set_for_mode/)
+- [$TSP (TuSimple, autonomous truck tech that IPOd this week) is a scam -- DD inside](https://www.reddit.com/r/wallstreetbets/comments/mtmvnz/tsp_tusimple_autonomous_truck_tech_that_ipod_this/)
+- [Dry-Drink Portfolio Guide to Leveraged Smart-Beta](https://www.reddit.com/r/wallstreetbets/comments/mtmfkk/drydrink_portfolio_guide_to_leveraged_smartbeta/)
+- [Where we're going, we don't need roads.](https://www.reddit.com/r/wallstreetbets/comments/mtlkh9/where_were_going_we_dont_need_roads/)
+- [CLOV DD - No Bullshit](https://www.reddit.com/r/wallstreetbets/comments/mtkyw2/clov_dd_no_bullshit/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
