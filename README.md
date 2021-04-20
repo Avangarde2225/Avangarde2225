@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DFV added more, so I bought "some". GME set for 🚀mode.](https://www.reddit.com/r/wallstreetbets/comments/mtn4bc/dfv_added_more_so_i_bought_some_gme_set_for_mode/)
-- [$TSP (TuSimple, autonomous truck tech that IPOd this week) is a scam -- DD inside](https://www.reddit.com/r/wallstreetbets/comments/mtmvnz/tsp_tusimple_autonomous_truck_tech_that_ipod_this/)
-- [Dry-Drink Portfolio Guide to Leveraged Smart-Beta](https://www.reddit.com/r/wallstreetbets/comments/mtmfkk/drydrink_portfolio_guide_to_leveraged_smartbeta/)
-- [Where we're going, we don't need roads.](https://www.reddit.com/r/wallstreetbets/comments/mtlkh9/where_were_going_we_dont_need_roads/)
-- [CLOV DD - No Bullshit](https://www.reddit.com/r/wallstreetbets/comments/mtkyw2/clov_dd_no_bullshit/)
+- [They sure did switch up quick](https://www.reddit.com/r/wallstreetbets/comments/mue6st/they_sure_did_switch_up_quick/)
+- [In a few weeks I’m either sleeping in the doghouse or crashing in the penthouse... either way I’ll see you apes in Valhalla](https://www.reddit.com/r/wallstreetbets/comments/mud4tj/in_a_few_weeks_im_either_sleeping_in_the_doghouse/)
+- [🍀CLOV🍀Position Day2 ~ I juggled this morning & added 2000 $12.50 calls. If we can keep inching up daily, this little🍀 Patch is gonna grow into field full of🍀 just a matter of time, especially if some institutions give Clove the kick in the ass it needs to breakout above $11. Best wishes 🍀](https://www.reddit.com/r/wallstreetbets/comments/mubopi/clovposition_day2_i_juggled_this_morning_added/)
+- [CLOV daily volume is 2 times free float and 10 times the average daily volume](https://www.reddit.com/r/wallstreetbets/comments/muboo0/clov_daily_volume_is_2_times_free_float_and_10/)
+- [40,000$ into $CLOV](https://www.reddit.com/r/wallstreetbets/comments/mubohf/40000_into_clov/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
