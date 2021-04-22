@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [YOLO - CLOV - 20k shares for $178,000 this morning. Conviction - do you have it?](https://www.reddit.com/r/wallstreetbets/comments/mv3g94/yolo_clov_20k_shares_for_178000_this_morning/)
-- [CLOV YOLO, I am a VERIFIED RETARD or a RESPECTED GENIOUS next month.](https://www.reddit.com/r/wallstreetbets/comments/mv32hs/clov_yolo_i_am_a_verified_retard_or_a_respected/)
-- [Alaska's GameStop stake soared over 700% last quarter - and its Tesla bet has gone from $0 to $85 million in 18 months](https://www.reddit.com/r/wallstreetbets/comments/mv2ny3/alaskas_gamestop_stake_soared_over_700_last/)
-- [I’m gonna get this one way or another](https://www.reddit.com/r/wallstreetbets/comments/mv0py2/im_gonna_get_this_one_way_or_another/)
-- [Can't wait for my next Stimulus Check! Dumping it straight into GME again!](https://www.reddit.com/r/wallstreetbets/comments/mv06n3/cant_wait_for_my_next_stimulus_check_dumping_it/)
+- [143k Yolo on MVIS *EOD UPDATE* You Apes are coming for me!!! Down 39%](https://www.reddit.com/r/wallstreetbets/comments/mvt2qj/143k_yolo_on_mvis_eod_update_you_apes_are_coming/)
+- [MVIS Borrow fee jumps to 22.1% with only 16 shares available. YES 16 Shares available to short](https://www.reddit.com/r/wallstreetbets/comments/mvstgw/mvis_borrow_fee_jumps_to_221_with_only_16_shares/)
+- [10 million strong](https://www.reddit.com/r/wallstreetbets/comments/mvslj4/10_million_strong/)
+- [MVIS 172k YOLO Update: can afford tendies](https://www.reddit.com/r/wallstreetbets/comments/mvrjno/mvis_172k_yolo_update_can_afford_tendies/)
+- [MVIS YOLO Update #2. A buyout short squeeze is the play.](https://www.reddit.com/r/wallstreetbets/comments/mvq996/mvis_yolo_update_2_a_buyout_short_squeeze_is_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
