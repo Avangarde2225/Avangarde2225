@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [MVIS LIFE SAVING YOLO! TARGET PRICE $30!!!](https://www.reddit.com/r/wallstreetbets/comments/mwhvxj/mvis_life_saving_yolo_target_price_30/)
-- [From $160K to $3.2M: Current YOLOs on GENI, VIAC, CC](https://www.reddit.com/r/wallstreetbets/comments/mwhfsm/from_160k_to_32m_current_yolos_on_geni_viac_cc/)
-- [Added these babies today for the gamma squeeze... they thought I would run scared, but the shorts got caught up in a bear trap 😎](https://www.reddit.com/r/wallstreetbets/comments/mwgysl/added_these_babies_today_for_the_gamma_squeeze/)
-- [MVIS YOLO Update: Bought 2k more shares, in 268k, down 11k. Taking a trip to Uranus with MVIS and PENN.](https://www.reddit.com/r/wallstreetbets/comments/mwgrbz/mvis_yolo_update_bought_2k_more_shares_in_268k/)
-- [MicroVision Q1 Results Moved Up to April 29th 2021](https://www.reddit.com/r/wallstreetbets/comments/mwg3ul/microvision_q1_results_moved_up_to_april_29th_2021/)
+- [YOLO MVIS! Using Margarine! Soo Good! I Can't Believe It's Not Butter!](https://www.reddit.com/r/wallstreetbets/comments/mx83fs/yolo_mvis_using_margarine_soo_good_i_cant_believe/)
+- [143k Yolo on MVIS. *Update* The light is getting so big I can almost make you guys out. Down 11%](https://www.reddit.com/r/wallstreetbets/comments/mx7hji/143k_yolo_on_mvis_update_the_light_is_getting_so/)
+- [🚀🚀🚀 MVIS YOLO 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/mx6twv/mvis_yolo/)
+- [Update! One account wasn't enough, so now I'm gambling my IRA too! $MVIS lasers to the moon!](https://www.reddit.com/r/wallstreetbets/comments/mx5iuy/update_one_account_wasnt_enough_so_now_im/)
+- [SNDL... sometimes it do be like that 🧙‍♂️](https://www.reddit.com/r/wallstreetbets/comments/mx5fi3/sndl_sometimes_it_do_be_like_that/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
