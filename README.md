@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [YOLO MVIS! Using Margarine! Soo Good! I Can't Believe It's Not Butter!](https://www.reddit.com/r/wallstreetbets/comments/mx83fs/yolo_mvis_using_margarine_soo_good_i_cant_believe/)
-- [143k Yolo on MVIS. *Update* The light is getting so big I can almost make you guys out. Down 11%](https://www.reddit.com/r/wallstreetbets/comments/mx7hji/143k_yolo_on_mvis_update_the_light_is_getting_so/)
-- [🚀🚀🚀 MVIS YOLO 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/mx6twv/mvis_yolo/)
-- [Update! One account wasn't enough, so now I'm gambling my IRA too! $MVIS lasers to the moon!](https://www.reddit.com/r/wallstreetbets/comments/mx5iuy/update_one_account_wasnt_enough_so_now_im/)
-- [SNDL... sometimes it do be like that 🧙‍♂️](https://www.reddit.com/r/wallstreetbets/comments/mx5fi3/sndl_sometimes_it_do_be_like_that/)
+- [Interesting runner at Bathurst 🇦🇺 today - I’ll let you know how it goes](https://www.reddit.com/r/wallstreetbets/comments/mxwosr/interesting_runner_at_bathurst_today_ill_let_you/)
+- [I bought 1 share of Blockbuster🌚](https://www.reddit.com/r/wallstreetbets/comments/mxwkcc/i_bought_1_share_of_blockbuster/)
+- [$9K UWMC yolo update 2, the bags are getting a little lighter! A rebound 10 days before earnings report is a positive sign. Not a short squeeze play but a value play with potential 40% short term upside.](https://www.reddit.com/r/wallstreetbets/comments/mxw0oj/9k_uwmc_yolo_update_2_the_bags_are_getting_a/)
+- [Alright apes, let’s start seeing these MNMD yolos](https://www.reddit.com/r/wallstreetbets/comments/mxui6q/alright_apes_lets_start_seeing_these_mnmd_yolos/)
+- [FOR EVERYONE using eToro](https://www.reddit.com/r/wallstreetbets/comments/mxtuqv/for_everyone_using_etoro/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
