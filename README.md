@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Interesting runner at Bathurst 🇦🇺 today - I’ll let you know how it goes](https://www.reddit.com/r/wallstreetbets/comments/mxwosr/interesting_runner_at_bathurst_today_ill_let_you/)
-- [I bought 1 share of Blockbuster🌚](https://www.reddit.com/r/wallstreetbets/comments/mxwkcc/i_bought_1_share_of_blockbuster/)
-- [$9K UWMC yolo update 2, the bags are getting a little lighter! A rebound 10 days before earnings report is a positive sign. Not a short squeeze play but a value play with potential 40% short term upside.](https://www.reddit.com/r/wallstreetbets/comments/mxw0oj/9k_uwmc_yolo_update_2_the_bags_are_getting_a/)
-- [Alright apes, let’s start seeing these MNMD yolos](https://www.reddit.com/r/wallstreetbets/comments/mxui6q/alright_apes_lets_start_seeing_these_mnmd_yolos/)
-- [FOR EVERYONE using eToro](https://www.reddit.com/r/wallstreetbets/comments/mxtuqv/for_everyone_using_etoro/)
+- [MicroVision is the Future!](https://www.reddit.com/r/wallstreetbets/comments/mykdxp/microvision_is_the_future/)
+- [Why is there no A M C discussion in here](https://www.reddit.com/r/wallstreetbets/comments/myjvog/why_is_there_no_a_m_c_discussion_in_here/)
+- [$PATH - I, For One, Welcome Our Robot Overlords](https://www.reddit.com/r/wallstreetbets/comments/myj6wa/path_i_for_one_welcome_our_robot_overlords/)
+- [EX-SHITADEL EMPLOYEE ON SHADY DARKPOOL ACTIVITIES](https://www.reddit.com/r/wallstreetbets/comments/myivrt/exshitadel_employee_on_shady_darkpool_activities/)
+- [Diversification is for pussies](https://www.reddit.com/r/wallstreetbets/comments/myirlv/diversification_is_for_pussies/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
