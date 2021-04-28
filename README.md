@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We're posting MVIS gains? We'll here's mine.](https://www.reddit.com/r/wallstreetbets/comments/mzawxw/were_posting_mvis_gains_well_heres_mine/)
-- [We're all on this road trip to the moon together!](https://www.reddit.com/r/wallstreetbets/comments/mzaavz/were_all_on_this_road_trip_to_the_moon_together/)
-- [My first call ever & mvis got me addicted](https://www.reddit.com/r/wallstreetbets/comments/mz9lg0/my_first_call_ever_mvis_got_me_addicted/)
-- [Market sentiment and Technicals are indicating that $GME and $AMC are about to experience a third Bull run.](https://www.reddit.com/r/wallstreetbets/comments/mz8zwj/market_sentiment_and_technicals_are_indicating/)
-- [The golden number](https://www.reddit.com/r/wallstreetbets/comments/mz7ghi/the_golden_number/)
+- [AMC Theater Chain Yanks Plan to Issue 500 Million New Shares](https://www.reddit.com/r/wallstreetbets/comments/n01tha/amc_theater_chain_yanks_plan_to_issue_500_million/)
+- [SEC filing from today, AMC has taken a 500 million share dilution off the table.](https://www.reddit.com/r/wallstreetbets/comments/mzzm6c/sec_filing_from_today_amc_has_taken_a_500_million/)
+- [Never bet against the doctor](https://www.reddit.com/r/wallstreetbets/comments/mzy4qn/never_bet_against_the_doctor/)
+- [AMD INCREASES 2021 Y/Y GUIDANCE. GOES FROM 37% to 50%](https://www.reddit.com/r/wallstreetbets/comments/mzxuzk/amd_increases_2021_yy_guidance_goes_from_37_to_50/)
+- [MNMD Starter Due Diligence](https://www.reddit.com/r/wallstreetbets/comments/mzxtz5/mnmd_starter_due_diligence/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
