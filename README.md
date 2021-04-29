@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC Theater Chain Yanks Plan to Issue 500 Million New Shares](https://www.reddit.com/r/wallstreetbets/comments/n01tha/amc_theater_chain_yanks_plan_to_issue_500_million/)
-- [SEC filing from today, AMC has taken a 500 million share dilution off the table.](https://www.reddit.com/r/wallstreetbets/comments/mzzm6c/sec_filing_from_today_amc_has_taken_a_500_million/)
-- [Never bet against the doctor](https://www.reddit.com/r/wallstreetbets/comments/mzy4qn/never_bet_against_the_doctor/)
-- [AMD INCREASES 2021 Y/Y GUIDANCE. GOES FROM 37% to 50%](https://www.reddit.com/r/wallstreetbets/comments/mzxuzk/amd_increases_2021_yy_guidance_goes_from_37_to_50/)
-- [MNMD Starter Due Diligence](https://www.reddit.com/r/wallstreetbets/comments/mzxtz5/mnmd_starter_due_diligence/)
+- [I heard you like GME July 800 calls? $366K ought to do it...](https://www.reddit.com/r/wallstreetbets/comments/n0ql77/i_heard_you_like_gme_july_800_calls_366k_ought_to/)
+- [CLOV Stock Busts Through Resistance BULLISH .](https://www.reddit.com/r/wallstreetbets/comments/n0pom1/clov_stock_busts_through_resistance_bullish/)
+- [Double down on GME 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/n0ow1w/double_down_on_gme/)
+- [Maxed out my line of Credit + and my life savings into $MNMD ​🌝 or ​👉​👌](https://www.reddit.com/r/wallstreetbets/comments/n0okrr/maxed_out_my_line_of_credit_and_my_life_savings/)
+- [Timed the peak perfectly. No one can beat me](https://www.reddit.com/r/wallstreetbets/comments/n0odlt/timed_the_peak_perfectly_no_one_can_beat_me/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
