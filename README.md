@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I heard you like GME July 800 calls? $366K ought to do it...](https://www.reddit.com/r/wallstreetbets/comments/n0ql77/i_heard_you_like_gme_july_800_calls_366k_ought_to/)
-- [CLOV Stock Busts Through Resistance BULLISH .](https://www.reddit.com/r/wallstreetbets/comments/n0pom1/clov_stock_busts_through_resistance_bullish/)
-- [Double down on GME 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/n0ow1w/double_down_on_gme/)
-- [Maxed out my line of Credit + and my life savings into $MNMD ​🌝 or ​👉​👌](https://www.reddit.com/r/wallstreetbets/comments/n0okrr/maxed_out_my_line_of_credit_and_my_life_savings/)
-- [Timed the peak perfectly. No one can beat me](https://www.reddit.com/r/wallstreetbets/comments/n0odlt/timed_the_peak_perfectly_no_one_can_beat_me/)
+- [Yolo'd 230k into $MNMD while on Shrooms.](https://www.reddit.com/r/wallstreetbets/comments/n1hr56/yolod_230k_into_mnmd_while_on_shrooms/)
+- [Sometimes timing the market works. Made $50k on $MVIS in 6 days (shares only)](https://www.reddit.com/r/wallstreetbets/comments/n1hbde/sometimes_timing_the_market_works_made_50k_on/)
+- [CLOV....Apes together stronger🦍 May21 only calls ... I smell tendies soon🙌](https://www.reddit.com/r/wallstreetbets/comments/n1golq/clovapes_together_stronger_may21_only_calls_i/)
+- [Palantir CEO Alex Karp earned cash and stock worth $1.1 billion last year](https://www.reddit.com/r/wallstreetbets/comments/n1gjn8/palantir_ceo_alex_karp_earned_cash_and_stock/)
+- [Was attempting to scalp. My stop limit buy order executed, but my limit sell a single cent higher didn't. I literally bought at the precise peak of the day. Guess I'm long CLOV now.](https://www.reddit.com/r/wallstreetbets/comments/n1g5bk/was_attempting_to_scalp_my_stop_limit_buy_order/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
