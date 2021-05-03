@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This dude NrdRage is a paid promoter that is running you guys through the woodshed to promote certain positions. The dude even forgot to change account and posted his "DD".](https://www.reddit.com/r/wallstreetbets/comments/n2ucxg/this_dude_nrdrage_is_a_paid_promoter_that_is/)
-- [CLOV volume price analysis](https://www.reddit.com/r/wallstreetbets/comments/n2u41n/clov_volume_price_analysis/)
-- [It’s simple. As for me, I like the stock💎🤲🦍](https://www.reddit.com/r/wallstreetbets/comments/n2rw1m/its_simple_as_for_me_i_like_the_stock/)
-- [Correlation between Short Sale Interest and Aurora Cannabis ACB Stock Price🥦🔥🚀🌝](https://www.reddit.com/r/wallstreetbets/comments/n2qphw/correlation_between_short_sale_interest_and/)
-- [SPCE still has legs, but faces challengers](https://www.reddit.com/r/wallstreetbets/comments/n2qauj/spce_still_has_legs_but_faces_challengers/)
+- [Historical Post Earnings Moves MEGA Compilation (Week 3) - $AMC, $ROKU, $SQ, $ETSY, $Z, $PTON, $RKT, $CRSR, $MT, and More](https://www.reddit.com/r/wallstreetbets/comments/n3iznz/historical_post_earnings_moves_mega_compilation/)
+- [Tilray/Aphria merge complete Tilray to the moon 🚀🚀🚀 All in 🚨](https://www.reddit.com/r/wallstreetbets/comments/n3idpo/tilrayaphria_merge_complete_tilray_to_the_moon/)
+- [Clover Health - A mini DD on $CLOV](https://www.reddit.com/r/wallstreetbets/comments/n3h2gh/clover_health_a_mini_dd_on_clov/)
+- [The 'bull market' since corona is all dollar devaluation aka 'the melt up'- enjoy it while it lasts](https://www.reddit.com/r/wallstreetbets/comments/n3h0h4/the_bull_market_since_corona_is_all_dollar/)
+- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/n3gh1d/wsb_discussion_this_weekend/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
