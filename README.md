@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Historical Post Earnings Moves MEGA Compilation (Week 3) - $AMC, $ROKU, $SQ, $ETSY, $Z, $PTON, $RKT, $CRSR, $MT, and More](https://www.reddit.com/r/wallstreetbets/comments/n3iznz/historical_post_earnings_moves_mega_compilation/)
-- [Tilray/Aphria merge complete Tilray to the moon 🚀🚀🚀 All in 🚨](https://www.reddit.com/r/wallstreetbets/comments/n3idpo/tilrayaphria_merge_complete_tilray_to_the_moon/)
-- [Clover Health - A mini DD on $CLOV](https://www.reddit.com/r/wallstreetbets/comments/n3h2gh/clover_health_a_mini_dd_on_clov/)
-- [The 'bull market' since corona is all dollar devaluation aka 'the melt up'- enjoy it while it lasts](https://www.reddit.com/r/wallstreetbets/comments/n3h0h4/the_bull_market_since_corona_is_all_dollar/)
-- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/n3gh1d/wsb_discussion_this_weekend/)
+- [Rkt earnings on the 5th 🚀 this will explode. This stock is beyond undervalued with the company making billions. Jump on 🙌🏻💎🚀](https://www.reddit.com/r/wallstreetbets/comments/n48txl/rkt_earnings_on_the_5th_this_will_explode_this/)
+- [The WSB Telegram scammer just scammed folks out of over $1mill and counting smh](https://www.reddit.com/r/wallstreetbets/comments/n47pin/the_wsb_telegram_scammer_just_scammed_folks_out/)
+- [I bought NOK in October before the election, bought the dips, and on April 29, 2021, bought the dip for that Day.](https://www.reddit.com/r/wallstreetbets/comments/n47fd5/i_bought_nok_in_october_before_the_election/)
+- [Buyer of highs seller of lows](https://www.reddit.com/r/wallstreetbets/comments/n478w2/buyer_of_highs_seller_of_lows/)
+- [Precipio jump 172% in regular trading and 50% more in after hour](https://www.reddit.com/r/wallstreetbets/comments/n46xos/precipio_jump_172_in_regular_trading_and_50_more/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
