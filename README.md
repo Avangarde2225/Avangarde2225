@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Rkt earnings on the 5th 🚀 this will explode. This stock is beyond undervalued with the company making billions. Jump on 🙌🏻💎🚀](https://www.reddit.com/r/wallstreetbets/comments/n48txl/rkt_earnings_on_the_5th_this_will_explode_this/)
-- [The WSB Telegram scammer just scammed folks out of over $1mill and counting smh](https://www.reddit.com/r/wallstreetbets/comments/n47pin/the_wsb_telegram_scammer_just_scammed_folks_out/)
-- [I bought NOK in October before the election, bought the dips, and on April 29, 2021, bought the dip for that Day.](https://www.reddit.com/r/wallstreetbets/comments/n47fd5/i_bought_nok_in_october_before_the_election/)
-- [Buyer of highs seller of lows](https://www.reddit.com/r/wallstreetbets/comments/n478w2/buyer_of_highs_seller_of_lows/)
-- [Precipio jump 172% in regular trading and 50% more in after hour](https://www.reddit.com/r/wallstreetbets/comments/n46xos/precipio_jump_172_in_regular_trading_and_50_more/)
+- [RKT YOLLOOOO ALL INNNNNN WHOS WITH ME](https://www.reddit.com/r/wallstreetbets/comments/n50xtp/rkt_yolloooo_all_innnnnn_whos_with_me/)
+- [$AMZN $300k put gain using $2M in less than 30 seconds](https://www.reddit.com/r/wallstreetbets/comments/n4zi6f/amzn_300k_put_gain_using_2m_in_less_than_30/)
+- [Saddle up 🚀 🚀 🚀 RKT](https://www.reddit.com/r/wallstreetbets/comments/n4ywd6/saddle_up_rkt/)
+- [$130k to $0. YOLO $20k on Credit (at the top), down 70%. Am I accepted yet?](https://www.reddit.com/r/wallstreetbets/comments/n4y65o/130k_to_0_yolo_20k_on_credit_at_the_top_down_70/)
+- [$1M RKT YOLO Earnings Play...LFG! 🚀🚀🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/n4y50y/1m_rkt_yolo_earnings_playlfg/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
