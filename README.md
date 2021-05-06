@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RKT YOLLOOOO ALL INNNNNN WHOS WITH ME](https://www.reddit.com/r/wallstreetbets/comments/n50xtp/rkt_yolloooo_all_innnnnn_whos_with_me/)
-- [$AMZN $300k put gain using $2M in less than 30 seconds](https://www.reddit.com/r/wallstreetbets/comments/n4zi6f/amzn_300k_put_gain_using_2m_in_less_than_30/)
-- [Saddle up 🚀 🚀 🚀 RKT](https://www.reddit.com/r/wallstreetbets/comments/n4ywd6/saddle_up_rkt/)
-- [$130k to $0. YOLO $20k on Credit (at the top), down 70%. Am I accepted yet?](https://www.reddit.com/r/wallstreetbets/comments/n4y65o/130k_to_0_yolo_20k_on_credit_at_the_top_down_70/)
-- [$1M RKT YOLO Earnings Play...LFG! 🚀🚀🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/n4y50y/1m_rkt_yolo_earnings_playlfg/)
+- [RKT FOMO gone wrong](https://www.reddit.com/r/wallstreetbets/comments/n5t40y/rkt_fomo_gone_wrong/)
+- [WSB Mod Team DD](https://www.reddit.com/r/wallstreetbets/comments/n5s76z/wsb_mod_team_dd/)
+- [My giant RKT mistake.](https://www.reddit.com/r/wallstreetbets/comments/n5rw9o/my_giant_rkt_mistake/)
+- [I guess I'll kick off the $RKT loss porn. 6969 down so far 🤡🤡🤡. Good thing I saved cash for that bus pass](https://www.reddit.com/r/wallstreetbets/comments/n5rbcg/i_guess_ill_kick_off_the_rkt_loss_porn_6969_down/)
+- [Magically GeME lost 1 million of today's volume](https://www.reddit.com/r/wallstreetbets/comments/n5r5jm/magically_geme_lost_1_million_of_todays_volume/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
