@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RKT FOMO gone wrong](https://www.reddit.com/r/wallstreetbets/comments/n5t40y/rkt_fomo_gone_wrong/)
-- [WSB Mod Team DD](https://www.reddit.com/r/wallstreetbets/comments/n5s76z/wsb_mod_team_dd/)
-- [My giant RKT mistake.](https://www.reddit.com/r/wallstreetbets/comments/n5rw9o/my_giant_rkt_mistake/)
-- [I guess I'll kick off the $RKT loss porn. 6969 down so far 🤡🤡🤡. Good thing I saved cash for that bus pass](https://www.reddit.com/r/wallstreetbets/comments/n5rbcg/i_guess_ill_kick_off_the_rkt_loss_porn_6969_down/)
-- [Magically GeME lost 1 million of today's volume](https://www.reddit.com/r/wallstreetbets/comments/n5r5jm/magically_geme_lost_1_million_of_todays_volume/)
+- [AMC's CEO would Donate $50,000 to match AMC's contribution to Dian Fossey Gorilla Fund](https://www.reddit.com/r/wallstreetbets/comments/n6jg7e/amcs_ceo_would_donate_50000_to_match_amcs/)
+- [Yolo my friend $GME HOLD HOLD HOLD](https://www.reddit.com/r/wallstreetbets/comments/n6irbo/yolo_my_friend_gme_hold_hold_hold/)
+- [Did Vlad do a perjury?](https://www.reddit.com/r/wallstreetbets/comments/n6i28o/did_vlad_do_a_perjury/)
+- [2021 expectations ( all not financial advice all my humble imho )](https://www.reddit.com/r/wallstreetbets/comments/n6i0cs/2021_expectations_all_not_financial_advice_all_my/)
+- [Advice to new investors, from a new investor](https://www.reddit.com/r/wallstreetbets/comments/n6gwqk/advice_to_new_investors_from_a_new_investor/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
