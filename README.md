@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC's CEO would Donate $50,000 to match AMC's contribution to Dian Fossey Gorilla Fund](https://www.reddit.com/r/wallstreetbets/comments/n6jg7e/amcs_ceo_would_donate_50000_to_match_amcs/)
-- [Yolo my friend $GME HOLD HOLD HOLD](https://www.reddit.com/r/wallstreetbets/comments/n6irbo/yolo_my_friend_gme_hold_hold_hold/)
-- [Did Vlad do a perjury?](https://www.reddit.com/r/wallstreetbets/comments/n6i28o/did_vlad_do_a_perjury/)
-- [2021 expectations ( all not financial advice all my humble imho )](https://www.reddit.com/r/wallstreetbets/comments/n6i0cs/2021_expectations_all_not_financial_advice_all_my/)
-- [Advice to new investors, from a new investor](https://www.reddit.com/r/wallstreetbets/comments/n6gwqk/advice_to_new_investors_from_a_new_investor/)
+- [Lessons learned the hard way…. Advice from someone who lost it all on RKT calls.](https://www.reddit.com/r/wallstreetbets/comments/n7b3py/lessons_learned_the_hard_way_advice_from_someone/)
+- [UWMC - Don't be fooled my friends](https://www.reddit.com/r/wallstreetbets/comments/n7ahq5/uwmc_dont_be_fooled_my_friends/)
+- [GameStop: Endgame](https://www.reddit.com/r/wallstreetbets/comments/n7a0it/gamestop_endgame/)
+- [GME & AMC v Poor Ken 🥲](https://www.reddit.com/r/wallstreetbets/comments/n79b4r/gme_amc_v_poor_ken/)
+- [The story of the paperhand](https://www.reddit.com/r/wallstreetbets/comments/n797tr/the_story_of_the_paperhand/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
