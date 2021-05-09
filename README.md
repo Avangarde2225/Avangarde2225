@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lessons learned the hard way…. Advice from someone who lost it all on RKT calls.](https://www.reddit.com/r/wallstreetbets/comments/n7b3py/lessons_learned_the_hard_way_advice_from_someone/)
-- [UWMC - Don't be fooled my friends](https://www.reddit.com/r/wallstreetbets/comments/n7ahq5/uwmc_dont_be_fooled_my_friends/)
-- [GameStop: Endgame](https://www.reddit.com/r/wallstreetbets/comments/n7a0it/gamestop_endgame/)
-- [GME & AMC v Poor Ken 🥲](https://www.reddit.com/r/wallstreetbets/comments/n79b4r/gme_amc_v_poor_ken/)
-- [The story of the paperhand](https://www.reddit.com/r/wallstreetbets/comments/n797tr/the_story_of_the_paperhand/)
+- [Ransomware Cyber attack on Colonial Piplines forced them to shut down all their gas pipelines that feeds 50% of the East Coast's gas supply. Prolonged outage could cause prices to spike. Oil and gas sector in US could be affected.](https://www.reddit.com/r/wallstreetbets/comments/n80cj1/ransomware_cyber_attack_on_colonial_piplines/)
+- [Can my CLOV loss porn turn what was my Lambo fund into a SpaceX mars trip? BR and BG to the rescue!](https://www.reddit.com/r/wallstreetbets/comments/n7zu9f/can_my_clov_loss_porn_turn_what_was_my_lambo_fund/)
+- [Hedge fund manager Kamensky goes full retard, gets caught in a massive fraud involving Nieman, gets whopping 6 month sentence and a $55,000 fine for perpetuating billion dollar scam](https://www.reddit.com/r/wallstreetbets/comments/n7zl96/hedge_fund_manager_kamensky_goes_full_retard_gets/)
+- [$855 —> $9,000 in 3DTE FD’s](https://www.reddit.com/r/wallstreetbets/comments/n7zkg7/855_9000_in_3dte_fds/)
+- [SEC chronicles: Shitadel](https://www.reddit.com/r/wallstreetbets/comments/n7zizh/sec_chronicles_shitadel/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
