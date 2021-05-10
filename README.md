@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ransomware Cyber attack on Colonial Piplines forced them to shut down all their gas pipelines that feeds 50% of the East Coast's gas supply. Prolonged outage could cause prices to spike. Oil and gas sector in US could be affected.](https://www.reddit.com/r/wallstreetbets/comments/n80cj1/ransomware_cyber_attack_on_colonial_piplines/)
-- [Can my CLOV loss porn turn what was my Lambo fund into a SpaceX mars trip? BR and BG to the rescue!](https://www.reddit.com/r/wallstreetbets/comments/n7zu9f/can_my_clov_loss_porn_turn_what_was_my_lambo_fund/)
-- [Hedge fund manager Kamensky goes full retard, gets caught in a massive fraud involving Nieman, gets whopping 6 month sentence and a $55,000 fine for perpetuating billion dollar scam](https://www.reddit.com/r/wallstreetbets/comments/n7zl96/hedge_fund_manager_kamensky_goes_full_retard_gets/)
-- [$855 —> $9,000 in 3DTE FD’s](https://www.reddit.com/r/wallstreetbets/comments/n7zkg7/855_9000_in_3dte_fds/)
-- [SEC chronicles: Shitadel](https://www.reddit.com/r/wallstreetbets/comments/n7zizh/sec_chronicles_shitadel/)
+- [180K position in $INO (Inovio) upcoming positive catalyst next 9 days. Multibagger potential.](https://www.reddit.com/r/wallstreetbets/comments/n8qpji/180k_position_in_ino_inovio_upcoming_positive/)
+- [Chance the Rapper’s deal with AMC previews the future of movie theaters](https://www.reddit.com/r/wallstreetbets/comments/n8qn9r/chance_the_rappers_deal_with_amc_previews_the/)
+- [Becareful what you read.](https://www.reddit.com/r/wallstreetbets/comments/n8qfl7/becareful_what_you_read/)
+- [Historical Post Earnings Moves MEGA Compilation (Week 4) - $PLTR, $BABA, $XPEV, $DIS, $SPCE, $FUBO, $QS, $SNDL, and More](https://www.reddit.com/r/wallstreetbets/comments/n8pjtf/historical_post_earnings_moves_mega_compilation/)
+- [I'm crying, I don't have much money, but I put everything in Baba, I really believe it will go to $300 after earnings](https://www.reddit.com/r/wallstreetbets/comments/n8odg5/im_crying_i_dont_have_much_money_but_i_put/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
