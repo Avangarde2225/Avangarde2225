@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [180K position in $INO (Inovio) upcoming positive catalyst next 9 days. Multibagger potential.](https://www.reddit.com/r/wallstreetbets/comments/n8qpji/180k_position_in_ino_inovio_upcoming_positive/)
-- [Chance the Rapper’s deal with AMC previews the future of movie theaters](https://www.reddit.com/r/wallstreetbets/comments/n8qn9r/chance_the_rappers_deal_with_amc_previews_the/)
-- [Becareful what you read.](https://www.reddit.com/r/wallstreetbets/comments/n8qfl7/becareful_what_you_read/)
-- [Historical Post Earnings Moves MEGA Compilation (Week 4) - $PLTR, $BABA, $XPEV, $DIS, $SPCE, $FUBO, $QS, $SNDL, and More](https://www.reddit.com/r/wallstreetbets/comments/n8pjtf/historical_post_earnings_moves_mega_compilation/)
-- [I'm crying, I don't have much money, but I put everything in Baba, I really believe it will go to $300 after earnings](https://www.reddit.com/r/wallstreetbets/comments/n8odg5/im_crying_i_dont_have_much_money_but_i_put/)
+- [Beauty is in the eye of the beholder.](https://www.reddit.com/r/wallstreetbets/comments/n9hz0i/beauty_is_in_the_eye_of_the_beholder/)
+- [New to investing... is this good?](https://www.reddit.com/r/wallstreetbets/comments/n9hx7b/new_to_investing_is_this_good/)
+- [$UWMC- Earnings Update, Good news, Shitty news, and why I'm still Bullish](https://www.reddit.com/r/wallstreetbets/comments/n9hsma/uwmc_earnings_update_good_news_shitty_news_and/)
+- [Are these the reason massive price upside action ( in last 1 month almost 15% ) from the lowest low. Time to think again ?](https://www.reddit.com/r/wallstreetbets/comments/n9gwjt/are_these_the_reason_massive_price_upside_action/)
+- [When you’re desperately trying to sell your sinking SPY position, but RH won’t let you due to “insufficient overnight funds.”](https://www.reddit.com/r/wallstreetbets/comments/n9flbc/when_youre_desperately_trying_to_sell_your/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
