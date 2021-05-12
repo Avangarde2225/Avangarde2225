@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Beauty is in the eye of the beholder.](https://www.reddit.com/r/wallstreetbets/comments/n9hz0i/beauty_is_in_the_eye_of_the_beholder/)
-- [New to investing... is this good?](https://www.reddit.com/r/wallstreetbets/comments/n9hx7b/new_to_investing_is_this_good/)
-- [$UWMC- Earnings Update, Good news, Shitty news, and why I'm still Bullish](https://www.reddit.com/r/wallstreetbets/comments/n9hsma/uwmc_earnings_update_good_news_shitty_news_and/)
-- [Are these the reason massive price upside action ( in last 1 month almost 15% ) from the lowest low. Time to think again ?](https://www.reddit.com/r/wallstreetbets/comments/n9gwjt/are_these_the_reason_massive_price_upside_action/)
-- [When you’re desperately trying to sell your sinking SPY position, but RH won’t let you due to “insufficient overnight funds.”](https://www.reddit.com/r/wallstreetbets/comments/n9flbc/when_youre_desperately_trying_to_sell_your/)
+- [Me scrolling through this sub and seeing people lose thousands of dollars on $PLTR options](https://www.reddit.com/r/wallstreetbets/comments/na9rzn/me_scrolling_through_this_sub_and_seeing_people/)
+- [Life Savings + Margin + Growth Stocks = Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/na9i03/life_savings_margin_growth_stocks_loss_porn/)
+- [$CLOV Gamma Squeeze DD](https://www.reddit.com/r/wallstreetbets/comments/na7d4e/clov_gamma_squeeze_dd/)
+- [What Are Your Moves Tomorrow, May 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/na65ti/what_are_your_moves_tomorrow_may_12_2021/)
+- [SCARED MONEY DONT MAKE MONEY](https://www.reddit.com/r/wallstreetbets/comments/na650l/scared_money_dont_make_money/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
