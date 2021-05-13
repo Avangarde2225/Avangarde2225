@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me scrolling through this sub and seeing people lose thousands of dollars on $PLTR options](https://www.reddit.com/r/wallstreetbets/comments/na9rzn/me_scrolling_through_this_sub_and_seeing_people/)
-- [Life Savings + Margin + Growth Stocks = Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/na9i03/life_savings_margin_growth_stocks_loss_porn/)
-- [$CLOV Gamma Squeeze DD](https://www.reddit.com/r/wallstreetbets/comments/na7d4e/clov_gamma_squeeze_dd/)
-- [What Are Your Moves Tomorrow, May 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/na65ti/what_are_your_moves_tomorrow_may_12_2021/)
-- [SCARED MONEY DONT MAKE MONEY](https://www.reddit.com/r/wallstreetbets/comments/na650l/scared_money_dont_make_money/)
+- [I Will Own GameStop - Update MAY 12, 2021 | 10% Shares Increase (again)](https://www.reddit.com/r/wallstreetbets/comments/nb10xh/i_will_own_gamestop_update_may_12_2021_10_shares/)
+- [The Tamp Down team, a wholly owned subsidiary of the Plunge Protection Team has London operations. The LBMA pulls off the greatest spoof in the history of trading - 124 million oz of silver to spook the May contract longs. JP Morgan's criminal enterprise spoofing operation is child's play.](https://www.reddit.com/r/wallstreetbets/comments/nazngd/the_tamp_down_team_a_wholly_owned_subsidiary_of/)
+- [AMC YOLO Update - May 12th, 2021](https://www.reddit.com/r/wallstreetbets/comments/nazft2/amc_yolo_update_may_12th_2021/)
+- [Does this happen to everyone else every morning?](https://www.reddit.com/r/wallstreetbets/comments/naz4ti/does_this_happen_to_everyone_else_every_morning/)
+- [UWMC and What's Happening: An Explanation of Rule 10B](https://www.reddit.com/r/wallstreetbets/comments/nayxtm/uwmc_and_whats_happening_an_explanation_of_rule/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
