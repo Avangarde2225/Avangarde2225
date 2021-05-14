@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I Will Own GameStop - Update MAY 12, 2021 | 10% Shares Increase (again)](https://www.reddit.com/r/wallstreetbets/comments/nb10xh/i_will_own_gamestop_update_may_12_2021_10_shares/)
-- [The Tamp Down team, a wholly owned subsidiary of the Plunge Protection Team has London operations. The LBMA pulls off the greatest spoof in the history of trading - 124 million oz of silver to spook the May contract longs. JP Morgan's criminal enterprise spoofing operation is child's play.](https://www.reddit.com/r/wallstreetbets/comments/nazngd/the_tamp_down_team_a_wholly_owned_subsidiary_of/)
-- [AMC YOLO Update - May 12th, 2021](https://www.reddit.com/r/wallstreetbets/comments/nazft2/amc_yolo_update_may_12th_2021/)
-- [Does this happen to everyone else every morning?](https://www.reddit.com/r/wallstreetbets/comments/naz4ti/does_this_happen_to_everyone_else_every_morning/)
-- [UWMC and What's Happening: An Explanation of Rule 10B](https://www.reddit.com/r/wallstreetbets/comments/nayxtm/uwmc_and_whats_happening_an_explanation_of_rule/)
+- [To the Mooooooovies!](https://www.reddit.com/r/wallstreetbets/comments/nbu5ir/to_the_mooooooovies/)
+- [Time to sell TSLA](https://www.reddit.com/r/wallstreetbets/comments/nbq63f/time_to_sell_tsla/)
+- [What Are Your Moves Tomorrow, May 14, 2021](https://www.reddit.com/r/wallstreetbets/comments/nbpvym/what_are_your_moves_tomorrow_may_14_2021/)
+- [Both the height of fed chair and interest rate decline over time could a tailor fed chair mean rates rise ?](https://www.reddit.com/r/wallstreetbets/comments/nbpjk5/both_the_height_of_fed_chair_and_interest_rate/)
+- [Position Update On Entire Life Savings AMC](https://www.reddit.com/r/wallstreetbets/comments/nbpimp/position_update_on_entire_life_savings_amc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
