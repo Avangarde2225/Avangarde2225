@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To the Mooooooovies!](https://www.reddit.com/r/wallstreetbets/comments/nbu5ir/to_the_mooooooovies/)
-- [Time to sell TSLA](https://www.reddit.com/r/wallstreetbets/comments/nbq63f/time_to_sell_tsla/)
-- [What Are Your Moves Tomorrow, May 14, 2021](https://www.reddit.com/r/wallstreetbets/comments/nbpvym/what_are_your_moves_tomorrow_may_14_2021/)
-- [Both the height of fed chair and interest rate decline over time could a tailor fed chair mean rates rise ?](https://www.reddit.com/r/wallstreetbets/comments/nbpjk5/both_the_height_of_fed_chair_and_interest_rate/)
-- [Position Update On Entire Life Savings AMC](https://www.reddit.com/r/wallstreetbets/comments/nbpimp/position_update_on_entire_life_savings_amc/)
+- [Sometimes you just need to zoom out a bit](https://www.reddit.com/r/wallstreetbets/comments/ncm2vk/sometimes_you_just_need_to_zoom_out_a_bit/)
+- [Uwmc The Most Important Statement for all shares holders For Q2 2021](https://www.reddit.com/r/wallstreetbets/comments/nclll1/uwmc_the_most_important_statement_for_all_shares/)
+- [Uwmc Bull talk from CEO](https://www.reddit.com/r/wallstreetbets/comments/ncl4vb/uwmc_bull_talk_from_ceo/)
+- [Every time I buy GME Calls](https://www.reddit.com/r/wallstreetbets/comments/ncj7yo/every_time_i_buy_gme_calls/)
+- [Moneystonk](https://www.reddit.com/r/wallstreetbets/comments/ncit27/moneystonk/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
