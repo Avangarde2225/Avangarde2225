@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sometimes you just need to zoom out a bit](https://www.reddit.com/r/wallstreetbets/comments/ncm2vk/sometimes_you_just_need_to_zoom_out_a_bit/)
-- [Uwmc The Most Important Statement for all shares holders For Q2 2021](https://www.reddit.com/r/wallstreetbets/comments/nclll1/uwmc_the_most_important_statement_for_all_shares/)
-- [Uwmc Bull talk from CEO](https://www.reddit.com/r/wallstreetbets/comments/ncl4vb/uwmc_bull_talk_from_ceo/)
-- [Every time I buy GME Calls](https://www.reddit.com/r/wallstreetbets/comments/ncj7yo/every_time_i_buy_gme_calls/)
-- [Moneystonk](https://www.reddit.com/r/wallstreetbets/comments/ncit27/moneystonk/)
+- [AMC YOLO UPDATE. still here.](https://www.reddit.com/r/wallstreetbets/comments/ndc177/amc_yolo_update_still_here/)
+- [STEEL GANG- NUE gains from 6/20. Still holding-- 13x and climbing](https://www.reddit.com/r/wallstreetbets/comments/ndbgpj/steel_gang_nue_gains_from_620_still_holding_13x/)
+- [GME YOLO beginning](https://www.reddit.com/r/wallstreetbets/comments/ndbeje/gme_yolo_beginning/)
+- [Comprehensive Guide to EV companies](https://www.reddit.com/r/wallstreetbets/comments/ndb1gv/comprehensive_guide_to_ev_companies/)
+- [Don’t you all hate when this happens? After reading all the DDs and TAs on reddit, you then try to explain why those stonks will only go up, to your coworkers:](https://www.reddit.com/r/wallstreetbets/comments/ndari2/dont_you_all_hate_when_this_happens_after_reading/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
