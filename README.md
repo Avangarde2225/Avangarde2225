@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC YOLO UPDATE. still here.](https://www.reddit.com/r/wallstreetbets/comments/ndc177/amc_yolo_update_still_here/)
-- [STEEL GANG- NUE gains from 6/20. Still holding-- 13x and climbing](https://www.reddit.com/r/wallstreetbets/comments/ndbgpj/steel_gang_nue_gains_from_620_still_holding_13x/)
-- [GME YOLO beginning](https://www.reddit.com/r/wallstreetbets/comments/ndbeje/gme_yolo_beginning/)
-- [Comprehensive Guide to EV companies](https://www.reddit.com/r/wallstreetbets/comments/ndb1gv/comprehensive_guide_to_ev_companies/)
-- [Don’t you all hate when this happens? After reading all the DDs and TAs on reddit, you then try to explain why those stonks will only go up, to your coworkers:](https://www.reddit.com/r/wallstreetbets/comments/ndari2/dont_you_all_hate_when_this_happens_after_reading/)
+- [ASSEMBLE: Our coin is near 🍗](https://www.reddit.com/r/wallstreetbets/comments/ne1tyx/assemble_our_coin_is_near/)
+- [Sorry I stole your tendies comrades.](https://www.reddit.com/r/wallstreetbets/comments/ne1s2m/sorry_i_stole_your_tendies_comrades/)
+- [Historical Post Earnings Moves MEGA Compilation (Week 5) - $HD, $WMT, $TGT, $LOW, $CSCO, $GOEV, $XL, $SE and More](https://www.reddit.com/r/wallstreetbets/comments/ne1fla/historical_post_earnings_moves_mega_compilation/)
+- [Market Events May 17 - 21](https://www.reddit.com/r/wallstreetbets/comments/ne0uwr/market_events_may_17_21/)
+- [Microsoft Directors Decided Bill Gates Needed to Leave Board Due to Prior Relationship With Staffer](https://www.reddit.com/r/wallstreetbets/comments/ne0or5/microsoft_directors_decided_bill_gates_needed_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
