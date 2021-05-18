@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ASSEMBLE: Our coin is near 🍗](https://www.reddit.com/r/wallstreetbets/comments/ne1tyx/assemble_our_coin_is_near/)
-- [Sorry I stole your tendies comrades.](https://www.reddit.com/r/wallstreetbets/comments/ne1s2m/sorry_i_stole_your_tendies_comrades/)
-- [Historical Post Earnings Moves MEGA Compilation (Week 5) - $HD, $WMT, $TGT, $LOW, $CSCO, $GOEV, $XL, $SE and More](https://www.reddit.com/r/wallstreetbets/comments/ne1fla/historical_post_earnings_moves_mega_compilation/)
-- [Market Events May 17 - 21](https://www.reddit.com/r/wallstreetbets/comments/ne0uwr/market_events_may_17_21/)
-- [Microsoft Directors Decided Bill Gates Needed to Leave Board Due to Prior Relationship With Staffer](https://www.reddit.com/r/wallstreetbets/comments/ne0or5/microsoft_directors_decided_bill_gates_needed_to/)
+- [10k yolo on uwmc](https://www.reddit.com/r/wallstreetbets/comments/neulaq/10k_yolo_on_uwmc/)
+- [$TSLA, $585 Put due May 28th, quick in and out within 3 hr 18 mins, closed it before lunch, cash in USD $7,560; It was fun.](https://www.reddit.com/r/wallstreetbets/comments/netkes/tsla_585_put_due_may_28th_quick_in_and_out_within/)
+- [UWMC: The Thesis on Why I'm Still In Even Though I finally Turned a Profit or Never Tell Me The Odds. It's Tendies or Guh on my options people.](https://www.reddit.com/r/wallstreetbets/comments/nesw0u/uwmc_the_thesis_on_why_im_still_in_even_though_i/)
+- [Please don't really ban me](https://www.reddit.com/r/wallstreetbets/comments/nesm6e/please_dont_really_ban_me/)
+- [UWMC is finally alive](https://www.reddit.com/r/wallstreetbets/comments/nes2qp/uwmc_is_finally_alive/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
