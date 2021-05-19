@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [10k yolo on uwmc](https://www.reddit.com/r/wallstreetbets/comments/neulaq/10k_yolo_on_uwmc/)
-- [$TSLA, $585 Put due May 28th, quick in and out within 3 hr 18 mins, closed it before lunch, cash in USD $7,560; It was fun.](https://www.reddit.com/r/wallstreetbets/comments/netkes/tsla_585_put_due_may_28th_quick_in_and_out_within/)
-- [UWMC: The Thesis on Why I'm Still In Even Though I finally Turned a Profit or Never Tell Me The Odds. It's Tendies or Guh on my options people.](https://www.reddit.com/r/wallstreetbets/comments/nesw0u/uwmc_the_thesis_on_why_im_still_in_even_though_i/)
-- [Please don't really ban me](https://www.reddit.com/r/wallstreetbets/comments/nesm6e/please_dont_really_ban_me/)
-- [UWMC is finally alive](https://www.reddit.com/r/wallstreetbets/comments/nes2qp/uwmc_is_finally_alive/)
+- [$RIDE - It's Nowhere Near Over Yet!](https://www.reddit.com/r/wallstreetbets/comments/nfonwv/ride_its_nowhere_near_over_yet/)
+- [Ahhh shit, I went and did it again. Successfully bought the bottom on CVS.](https://www.reddit.com/r/wallstreetbets/comments/nfnrxu/ahhh_shit_i_went_and_did_it_again_successfully/)
+- [I SPY 5/18 Recap 🎯 and 5/19 Outlook 🔭](https://www.reddit.com/r/wallstreetbets/comments/nfmpfq/i_spy_518_recap_and_519_outlook/)
+- [Robinhood Plans to Reveal Its IPO Filings as Soon as Next Week](https://www.reddit.com/r/wallstreetbets/comments/nfluew/robinhood_plans_to_reveal_its_ipo_filings_as_soon/)
+- [Are there WSB alphas? Academia says yes.](https://www.reddit.com/r/wallstreetbets/comments/nfl4hi/are_there_wsb_alphas_academia_says_yes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
