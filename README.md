@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$RIDE - It's Nowhere Near Over Yet!](https://www.reddit.com/r/wallstreetbets/comments/nfonwv/ride_its_nowhere_near_over_yet/)
-- [Ahhh shit, I went and did it again. Successfully bought the bottom on CVS.](https://www.reddit.com/r/wallstreetbets/comments/nfnrxu/ahhh_shit_i_went_and_did_it_again_successfully/)
-- [I SPY 5/18 Recap 🎯 and 5/19 Outlook 🔭](https://www.reddit.com/r/wallstreetbets/comments/nfmpfq/i_spy_518_recap_and_519_outlook/)
-- [Robinhood Plans to Reveal Its IPO Filings as Soon as Next Week](https://www.reddit.com/r/wallstreetbets/comments/nfluew/robinhood_plans_to_reveal_its_ipo_filings_as_soon/)
-- [Are there WSB alphas? Academia says yes.](https://www.reddit.com/r/wallstreetbets/comments/nfl4hi/are_there_wsb_alphas_academia_says_yes/)
+- [$RIDE - The Train Is Leaving The Station](https://www.reddit.com/r/wallstreetbets/comments/ngkfy8/ride_the_train_is_leaving_the_station/)
+- [Someone pls save me](https://www.reddit.com/r/wallstreetbets/comments/ngjv4v/someone_pls_save_me/)
+- [Goodbye tesla 😭](https://www.reddit.com/r/wallstreetbets/comments/nggxk6/goodbye_tesla/)
+- [Day-2 : AMC 7,500@15.28 = 114K and -19K down and Opned Covered call .. Not closing with loss ( Final Avg price : 7,500@14.28 )](https://www.reddit.com/r/wallstreetbets/comments/ngfr58/day2_amc_75001528_114k_and_19k_down_and_opned/)
+- [What Are Your Moves Tomorrow, May 20, 2021](https://www.reddit.com/r/wallstreetbets/comments/ngfh4g/what_are_your_moves_tomorrow_may_20_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
