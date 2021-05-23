@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I see red people.](https://www.reddit.com/r/wallstreetbets/comments/ni66ma/i_see_red_people/)
-- [Life savings into amc? Retard? Ape? 🦍 YOLO](https://www.reddit.com/r/wallstreetbets/comments/ni5qux/life_savings_into_amc_retard_ape_yolo/)
-- [🕵️‍♂️ I SPY 5/21 Recap and 5/24 Outlook 🔭🎯](https://www.reddit.com/r/wallstreetbets/comments/ni4vcu/i_spy_521_recap_and_524_outlook/)
-- [I can remain retarded way longer than these fools can remain solvent.](https://www.reddit.com/r/wallstreetbets/comments/ni44hd/i_can_remain_retarded_way_longer_than_these_fools/)
-- [You wouldn't believe me if I told you but I could BUY like the wind blows. If I saw GME shares, I was BUYing](https://www.reddit.com/r/wallstreetbets/comments/ni3is3/you_wouldnt_believe_me_if_i_told_you_but_i_could/)
+- [GME specific subreddits most days.](https://www.reddit.com/r/wallstreetbets/comments/niv7l7/gme_specific_subreddits_most_days/)
+- [CHLORINE IS THE NEW GOLD TENDIE MAKER. $OLN](https://www.reddit.com/r/wallstreetbets/comments/niukl9/chlorine_is_the_new_gold_tendie_maker_oln/)
+- [SPCE YOLO - May 23 2021](https://www.reddit.com/r/wallstreetbets/comments/niudsv/spce_yolo_may_23_2021/)
+- [C3.AI what would I know](https://www.reddit.com/r/wallstreetbets/comments/niu83l/c3ai_what_would_i_know/)
+- [UWMC ex DIV 6/9??? A Match Made in Heaven](https://www.reddit.com/r/wallstreetbets/comments/nityz2/uwmc_ex_div_69_a_match_made_in_heaven/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
