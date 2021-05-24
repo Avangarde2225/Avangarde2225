@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GME specific subreddits most days.](https://www.reddit.com/r/wallstreetbets/comments/niv7l7/gme_specific_subreddits_most_days/)
-- [CHLORINE IS THE NEW GOLD TENDIE MAKER. $OLN](https://www.reddit.com/r/wallstreetbets/comments/niukl9/chlorine_is_the_new_gold_tendie_maker_oln/)
-- [SPCE YOLO - May 23 2021](https://www.reddit.com/r/wallstreetbets/comments/niudsv/spce_yolo_may_23_2021/)
-- [C3.AI what would I know](https://www.reddit.com/r/wallstreetbets/comments/niu83l/c3ai_what_would_i_know/)
-- [UWMC ex DIV 6/9??? A Match Made in Heaven](https://www.reddit.com/r/wallstreetbets/comments/nityz2/uwmc_ex_div_69_a_match_made_in_heaven/)
+- [Historical Post Earnings Moves MEGA Compilation (Week 5) - $NVDA, $SNOW, $CRM, $COST, $BBY, $ZS, $DKS, $TD, $BMO and More](https://www.reddit.com/r/wallstreetbets/comments/njjjk2/historical_post_earnings_moves_mega_compilation/)
+- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/njjj03/wsb_discussion_this_weekend/)
+- [When did this Subreddit become therapy?](https://www.reddit.com/r/wallstreetbets/comments/njizhs/when_did_this_subreddit_become_therapy/)
+- [Smooth brain buys another 5k in uwmc. Uwmc to 12. I like the stock](https://www.reddit.com/r/wallstreetbets/comments/njixp8/smooth_brain_buys_another_5k_in_uwmc_uwmc_to_12_i/)
+- [I believe TELL (Tellurian) will triple by EOY, here’s why I’m “all in”](https://www.reddit.com/r/wallstreetbets/comments/njipr1/i_believe_tell_tellurian_will_triple_by_eoy_heres/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
