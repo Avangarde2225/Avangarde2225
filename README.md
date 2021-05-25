@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Historical Post Earnings Moves MEGA Compilation (Week 5) - $NVDA, $SNOW, $CRM, $COST, $BBY, $ZS, $DKS, $TD, $BMO and More](https://www.reddit.com/r/wallstreetbets/comments/njjjk2/historical_post_earnings_moves_mega_compilation/)
-- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/njjj03/wsb_discussion_this_weekend/)
-- [When did this Subreddit become therapy?](https://www.reddit.com/r/wallstreetbets/comments/njizhs/when_did_this_subreddit_become_therapy/)
-- [Smooth brain buys another 5k in uwmc. Uwmc to 12. I like the stock](https://www.reddit.com/r/wallstreetbets/comments/njixp8/smooth_brain_buys_another_5k_in_uwmc_uwmc_to_12_i/)
-- [I believe TELL (Tellurian) will triple by EOY, here’s why I’m “all in”](https://www.reddit.com/r/wallstreetbets/comments/njipr1/i_believe_tell_tellurian_will_triple_by_eoy_heres/)
+- [How investing feels like....](https://www.reddit.com/r/wallstreetbets/comments/nkb4p7/how_investing_feels_like/)
+- [Catching every dip](https://www.reddit.com/r/wallstreetbets/comments/nk9u2u/catching_every_dip/)
+- [🕵️‍♂️ I SPY 5/24 Recap and 5/25 Outlook 🔭🎯](https://www.reddit.com/r/wallstreetbets/comments/nk9jjc/i_spy_524_recap_and_525_outlook/)
+- [When everything's red but i realise it's just all my favourite stocks on discount](https://www.reddit.com/r/wallstreetbets/comments/nk842t/when_everythings_red_but_i_realise_its_just_all/)
+- [400% UP on SPCE $20 call option exp on 6/4 🦍💎 🤲🚀](https://www.reddit.com/r/wallstreetbets/comments/nk7t0p/400_up_on_spce_20_call_option_exp_on_64/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
