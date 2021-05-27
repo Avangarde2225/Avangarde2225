@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Can you hear Griffin’s asshole clenching a bit tighter? GME to $2200 🚀🚀🚀💎💎💎🙌🏼🙌🏼🙌🏼](https://www.reddit.com/r/wallstreetbets/comments/nl3rsh/can_you_hear_griffins_asshole_clenching_a_bit/)
-- [gamestop? GAME ON!!!!](https://www.reddit.com/r/wallstreetbets/comments/nl3hib/gamestop_game_on/)
-- [MVIS gains, The paying off ALL my bills account](https://www.reddit.com/r/wallstreetbets/comments/nl3268/mvis_gains_the_paying_off_all_my_bills_account/)
-- [Why I Invested In BB](https://www.reddit.com/r/wallstreetbets/comments/nl22cg/why_i_invested_in_bb/)
-- [GME SpotGamma Analysis - GME Gettin' Squeezy? But Options are EXPENSIVE!](https://www.reddit.com/r/wallstreetbets/comments/nl1w3a/gme_spotgamma_analysis_gme_gettin_squeezy_but/)
+- [Lambo or homeless, there is no in between](https://www.reddit.com/r/wallstreetbets/comments/nlul8n/lambo_or_homeless_there_is_no_in_between/)
+- [Purchased $770k of GME](https://www.reddit.com/r/wallstreetbets/comments/nltsoo/purchased_770k_of_gme/)
+- [Just 2 bag holding apes in their natural habitat](https://www.reddit.com/r/wallstreetbets/comments/nltkfv/just_2_bag_holding_apes_in_their_natural_habitat/)
+- [Aped into $GME, am I doing this right? 💎](https://www.reddit.com/r/wallstreetbets/comments/nlrnwo/aped_into_gme_am_i_doing_this_right/)
+- [Thank you AMC, Will ride this all the way to the end 1 million or bust](https://www.reddit.com/r/wallstreetbets/comments/nlr8b7/thank_you_amc_will_ride_this_all_the_way_to_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
