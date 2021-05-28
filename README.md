@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lambo or homeless, there is no in between](https://www.reddit.com/r/wallstreetbets/comments/nlul8n/lambo_or_homeless_there_is_no_in_between/)
-- [Purchased $770k of GME](https://www.reddit.com/r/wallstreetbets/comments/nltsoo/purchased_770k_of_gme/)
-- [Just 2 bag holding apes in their natural habitat](https://www.reddit.com/r/wallstreetbets/comments/nltkfv/just_2_bag_holding_apes_in_their_natural_habitat/)
-- [Aped into $GME, am I doing this right? 💎](https://www.reddit.com/r/wallstreetbets/comments/nlrnwo/aped_into_gme_am_i_doing_this_right/)
-- [Thank you AMC, Will ride this all the way to the end 1 million or bust](https://www.reddit.com/r/wallstreetbets/comments/nlr8b7/thank_you_amc_will_ride_this_all_the_way_to_the/)
+- [AMC’s Four-Day Surge Slaps Short Sellers With $1.3 Billion Loss](https://www.reddit.com/r/wallstreetbets/comments/nmk9dk/amcs_fourday_surge_slaps_short_sellers_with_13/)
+- [Proper 401k weighting for a 26 year old? 99.8% $GME, 0.2% $AMC](https://www.reddit.com/r/wallstreetbets/comments/nmjo2l/proper_401k_weighting_for_a_26_year_old_998_gme/)
+- [Thank you AMC Come again](https://www.reddit.com/r/wallstreetbets/comments/nmjbx6/thank_you_amc_come_again/)
+- [I think I did this right AMC 🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/nmhv49/i_think_i_did_this_right_amc/)
+- [AMC surpasses $12B market cap as Redditor asks if it can go 'to the moon'](https://www.reddit.com/r/wallstreetbets/comments/nmh9n7/amc_surpasses_12b_market_cap_as_redditor_asks_if/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
