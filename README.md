@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC’s Four-Day Surge Slaps Short Sellers With $1.3 Billion Loss](https://www.reddit.com/r/wallstreetbets/comments/nmk9dk/amcs_fourday_surge_slaps_short_sellers_with_13/)
-- [Proper 401k weighting for a 26 year old? 99.8% $GME, 0.2% $AMC](https://www.reddit.com/r/wallstreetbets/comments/nmjo2l/proper_401k_weighting_for_a_26_year_old_998_gme/)
-- [Thank you AMC Come again](https://www.reddit.com/r/wallstreetbets/comments/nmjbx6/thank_you_amc_come_again/)
-- [I think I did this right AMC 🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/nmhv49/i_think_i_did_this_right_amc/)
-- [AMC surpasses $12B market cap as Redditor asks if it can go 'to the moon'](https://www.reddit.com/r/wallstreetbets/comments/nmh9n7/amc_surpasses_12b_market_cap_as_redditor_asks_if/)
+- [WSB discussion today](https://www.reddit.com/r/wallstreetbets/comments/nnb4d1/wsb_discussion_today/)
+- [All I hear When Apes fight apes](https://www.reddit.com/r/wallstreetbets/comments/nn9gbw/all_i_hear_when_apes_fight_apes/)
+- [I am the worst option trader in the history of option trading](https://www.reddit.com/r/wallstreetbets/comments/nn6n2n/i_am_the_worst_option_trader_in_the_history_of/)
+- [Weekend Discussion Thread for the Weekend of May 28, 2021](https://www.reddit.com/r/wallstreetbets/comments/nn680g/weekend_discussion_thread_for_the_weekend_of_may/)
+- ["Fed's "Favorite" #Inflation Indicator (PCE) Explodes At Fastest Rate Since 1992 As Incomes Crash By Record"](https://www.reddit.com/r/wallstreetbets/comments/nn51ou/feds_favorite_inflation_indicator_pce_explodes_at/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
