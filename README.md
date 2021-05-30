@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WSB discussion today](https://www.reddit.com/r/wallstreetbets/comments/nnb4d1/wsb_discussion_today/)
-- [All I hear When Apes fight apes](https://www.reddit.com/r/wallstreetbets/comments/nn9gbw/all_i_hear_when_apes_fight_apes/)
-- [I am the worst option trader in the history of option trading](https://www.reddit.com/r/wallstreetbets/comments/nn6n2n/i_am_the_worst_option_trader_in_the_history_of/)
-- [Weekend Discussion Thread for the Weekend of May 28, 2021](https://www.reddit.com/r/wallstreetbets/comments/nn680g/weekend_discussion_thread_for_the_weekend_of_may/)
-- ["Fed's "Favorite" #Inflation Indicator (PCE) Explodes At Fastest Rate Since 1992 As Incomes Crash By Record"](https://www.reddit.com/r/wallstreetbets/comments/nn51ou/feds_favorite_inflation_indicator_pce_explodes_at/)
+- [Just waiting for the squeeze...](https://www.reddit.com/r/wallstreetbets/comments/nnz8ul/just_waiting_for_the_squeeze/)
+- [From March to Friday - Finally](https://www.reddit.com/r/wallstreetbets/comments/nnz670/from_march_to_friday_finally/)
+- [Diamond Hands](https://www.reddit.com/r/wallstreetbets/comments/nnymvq/diamond_hands/)
+- [NIO is the NEO in EV? TA DD](https://www.reddit.com/r/wallstreetbets/comments/nnxns5/nio_is_the_neo_in_ev_ta_dd/)
+- [We are all different, but one and the same](https://www.reddit.com/r/wallstreetbets/comments/nnvr6c/we_are_all_different_but_one_and_the_same/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
