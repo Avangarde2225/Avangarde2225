@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Just waiting for the squeeze...](https://www.reddit.com/r/wallstreetbets/comments/nnz8ul/just_waiting_for_the_squeeze/)
-- [From March to Friday - Finally](https://www.reddit.com/r/wallstreetbets/comments/nnz670/from_march_to_friday_finally/)
-- [Diamond Hands](https://www.reddit.com/r/wallstreetbets/comments/nnymvq/diamond_hands/)
-- [NIO is the NEO in EV? TA DD](https://www.reddit.com/r/wallstreetbets/comments/nnxns5/nio_is_the_neo_in_ev_ta_dd/)
-- [We are all different, but one and the same](https://www.reddit.com/r/wallstreetbets/comments/nnvr6c/we_are_all_different_but_one_and_the_same/)
+- [🚀 BB to the 🌝 BABY 🚀](https://www.reddit.com/r/wallstreetbets/comments/non0so/bb_to_the_baby/)
+- [GME and AMC Gains🚀💰](https://www.reddit.com/r/wallstreetbets/comments/nomm9u/gme_and_amc_gains/)
+- [Power of the YOLO!](https://www.reddit.com/r/wallstreetbets/comments/nol0ei/power_of_the_yolo/)
+- [Stock Market Expectations vs Reality](https://www.reddit.com/r/wallstreetbets/comments/nokfgc/stock_market_expectations_vs_reality/)
+- [30%+ for 30 Straight Years: Meet this Hedge Fund Legend](https://www.reddit.com/r/wallstreetbets/comments/nokcdq/30_for_30_straight_years_meet_this_hedge_fund/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
