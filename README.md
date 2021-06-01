@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🚀 BB to the 🌝 BABY 🚀](https://www.reddit.com/r/wallstreetbets/comments/non0so/bb_to_the_baby/)
-- [GME and AMC Gains🚀💰](https://www.reddit.com/r/wallstreetbets/comments/nomm9u/gme_and_amc_gains/)
-- [Power of the YOLO!](https://www.reddit.com/r/wallstreetbets/comments/nol0ei/power_of_the_yolo/)
-- [Stock Market Expectations vs Reality](https://www.reddit.com/r/wallstreetbets/comments/nokfgc/stock_market_expectations_vs_reality/)
-- [30%+ for 30 Straight Years: Meet this Hedge Fund Legend](https://www.reddit.com/r/wallstreetbets/comments/nokcdq/30_for_30_straight_years_meet_this_hedge_fund/)
+- [Marble Index $MBLR](https://www.reddit.com/r/wallstreetbets/comments/nph9ct/marble_index_mblr/)
+- [Crashes occur after bubbles](https://www.reddit.com/r/wallstreetbets/comments/npgffv/crashes_occur_after_bubbles/)
+- [I screwed myself right?](https://www.reddit.com/r/wallstreetbets/comments/npfbmp/i_screwed_myself_right/)
+- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/npeurj/wsb_discussion_this_weekend/)
+- [Are people still interested in a little bit of AMC options gain?](https://www.reddit.com/r/wallstreetbets/comments/npef1s/are_people_still_interested_in_a_little_bit_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
