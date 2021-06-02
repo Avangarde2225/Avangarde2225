@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Marble Index $MBLR](https://www.reddit.com/r/wallstreetbets/comments/nph9ct/marble_index_mblr/)
-- [Crashes occur after bubbles](https://www.reddit.com/r/wallstreetbets/comments/npgffv/crashes_occur_after_bubbles/)
-- [I screwed myself right?](https://www.reddit.com/r/wallstreetbets/comments/npfbmp/i_screwed_myself_right/)
-- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/npeurj/wsb_discussion_this_weekend/)
-- [Are people still interested in a little bit of AMC options gain?](https://www.reddit.com/r/wallstreetbets/comments/npef1s/are_people_still_interested_in_a_little_bit_of/)
+- [AMC APE leaps from 4k to 50k](https://www.reddit.com/r/wallstreetbets/comments/nq8qry/amc_ape_leaps_from_4k_to_50k/)
+- [Amazon backs federal bill to legalize marijuana and adjusts its drug testing policy for some workers](https://www.reddit.com/r/wallstreetbets/comments/nq8c5t/amazon_backs_federal_bill_to_legalize_marijuana/)
+- [Houston to Rocket, Please Report Status - AMC, BB, MVIS](https://www.reddit.com/r/wallstreetbets/comments/nq7u3y/houston_to_rocket_please_report_status_amc_bb_mvis/)
+- [Excited for this Friday's Fed Speech, as always](https://www.reddit.com/r/wallstreetbets/comments/nq6tgm/excited_for_this_fridays_fed_speech_as_always/)
+- [I'd buy GME for a dollar!](https://www.reddit.com/r/wallstreetbets/comments/nq6p5x/id_buy_gme_for_a_dollar/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
