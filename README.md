@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC APE leaps from 4k to 50k](https://www.reddit.com/r/wallstreetbets/comments/nq8qry/amc_ape_leaps_from_4k_to_50k/)
-- [Amazon backs federal bill to legalize marijuana and adjusts its drug testing policy for some workers](https://www.reddit.com/r/wallstreetbets/comments/nq8c5t/amazon_backs_federal_bill_to_legalize_marijuana/)
-- [Houston to Rocket, Please Report Status - AMC, BB, MVIS](https://www.reddit.com/r/wallstreetbets/comments/nq7u3y/houston_to_rocket_please_report_status_amc_bb_mvis/)
-- [Excited for this Friday's Fed Speech, as always](https://www.reddit.com/r/wallstreetbets/comments/nq6tgm/excited_for_this_fridays_fed_speech_as_always/)
-- [I'd buy GME for a dollar!](https://www.reddit.com/r/wallstreetbets/comments/nq6p5x/id_buy_gme_for_a_dollar/)
+- [$BB Target Price - $60](https://www.reddit.com/r/wallstreetbets/comments/nqxz66/bb_target_price_60/)
+- [🚀 BB (still going) to the 🌝 BABY 🚀 (UPDATED POST)](https://www.reddit.com/r/wallstreetbets/comments/nqxtzd/bb_still_going_to_the_baby_updated_post/)
+- [$BB message to all shorts 50$ is our target](https://www.reddit.com/r/wallstreetbets/comments/nqxigm/bb_message_to_all_shorts_50_is_our_target/)
+- [BB to the Moon ! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/nqwmlw/bb_to_the_moon/)
+- [Buyer Beware: Meme Stocks, Options, and Cheap Hookers](https://www.reddit.com/r/wallstreetbets/comments/nqw1e3/buyer_beware_meme_stocks_options_and_cheap_hookers/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
