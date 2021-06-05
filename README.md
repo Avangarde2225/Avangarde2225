@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why do I see 10x as many post about BB than I do AMC?](https://www.reddit.com/r/wallstreetbets/comments/nrorqx/why_do_i_see_10x_as_many_post_about_bb_than_i_do/)
-- [Tomorrow will be a Good Day for $BB](https://www.reddit.com/r/wallstreetbets/comments/nro9sg/tomorrow_will_be_a_good_day_for_bb/)
-- [BB](https://www.reddit.com/r/wallstreetbets/comments/nro244/bb/)
-- [What Are Your Moves Tomorrow, June 04, 2021](https://www.reddit.com/r/wallstreetbets/comments/nrmh2t/what_are_your_moves_tomorrow_june_04_2021/)
-- [$BB 🍇🍇🍇](https://www.reddit.com/r/wallstreetbets/comments/nrm11g/bb/)
+- [$BB today](https://www.reddit.com/r/wallstreetbets/comments/nseozk/bb_today/)
+- [Weekend Discussion Thread for the Weekend of June 04, 2021](https://www.reddit.com/r/wallstreetbets/comments/nse1dg/weekend_discussion_thread_for_the_weekend_of_june/)
+- [CLNE goes beyond the 6/18 event - this is great hold at a 50% discount 🚀🌕](https://www.reddit.com/r/wallstreetbets/comments/nsdueb/clne_goes_beyond_the_618_event_this_is_great_hold/)
+- [WSB discussion today](https://www.reddit.com/r/wallstreetbets/comments/nsd1op/wsb_discussion_today/)
+- [Ferrari from WSB? Best guess as to which stock. My guess is GME.](https://www.reddit.com/r/wallstreetbets/comments/nscjh9/ferrari_from_wsb_best_guess_as_to_which_stock_my/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
