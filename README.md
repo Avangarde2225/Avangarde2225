@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BB today](https://www.reddit.com/r/wallstreetbets/comments/nseozk/bb_today/)
-- [Weekend Discussion Thread for the Weekend of June 04, 2021](https://www.reddit.com/r/wallstreetbets/comments/nse1dg/weekend_discussion_thread_for_the_weekend_of_june/)
-- [CLNE goes beyond the 6/18 event - this is great hold at a 50% discount 🚀🌕](https://www.reddit.com/r/wallstreetbets/comments/nsdueb/clne_goes_beyond_the_618_event_this_is_great_hold/)
-- [WSB discussion today](https://www.reddit.com/r/wallstreetbets/comments/nsd1op/wsb_discussion_today/)
-- [Ferrari from WSB? Best guess as to which stock. My guess is GME.](https://www.reddit.com/r/wallstreetbets/comments/nscjh9/ferrari_from_wsb_best_guess_as_to_which_stock_my/)
+- [🚀 BB End Game ☠️ (Gann Fan Study)](https://www.reddit.com/r/wallstreetbets/comments/nt8b6i/bb_end_game_gann_fan_study/)
+- [Back in 2019 I dressed up as a literal gorilla chasing a banana to crash a finance midterm at my University. This is who the Hedge Funds are up against. 💎🦍🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/nt7ite/back_in_2019_i_dressed_up_as_a_literal_gorilla/)
+- [Wendys stock, undervalued, quarterly dividend, dividend growth, capital appreciation, international expansion. Stop asking "When Lambo?" and get yourself a 🚀$WEN🚀 Lambo](https://www.reddit.com/r/wallstreetbets/comments/nt5ule/wendys_stock_undervalued_quarterly_dividend/)
+- [BB$ Stock Weekend DD before Jun 7th 2021. Rockets up.](https://www.reddit.com/r/wallstreetbets/comments/nt5et4/bb_stock_weekend_dd_before_jun_7th_2021_rockets_up/)
+- [$BB 🚀🛸🛰](https://www.reddit.com/r/wallstreetbets/comments/nt4qoi/bb/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
