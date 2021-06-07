@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🚀 BB End Game ☠️ (Gann Fan Study)](https://www.reddit.com/r/wallstreetbets/comments/nt8b6i/bb_end_game_gann_fan_study/)
-- [Back in 2019 I dressed up as a literal gorilla chasing a banana to crash a finance midterm at my University. This is who the Hedge Funds are up against. 💎🦍🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/nt7ite/back_in_2019_i_dressed_up_as_a_literal_gorilla/)
-- [Wendys stock, undervalued, quarterly dividend, dividend growth, capital appreciation, international expansion. Stop asking "When Lambo?" and get yourself a 🚀$WEN🚀 Lambo](https://www.reddit.com/r/wallstreetbets/comments/nt5ule/wendys_stock_undervalued_quarterly_dividend/)
-- [BB$ Stock Weekend DD before Jun 7th 2021. Rockets up.](https://www.reddit.com/r/wallstreetbets/comments/nt5et4/bb_stock_weekend_dd_before_jun_7th_2021_rockets_up/)
-- [$BB 🚀🛸🛰](https://www.reddit.com/r/wallstreetbets/comments/nt4qoi/bb/)
+- [CLOV - Big Daddy of All Squeezes DD](https://www.reddit.com/r/wallstreetbets/comments/nty1bd/clov_big_daddy_of_all_squeezes_dd/)
+- [What have I done?](https://www.reddit.com/r/wallstreetbets/comments/nty0sf/what_have_i_done/)
+- [Apes need Healthcare. Apes need CLOV - the ultimate DD compilation](https://www.reddit.com/r/wallstreetbets/comments/ntx6w8/apes_need_healthcare_apes_need_clov_the_ultimate/)
+- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/ntwnu5/wsb_discussion_this_weekend/)
+- [Clover Nation 🍀📈](https://www.reddit.com/r/wallstreetbets/comments/ntw9ix/clover_nation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
