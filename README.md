@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CLOV - Big Daddy of All Squeezes DD](https://www.reddit.com/r/wallstreetbets/comments/nty1bd/clov_big_daddy_of_all_squeezes_dd/)
-- [What have I done?](https://www.reddit.com/r/wallstreetbets/comments/nty0sf/what_have_i_done/)
-- [Apes need Healthcare. Apes need CLOV - the ultimate DD compilation](https://www.reddit.com/r/wallstreetbets/comments/ntx6w8/apes_need_healthcare_apes_need_clov_the_ultimate/)
-- [WSB discussion this weekend](https://www.reddit.com/r/wallstreetbets/comments/ntwnu5/wsb_discussion_this_weekend/)
-- [Clover Nation 🍀📈](https://www.reddit.com/r/wallstreetbets/comments/ntw9ix/clover_nation/)
+- [Woke up feeling myself - Decided to YOLO my 230k portfolio on BB and CLOV...](https://www.reddit.com/r/wallstreetbets/comments/nuqg8h/woke_up_feeling_myself_decided_to_yolo_my_230k/)
+- [CLOV to $20 and beyond!!!](https://www.reddit.com/r/wallstreetbets/comments/nuoq24/clov_to_20_and_beyond/)
+- [CLOV 1,217% gain still holding](https://www.reddit.com/r/wallstreetbets/comments/nuntu1/clov_1217_gain_still_holding/)
+- [Bloomberg talking AMC naked shorting and 100/100 squeeze potential 🦍 🦍 S3's Sloan Sees AMC as Top Short-Squeeze Risk](https://www.reddit.com/r/wallstreetbets/comments/numbv1/bloomberg_talking_amc_naked_shorting_and_100100/)
+- [Remember when y’all downvoted me for “shilling” CLOV 2 weeks ago?](https://www.reddit.com/r/wallstreetbets/comments/num4iz/remember_when_yall_downvoted_me_for_shilling_clov/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
