@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You all saved my ass with $CLOV, $WISH and $CLNE, made $24k today.](https://www.reddit.com/r/wallstreetbets/comments/nvg0fv/you_all_saved_my_ass_with_clov_wish_and_clne_made/)
-- [$80k into BB, AMC, WISH, CLOV, CLNE this week is gonna be quite a ride ❗️❗️🚀🚀📈📈](https://www.reddit.com/r/wallstreetbets/comments/nvem7n/80k_into_bb_amc_wish_clov_clne_this_week_is_gonna/)
-- [BB - Possible Rise tomorrow](https://www.reddit.com/r/wallstreetbets/comments/nvd3t9/bb_possible_rise_tomorrow/)
-- [$WWE - Can you S.M.E.L.L. what the stock is cooking?](https://www.reddit.com/r/wallstreetbets/comments/nvcyxf/wwe_can_you_smell_what_the_stock_is_cooking/)
-- [What Are Your Moves Tomorrow, June 09, 2021](https://www.reddit.com/r/wallstreetbets/comments/nvcwpz/what_are_your_moves_tomorrow_june_09_2021/)
+- [Grow a spine and be an actual retard!](https://www.reddit.com/r/wallstreetbets/comments/nw979w/grow_a_spine_and_be_an_actual_retard/)
+- [$CLF Diamond Handed Today +81k, Did I win the casino? $975 -> 100k in 2 weeks](https://www.reddit.com/r/wallstreetbets/comments/nw7ug5/clf_diamond_handed_today_81k_did_i_win_the_casino/)
+- [CLOV end of day summary for short trading action and short sale restriction violations.](https://www.reddit.com/r/wallstreetbets/comments/nw6rbc/clov_end_of_day_summary_for_short_trading_action/)
+- [BB CLOV CLNE WSB Pledge Class](https://www.reddit.com/r/wallstreetbets/comments/nw5npm/bb_clov_clne_wsb_pledge_class/)
+- [Why has this turned into a war of stock vs stock? I thought it was apes against hedge fund short sellers?](https://www.reddit.com/r/wallstreetbets/comments/nw5eda/why_has_this_turned_into_a_war_of_stock_vs_stock/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
