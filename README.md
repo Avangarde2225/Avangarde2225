@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Grow a spine and be an actual retard!](https://www.reddit.com/r/wallstreetbets/comments/nw979w/grow_a_spine_and_be_an_actual_retard/)
-- [$CLF Diamond Handed Today +81k, Did I win the casino? $975 -> 100k in 2 weeks](https://www.reddit.com/r/wallstreetbets/comments/nw7ug5/clf_diamond_handed_today_81k_did_i_win_the_casino/)
-- [CLOV end of day summary for short trading action and short sale restriction violations.](https://www.reddit.com/r/wallstreetbets/comments/nw6rbc/clov_end_of_day_summary_for_short_trading_action/)
-- [BB CLOV CLNE WSB Pledge Class](https://www.reddit.com/r/wallstreetbets/comments/nw5npm/bb_clov_clne_wsb_pledge_class/)
-- [Why has this turned into a war of stock vs stock? I thought it was apes against hedge fund short sellers?](https://www.reddit.com/r/wallstreetbets/comments/nw5eda/why_has_this_turned_into_a_war_of_stock_vs_stock/)
+- [It’s load up time AH for a bounce tomorrow CLOV AMC CLNE WISH](https://www.reddit.com/r/wallstreetbets/comments/nx0zn3/its_load_up_time_ah_for_a_bounce_tomorrow_clov/)
+- [AMC Casino version. Apes vs Kenny. Meme of the year.](https://www.reddit.com/r/wallstreetbets/comments/nx0k6d/amc_casino_version_apes_vs_kenny_meme_of_the_year/)
+- [The Key to Blackberry](https://www.reddit.com/r/wallstreetbets/comments/nx038v/the_key_to_blackberry/)
+- [AMC friends...tomorrow we must ensure AMC does NOT drop below $41 (key support level). If we can avoid <$41 early in the day tomorrow....then $52+ tomorrow is HIGHLY LIKELY!](https://www.reddit.com/r/wallstreetbets/comments/nwzi75/amc_friendstomorrow_we_must_ensure_amc_does_not/)
+- [A more serious take on why CLNE is an important play in the coming week(s)](https://www.reddit.com/r/wallstreetbets/comments/nwypn1/a_more_serious_take_on_why_clne_is_an_important/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
