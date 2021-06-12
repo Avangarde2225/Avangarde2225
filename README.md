@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It’s load up time AH for a bounce tomorrow CLOV AMC CLNE WISH](https://www.reddit.com/r/wallstreetbets/comments/nx0zn3/its_load_up_time_ah_for_a_bounce_tomorrow_clov/)
-- [AMC Casino version. Apes vs Kenny. Meme of the year.](https://www.reddit.com/r/wallstreetbets/comments/nx0k6d/amc_casino_version_apes_vs_kenny_meme_of_the_year/)
-- [The Key to Blackberry](https://www.reddit.com/r/wallstreetbets/comments/nx038v/the_key_to_blackberry/)
-- [AMC friends...tomorrow we must ensure AMC does NOT drop below $41 (key support level). If we can avoid <$41 early in the day tomorrow....then $52+ tomorrow is HIGHLY LIKELY!](https://www.reddit.com/r/wallstreetbets/comments/nwzi75/amc_friendstomorrow_we_must_ensure_amc_does_not/)
-- [A more serious take on why CLNE is an important play in the coming week(s)](https://www.reddit.com/r/wallstreetbets/comments/nwypn1/a_more_serious_take_on_why_clne_is_an_important/)
+- [UWMC Under Walued Mortgage Company](https://www.reddit.com/r/wallstreetbets/comments/nxqtq2/uwmc_under_walued_mortgage_company/)
+- [Diversifying $100k in moon stocks to help all the apes let’s go❗️❗️🚀🚀📈📍🌚💸](https://www.reddit.com/r/wallstreetbets/comments/nxp8rk/diversifying_100k_in_moon_stocks_to_help_all_the/)
+- [Todays option statistics for AMC,BB,CLF,CLNE,GME and other.](https://www.reddit.com/r/wallstreetbets/comments/nxp5r6/todays_option_statistics_for_amcbbclfclnegme_and/)
+- [Some WKHS technicals from a dummy](https://www.reddit.com/r/wallstreetbets/comments/nxp3ql/some_wkhs_technicals_from_a_dummy/)
+- [Gme yolo update. Gains from gme swings all year. —->](https://www.reddit.com/r/wallstreetbets/comments/nxp35r/gme_yolo_update_gains_from_gme_swings_all_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
