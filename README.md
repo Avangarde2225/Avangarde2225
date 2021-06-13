@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [UWMC Under Walued Mortgage Company](https://www.reddit.com/r/wallstreetbets/comments/nxqtq2/uwmc_under_walued_mortgage_company/)
-- [Diversifying $100k in moon stocks to help all the apes let’s go❗️❗️🚀🚀📈📍🌚💸](https://www.reddit.com/r/wallstreetbets/comments/nxp8rk/diversifying_100k_in_moon_stocks_to_help_all_the/)
-- [Todays option statistics for AMC,BB,CLF,CLNE,GME and other.](https://www.reddit.com/r/wallstreetbets/comments/nxp5r6/todays_option_statistics_for_amcbbclfclnegme_and/)
-- [Some WKHS technicals from a dummy](https://www.reddit.com/r/wallstreetbets/comments/nxp3ql/some_wkhs_technicals_from_a_dummy/)
-- [Gme yolo update. Gains from gme swings all year. —->](https://www.reddit.com/r/wallstreetbets/comments/nxp35r/gme_yolo_update_gains_from_gme_swings_all_year/)
+- [WKHS Elliottwave analysis 2021-06-12](https://www.reddit.com/r/wallstreetbets/comments/nyi0v1/wkhs_elliottwave_analysis_20210612/)
+- [$WISH - Unbiased Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/nyhntu/wish_unbiased_technical_analysis/)
+- [$WISH to the moooooooooooon 🚀🚀🚀🚀🚀🙌 💎](https://www.reddit.com/r/wallstreetbets/comments/nyhgae/wish_to_the_moooooooooooon/)
+- [My brokerage just emailed me to borrow shares for a short sale (SOFI).](https://www.reddit.com/r/wallstreetbets/comments/nygi4v/my_brokerage_just_emailed_me_to_borrow_shares_for/)
+- [Why I love $CLF CEO LG and you should too](https://www.reddit.com/r/wallstreetbets/comments/nyfw5u/why_i_love_clf_ceo_lg_and_you_should_too/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
