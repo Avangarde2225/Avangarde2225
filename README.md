@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WKHS Elliottwave analysis 2021-06-12](https://www.reddit.com/r/wallstreetbets/comments/nyi0v1/wkhs_elliottwave_analysis_20210612/)
-- [$WISH - Unbiased Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/nyhntu/wish_unbiased_technical_analysis/)
-- [$WISH to the moooooooooooon 🚀🚀🚀🚀🚀🙌 💎](https://www.reddit.com/r/wallstreetbets/comments/nyhgae/wish_to_the_moooooooooooon/)
-- [My brokerage just emailed me to borrow shares for a short sale (SOFI).](https://www.reddit.com/r/wallstreetbets/comments/nygi4v/my_brokerage_just_emailed_me_to_borrow_shares_for/)
-- [Why I love $CLF CEO LG and you should too](https://www.reddit.com/r/wallstreetbets/comments/nyfw5u/why_i_love_clf_ceo_lg_and_you_should_too/)
+- [Wallstreet Gem They Don't Want You To Know About](https://www.reddit.com/r/wallstreetbets/comments/nz7mct/wallstreet_gem_they_dont_want_you_to_know_about/)
+- [19 y/o college fun yolo gainz](https://www.reddit.com/r/wallstreetbets/comments/nz7lrc/19_yo_college_fun_yolo_gainz/)
+- [After all this time, AMC](https://www.reddit.com/r/wallstreetbets/comments/nz7kln/after_all_this_time_amc/)
+- [My CLNE Valuation Model: $29 Price Target](https://www.reddit.com/r/wallstreetbets/comments/nz6yy3/my_clne_valuation_model_29_price_target/)
+- [MemeMania - The Week Ahead - BB, CLNE, AMC, CRSR, and GME](https://www.reddit.com/r/wallstreetbets/comments/nz6tgd/mememania_the_week_ahead_bb_clne_amc_crsr_and_gme/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
