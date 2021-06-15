@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wallstreet Gem They Don't Want You To Know About](https://www.reddit.com/r/wallstreetbets/comments/nz7mct/wallstreet_gem_they_dont_want_you_to_know_about/)
-- [19 y/o college fun yolo gainz](https://www.reddit.com/r/wallstreetbets/comments/nz7lrc/19_yo_college_fun_yolo_gainz/)
-- [After all this time, AMC](https://www.reddit.com/r/wallstreetbets/comments/nz7kln/after_all_this_time_amc/)
-- [My CLNE Valuation Model: $29 Price Target](https://www.reddit.com/r/wallstreetbets/comments/nz6yy3/my_clne_valuation_model_29_price_target/)
-- [MemeMania - The Week Ahead - BB, CLNE, AMC, CRSR, and GME](https://www.reddit.com/r/wallstreetbets/comments/nz6tgd/mememania_the_week_ahead_bb_clne_amc_crsr_and_gme/)
+- [$WISH 50k shares YOLO 🦍🦍🦍🦍🦍🖕🏻🌈🧸💎🙌🏼](https://www.reddit.com/r/wallstreetbets/comments/nzyqgf/wish_50k_shares_yolo/)
+- [Still and is my best play ever](https://www.reddit.com/r/wallstreetbets/comments/nzwlla/still_and_is_my_best_play_ever/)
+- [Todays options statistics CLNE, CRSR, AMC, WISH, CLOV, BB, GME, others.](https://www.reddit.com/r/wallstreetbets/comments/nzvw7h/todays_options_statistics_clne_crsr_amc_wish_clov/)
+- [What Are Your Moves Tomorrow, June 15, 2021](https://www.reddit.com/r/wallstreetbets/comments/nzvijb/what_are_your_moves_tomorrow_june_15_2021/)
+- [CLOV & WISH, DD regarding inflation.](https://www.reddit.com/r/wallstreetbets/comments/nzvh5o/clov_wish_dd_regarding_inflation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
