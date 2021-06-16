@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$WISH 50k shares YOLO 🦍🦍🦍🦍🦍🖕🏻🌈🧸💎🙌🏼](https://www.reddit.com/r/wallstreetbets/comments/nzyqgf/wish_50k_shares_yolo/)
-- [Still and is my best play ever](https://www.reddit.com/r/wallstreetbets/comments/nzwlla/still_and_is_my_best_play_ever/)
-- [Todays options statistics CLNE, CRSR, AMC, WISH, CLOV, BB, GME, others.](https://www.reddit.com/r/wallstreetbets/comments/nzvw7h/todays_options_statistics_clne_crsr_amc_wish_clov/)
-- [What Are Your Moves Tomorrow, June 15, 2021](https://www.reddit.com/r/wallstreetbets/comments/nzvijb/what_are_your_moves_tomorrow_june_15_2021/)
-- [CLOV & WISH, DD regarding inflation.](https://www.reddit.com/r/wallstreetbets/comments/nzvh5o/clov_wish_dd_regarding_inflation/)
+- [$AMC - Another pretty day for the apes](https://www.reddit.com/r/wallstreetbets/comments/o0qecp/amc_another_pretty_day_for_the_apes/)
+- [WISH vs. UWMC: Do you like money?](https://www.reddit.com/r/wallstreetbets/comments/o0pyp1/wish_vs_uwmc_do_you_like_money/)
+- [Yolo on $WISH for 23k shares from 8.69 and averaged up to 9 something .. let's fucking get it .. didn't sell at 15 and not selling till 30+](https://www.reddit.com/r/wallstreetbets/comments/o0priy/yolo_on_wish_for_23k_shares_from_869_and_averaged/)
+- [$WISH 1 million share dark-pool print actually a buy. $11.32 million dollars](https://www.reddit.com/r/wallstreetbets/comments/o0p90o/wish_1_million_share_darkpool_print_actually_a/)
+- [Made a wish & Yolo’d $40k into it](https://www.reddit.com/r/wallstreetbets/comments/o0oul4/made_a_wish_yolod_40k_into_it/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
