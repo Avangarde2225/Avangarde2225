@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$AMC - Another pretty day for the apes](https://www.reddit.com/r/wallstreetbets/comments/o0qecp/amc_another_pretty_day_for_the_apes/)
-- [WISH vs. UWMC: Do you like money?](https://www.reddit.com/r/wallstreetbets/comments/o0pyp1/wish_vs_uwmc_do_you_like_money/)
-- [Yolo on $WISH for 23k shares from 8.69 and averaged up to 9 something .. let's fucking get it .. didn't sell at 15 and not selling till 30+](https://www.reddit.com/r/wallstreetbets/comments/o0priy/yolo_on_wish_for_23k_shares_from_869_and_averaged/)
-- [$WISH 1 million share dark-pool print actually a buy. $11.32 million dollars](https://www.reddit.com/r/wallstreetbets/comments/o0p90o/wish_1_million_share_darkpool_print_actually_a/)
-- [Made a wish & Yolo’d $40k into it](https://www.reddit.com/r/wallstreetbets/comments/o0oul4/made_a_wish_yolod_40k_into_it/)
+- [Too Fast, Too Poor : WSB Trying to Play Inflation FUD](https://www.reddit.com/r/wallstreetbets/comments/o1hk5e/too_fast_too_poor_wsb_trying_to_play_inflation_fud/)
+- [UWMC YOLO - Am I doing this right? Have some other short options, but I’d have to do a loss post for those…..](https://www.reddit.com/r/wallstreetbets/comments/o1hjui/uwmc_yolo_am_i_doing_this_right_have_some_other/)
+- [$WISH 400k YOLO. $20 is already programmed. Ignore the noise, spread your cheeks while showering and smile. It’s all gonna be alright.](https://www.reddit.com/r/wallstreetbets/comments/o1heyo/wish_400k_yolo_20_is_already_programmed_ignore/)
+- [Mortgage refinances increase 5.5% over last week — refinances accounted for 76% of UWMC's 2020 loan origination](https://www.reddit.com/r/wallstreetbets/comments/o1gl7p/mortgage_refinances_increase_55_over_last_week/)
+- [AMC , GME , BB , CLNE , WISH. Looking for some green now that the FED fear is over for now.](https://www.reddit.com/r/wallstreetbets/comments/o1ghr4/amc_gme_bb_clne_wish_looking_for_some_green_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
