@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Too Fast, Too Poor : WSB Trying to Play Inflation FUD](https://www.reddit.com/r/wallstreetbets/comments/o1hk5e/too_fast_too_poor_wsb_trying_to_play_inflation_fud/)
-- [UWMC YOLO - Am I doing this right? Have some other short options, but I’d have to do a loss post for those…..](https://www.reddit.com/r/wallstreetbets/comments/o1hjui/uwmc_yolo_am_i_doing_this_right_have_some_other/)
-- [$WISH 400k YOLO. $20 is already programmed. Ignore the noise, spread your cheeks while showering and smile. It’s all gonna be alright.](https://www.reddit.com/r/wallstreetbets/comments/o1heyo/wish_400k_yolo_20_is_already_programmed_ignore/)
-- [Mortgage refinances increase 5.5% over last week — refinances accounted for 76% of UWMC's 2020 loan origination](https://www.reddit.com/r/wallstreetbets/comments/o1gl7p/mortgage_refinances_increase_55_over_last_week/)
-- [AMC , GME , BB , CLNE , WISH. Looking for some green now that the FED fear is over for now.](https://www.reddit.com/r/wallstreetbets/comments/o1ghr4/amc_gme_bb_clne_wish_looking_for_some_green_now/)
+- [$BB flavored crayons are my favorite 🤤🤤🤤](https://www.reddit.com/r/wallstreetbets/comments/o2a9wv/bb_flavored_crayons_are_my_favorite/)
+- [BB technical analysis- 4 hr. chart break out, daily chart complex consolidation.](https://www.reddit.com/r/wallstreetbets/comments/o2a1s6/bb_technical_analysis_4_hr_chart_break_out_daily/)
+- [BB Retarded Yolo Update: Spoiler Alert….I Bought More](https://www.reddit.com/r/wallstreetbets/comments/o26zm4/bb_retarded_yolo_update_spoiler_alerti_bought_more/)
+- [$24,000 gainzzz today and $113,000 total tendies so far this week. Made more in 4 days than any “real” job ever paid me in a year. Keep hustling bros, the payoff is so worth it!](https://www.reddit.com/r/wallstreetbets/comments/o26q07/24000_gainzzz_today_and_113000_total_tendies_so/)
+- [Daily option statistics for AMC, CLNE, BB, WISH, GME, WKHS, CLOV, PLTR, CLF, and others.](https://www.reddit.com/r/wallstreetbets/comments/o26guj/daily_option_statistics_for_amc_clne_bb_wish_gme/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
