@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BB flavored crayons are my favorite 🤤🤤🤤](https://www.reddit.com/r/wallstreetbets/comments/o2a9wv/bb_flavored_crayons_are_my_favorite/)
-- [BB technical analysis- 4 hr. chart break out, daily chart complex consolidation.](https://www.reddit.com/r/wallstreetbets/comments/o2a1s6/bb_technical_analysis_4_hr_chart_break_out_daily/)
-- [BB Retarded Yolo Update: Spoiler Alert….I Bought More](https://www.reddit.com/r/wallstreetbets/comments/o26zm4/bb_retarded_yolo_update_spoiler_alerti_bought_more/)
-- [$24,000 gainzzz today and $113,000 total tendies so far this week. Made more in 4 days than any “real” job ever paid me in a year. Keep hustling bros, the payoff is so worth it!](https://www.reddit.com/r/wallstreetbets/comments/o26q07/24000_gainzzz_today_and_113000_total_tendies_so/)
-- [Daily option statistics for AMC, CLNE, BB, WISH, GME, WKHS, CLOV, PLTR, CLF, and others.](https://www.reddit.com/r/wallstreetbets/comments/o26guj/daily_option_statistics_for_amc_clne_bb_wish_gme/)
+- [AMC 13k options update](https://www.reddit.com/r/wallstreetbets/comments/o32ff0/amc_13k_options_update/)
+- [$3,500 PUTS on Amazon 07/09 due to Jeff stepping down on 07/05. Fuck DD it’s time to gamble 😈🃏](https://www.reddit.com/r/wallstreetbets/comments/o31i6z/3500_puts_on_amazon_0709_due_to_jeff_stepping/)
+- [PLTR: All-in 57,000 shares YOLO *UPDATE*](https://www.reddit.com/r/wallstreetbets/comments/o30g0v/pltr_allin_57000_shares_yolo_update/)
+- [I'm buying a cruise ship! YOLO](https://www.reddit.com/r/wallstreetbets/comments/o2zzcp/im_buying_a_cruise_ship_yolo/)
+- [LOSS PORN](https://www.reddit.com/r/wallstreetbets/comments/o2zgzu/loss_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
