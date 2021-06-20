@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC 13k options update](https://www.reddit.com/r/wallstreetbets/comments/o32ff0/amc_13k_options_update/)
-- [$3,500 PUTS on Amazon 07/09 due to Jeff stepping down on 07/05. Fuck DD it’s time to gamble 😈🃏](https://www.reddit.com/r/wallstreetbets/comments/o31i6z/3500_puts_on_amazon_0709_due_to_jeff_stepping/)
-- [PLTR: All-in 57,000 shares YOLO *UPDATE*](https://www.reddit.com/r/wallstreetbets/comments/o30g0v/pltr_allin_57000_shares_yolo_update/)
-- [I'm buying a cruise ship! YOLO](https://www.reddit.com/r/wallstreetbets/comments/o2zzcp/im_buying_a_cruise_ship_yolo/)
-- [LOSS PORN](https://www.reddit.com/r/wallstreetbets/comments/o2zgzu/loss_porn/)
+- [DD YOLO Freedom or Foodstamps Mega meme](https://www.reddit.com/r/wallstreetbets/comments/o3rm1k/dd_yolo_freedom_or_foodstamps_mega_meme/)
+- [$AMC Position Update: Still holding 2000 shares and have captured 100k more in gains through CC’s even while price dropped $15!](https://www.reddit.com/r/wallstreetbets/comments/o3qz61/amc_position_update_still_holding_2000_shares_and/)
+- [Refinanced my house and put it all in $WISH (400k+ YOLO)](https://www.reddit.com/r/wallstreetbets/comments/o3q7pg/refinanced_my_house_and_put_it_all_in_wish_400k/)
+- [MODS. Time for BobbyPhistHer to put up or ban.](https://www.reddit.com/r/wallstreetbets/comments/o3pp5z/mods_time_for_bobbyphisther_to_put_up_or_ban/)
+- [$PLTR - Probably The Best "Meme" Stock Setup](https://www.reddit.com/r/wallstreetbets/comments/o3pntj/pltr_probably_the_best_meme_stock_setup/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
