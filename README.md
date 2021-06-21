@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DD YOLO Freedom or Foodstamps Mega meme](https://www.reddit.com/r/wallstreetbets/comments/o3rm1k/dd_yolo_freedom_or_foodstamps_mega_meme/)
-- [$AMC Position Update: Still holding 2000 shares and have captured 100k more in gains through CC’s even while price dropped $15!](https://www.reddit.com/r/wallstreetbets/comments/o3qz61/amc_position_update_still_holding_2000_shares_and/)
-- [Refinanced my house and put it all in $WISH (400k+ YOLO)](https://www.reddit.com/r/wallstreetbets/comments/o3q7pg/refinanced_my_house_and_put_it_all_in_wish_400k/)
-- [MODS. Time for BobbyPhistHer to put up or ban.](https://www.reddit.com/r/wallstreetbets/comments/o3pp5z/mods_time_for_bobbyphisther_to_put_up_or_ban/)
-- [$PLTR - Probably The Best "Meme" Stock Setup](https://www.reddit.com/r/wallstreetbets/comments/o3pntj/pltr_probably_the_best_meme_stock_setup/)
+- [Tesla Diamond Hands](https://www.reddit.com/r/wallstreetbets/comments/o4igri/tesla_diamond_hands/)
+- [CLOV: Why this Surgeon invested everything into this health care company.](https://www.reddit.com/r/wallstreetbets/comments/o4i2bh/clov_why_this_surgeon_invested_everything_into/)
+- [Strategic Reduction of tax burden (25k loss)](https://www.reddit.com/r/wallstreetbets/comments/o4hqa6/strategic_reduction_of_tax_burden_25k_loss/)
+- ["The mods hate this stock, they get rid of all the DD about it"](https://www.reddit.com/r/wallstreetbets/comments/o4gm23/the_mods_hate_this_stock_they_get_rid_of_all_the/)
+- [100k on $PLTR. first post here. double soon?](https://www.reddit.com/r/wallstreetbets/comments/o4g5xx/100k_on_pltr_first_post_here_double_soon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
