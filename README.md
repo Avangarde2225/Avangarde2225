@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Which one of you autists is this?](https://www.reddit.com/r/wallstreetbets/comments/o6okw2/which_one_of_you_autists_is_this/)
-- [Wish YOLO - All in](https://www.reddit.com/r/wallstreetbets/comments/o6oi18/wish_yolo_all_in/)
-- [YOLO - ALL IN WKHS !!!](https://www.reddit.com/r/wallstreetbets/comments/o6nvf3/yolo_all_in_wkhs/)
-- [YOLO’d 80% of my savings in CLOV and WISH. LETS GO!](https://www.reddit.com/r/wallstreetbets/comments/o6n0ia/yolod_80_of_my_savings_in_clov_and_wish_lets_go/)
-- [Finally got my retard letter. Positions were a bunch of ROOT calls that expired worthless, and some GME calls that expired worthless.](https://www.reddit.com/r/wallstreetbets/comments/o6kpyd/finally_got_my_retard_letter_positions_were_a/)
+- [$WISH Update](https://www.reddit.com/r/wallstreetbets/comments/o7bozg/wish_update/)
+- [$PSFE YOLO....think I was a bit too early?](https://www.reddit.com/r/wallstreetbets/comments/o7b4o3/psfe_yolothink_i_was_a_bit_too_early/)
+- [3883 shares on $WISH. Best of luck everyone! At one point I was deep in the red but I HELD baby.](https://www.reddit.com/r/wallstreetbets/comments/o7b3jj/3883_shares_on_wish_best_of_luck_everyone_at_one/)
+- [CLOV: Am I missing something? Destined to go to the moon!](https://www.reddit.com/r/wallstreetbets/comments/o7b2ur/clov_am_i_missing_something_destined_to_go_to_the/)
+- [BlackBerry Reports First Quarter Fiscal Year 2022 Results](https://www.reddit.com/r/wallstreetbets/comments/o7ane8/blackberry_reports_first_quarter_fiscal_year_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
