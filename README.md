@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$WISH Update](https://www.reddit.com/r/wallstreetbets/comments/o7bozg/wish_update/)
-- [$PSFE YOLO....think I was a bit too early?](https://www.reddit.com/r/wallstreetbets/comments/o7b4o3/psfe_yolothink_i_was_a_bit_too_early/)
-- [3883 shares on $WISH. Best of luck everyone! At one point I was deep in the red but I HELD baby.](https://www.reddit.com/r/wallstreetbets/comments/o7b3jj/3883_shares_on_wish_best_of_luck_everyone_at_one/)
-- [CLOV: Am I missing something? Destined to go to the moon!](https://www.reddit.com/r/wallstreetbets/comments/o7b2ur/clov_am_i_missing_something_destined_to_go_to_the/)
-- [BlackBerry Reports First Quarter Fiscal Year 2022 Results](https://www.reddit.com/r/wallstreetbets/comments/o7ane8/blackberry_reports_first_quarter_fiscal_year_2022/)
+- [24.6k into 150k on my very first options call!](https://www.reddit.com/r/wallstreetbets/comments/o7zil8/246k_into_150k_on_my_very_first_options_call/)
+- [CRSR: Update 2](https://www.reddit.com/r/wallstreetbets/comments/o7xwg5/crsr_update_2/)
+- [Massive DD Thread on $BODY. Deep Value for Investors.](https://www.reddit.com/r/wallstreetbets/comments/o7xf0v/massive_dd_thread_on_body_deep_value_for_investors/)
+- [Daily option statistics for stocks such as SPCE, AMC, WISH, CLOV, BB, GME, TSLA, WKHS, NOK and others.](https://www.reddit.com/r/wallstreetbets/comments/o7wcdp/daily_option_statistics_for_stocks_such_as_spce/)
+- [Weekend Discussion Thread for the Weekend of June 25, 2021](https://www.reddit.com/r/wallstreetbets/comments/o7vagy/weekend_discussion_thread_for_the_weekend_of_june/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
