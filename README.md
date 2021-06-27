@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [24.6k into 150k on my very first options call!](https://www.reddit.com/r/wallstreetbets/comments/o7zil8/246k_into_150k_on_my_very_first_options_call/)
-- [CRSR: Update 2](https://www.reddit.com/r/wallstreetbets/comments/o7xwg5/crsr_update_2/)
-- [Massive DD Thread on $BODY. Deep Value for Investors.](https://www.reddit.com/r/wallstreetbets/comments/o7xf0v/massive_dd_thread_on_body_deep_value_for_investors/)
-- [Daily option statistics for stocks such as SPCE, AMC, WISH, CLOV, BB, GME, TSLA, WKHS, NOK and others.](https://www.reddit.com/r/wallstreetbets/comments/o7wcdp/daily_option_statistics_for_stocks_such_as_spce/)
-- [Weekend Discussion Thread for the Weekend of June 25, 2021](https://www.reddit.com/r/wallstreetbets/comments/o7vagy/weekend_discussion_thread_for_the_weekend_of_june/)
+- [$wish - open option interest. Can someone explain?](https://www.reddit.com/r/wallstreetbets/comments/o8lvkz/wish_open_option_interest_can_someone_explain/)
+- [The Definitive Guide to Buying FDs.](https://www.reddit.com/r/wallstreetbets/comments/o8ki2x/the_definitive_guide_to_buying_fds/)
+- [Re: "revenge traders" - a comprehensive guide to accepting you're a degenerate.](https://www.reddit.com/r/wallstreetbets/comments/o8khsl/re_revenge_traders_a_comprehensive_guide_to/)
+- [I found some DDs for you guys to stare at while I'm talking about $ASO](https://www.reddit.com/r/wallstreetbets/comments/o8k9yj/i_found_some_dds_for_you_guys_to_stare_at_while/)
+- [Each graph has a story. ROKU is about to decide the next chapter. 44.2k on Calls expiring 9th of June 2021.](https://www.reddit.com/r/wallstreetbets/comments/o8jwkx/each_graph_has_a_story_roku_is_about_to_decide/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
