@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Blackberry is Rolling out IVY Smart Car Ecosystem in February 2022 Where is Apple.](https://www.reddit.com/r/wallstreetbets/comments/o97our/blackberry_is_rolling_out_ivy_smart_car_ecosystem/)
-- [Just a reminder for how Friday ended🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/o97gud/just_a_reminder_for_how_friday_ended/)
-- [SPCE Due Diligence](https://www.reddit.com/r/wallstreetbets/comments/o97e16/spce_due_diligence/)
-- [Blackberry Beats Revenue Estimates by 3,000,000](https://www.reddit.com/r/wallstreetbets/comments/o96vka/blackberry_beats_revenue_estimates_by_3000000/)
-- [It's Time For $NNDM To Shine](https://www.reddit.com/r/wallstreetbets/comments/o96e9n/its_time_for_nndm_to_shine/)
+- [10 Reasons Why This Week's Krispy Kreme IPO is SUS AF](https://www.reddit.com/r/wallstreetbets/comments/o9um3d/10_reasons_why_this_weeks_krispy_kreme_ipo_is_sus/)
+- [When You Tell Your Friend to Start Investing after Talking about WSB through the Whole Pandemic](https://www.reddit.com/r/wallstreetbets/comments/o9uj17/when_you_tell_your_friend_to_start_investing/)
+- [Finessed myself](https://www.reddit.com/r/wallstreetbets/comments/o9u6b3/finessed_myself/)
+- [SOFI, TO THE MOOOON $$$🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/o9u2e8/sofi_to_the_moooon/)
+- [SOFI YOLO 180k](https://www.reddit.com/r/wallstreetbets/comments/o9t2j0/sofi_yolo_180k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
