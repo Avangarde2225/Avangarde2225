@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [10 Reasons Why This Week's Krispy Kreme IPO is SUS AF](https://www.reddit.com/r/wallstreetbets/comments/o9um3d/10_reasons_why_this_weeks_krispy_kreme_ipo_is_sus/)
-- [When You Tell Your Friend to Start Investing after Talking about WSB through the Whole Pandemic](https://www.reddit.com/r/wallstreetbets/comments/o9uj17/when_you_tell_your_friend_to_start_investing/)
-- [Finessed myself](https://www.reddit.com/r/wallstreetbets/comments/o9u6b3/finessed_myself/)
-- [SOFI, TO THE MOOOON $$$🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/o9u2e8/sofi_to_the_moooon/)
-- [SOFI YOLO 180k](https://www.reddit.com/r/wallstreetbets/comments/o9t2j0/sofi_yolo_180k/)
+- [Jumped on that SoFi rocket 🚀 with a 30k YOLO 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/oai6u3/jumped_on_that_sofi_rocket_with_a_30k_yolo/)
+- [A Brief Look at Me Missing Out on Every Popular Stock in the Last 3 Months](https://www.reddit.com/r/wallstreetbets/comments/oahtji/a_brief_look_at_me_missing_out_on_every_popular/)
+- [$SOFI - Unbiased Technical Analysis - Massive Setup Forming](https://www.reddit.com/r/wallstreetbets/comments/oah5s5/sofi_unbiased_technical_analysis_massive_setup/)
+- [What's up with WSB and SoFi?](https://www.reddit.com/r/wallstreetbets/comments/oah3gj/whats_up_with_wsb_and_sofi/)
+- [218K YOLO all in $SOFI 🚀](https://www.reddit.com/r/wallstreetbets/comments/oagmp2/218k_yolo_all_in_sofi/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
