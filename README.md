@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Jumped on that SoFi rocket 🚀 with a 30k YOLO 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/oai6u3/jumped_on_that_sofi_rocket_with_a_30k_yolo/)
-- [A Brief Look at Me Missing Out on Every Popular Stock in the Last 3 Months](https://www.reddit.com/r/wallstreetbets/comments/oahtji/a_brief_look_at_me_missing_out_on_every_popular/)
-- [$SOFI - Unbiased Technical Analysis - Massive Setup Forming](https://www.reddit.com/r/wallstreetbets/comments/oah5s5/sofi_unbiased_technical_analysis_massive_setup/)
-- [What's up with WSB and SoFi?](https://www.reddit.com/r/wallstreetbets/comments/oah3gj/whats_up_with_wsb_and_sofi/)
-- [218K YOLO all in $SOFI 🚀](https://www.reddit.com/r/wallstreetbets/comments/oagmp2/218k_yolo_all_in_sofi/)
+- [$107k gain in 3 months](https://www.reddit.com/r/wallstreetbets/comments/ob8077/107k_gain_in_3_months/)
+- [I believe $SOFI will be more than $30 this week](https://www.reddit.com/r/wallstreetbets/comments/ob7fzg/i_believe_sofi_will_be_more_than_30_this_week/)
+- [G🚀M🚀E🚀- Come on! Let's do it! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ob6oyp/gme_come_on_lets_do_it/)
+- [$WISH 30$ coming 🚀🚀🚀 Hold strong 💪🏼](https://www.reddit.com/r/wallstreetbets/comments/ob6ff0/wish_30_coming_hold_strong/)
+- [$WISH Update 2](https://www.reddit.com/r/wallstreetbets/comments/ob6eba/wish_update_2/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
