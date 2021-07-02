@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$107k gain in 3 months](https://www.reddit.com/r/wallstreetbets/comments/ob8077/107k_gain_in_3_months/)
-- [I believe $SOFI will be more than $30 this week](https://www.reddit.com/r/wallstreetbets/comments/ob7fzg/i_believe_sofi_will_be_more_than_30_this_week/)
-- [G🚀M🚀E🚀- Come on! Let's do it! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ob6oyp/gme_come_on_lets_do_it/)
-- [$WISH 30$ coming 🚀🚀🚀 Hold strong 💪🏼](https://www.reddit.com/r/wallstreetbets/comments/ob6ff0/wish_30_coming_hold_strong/)
-- [$WISH Update 2](https://www.reddit.com/r/wallstreetbets/comments/ob6eba/wish_update_2/)
+- [SPCE: Cathie Woods is one of us - Buy High, Sell Low, Miss the Rip Higher](https://www.reddit.com/r/wallstreetbets/comments/obyazo/spce_cathie_woods_is_one_of_us_buy_high_sell_low/)
+- [Sir Richard Branson sets 11 July to make spaceflight](https://www.reddit.com/r/wallstreetbets/comments/obxu7e/sir_richard_branson_sets_11_july_to_make/)
+- [Virgin Galactic Announces First Fully Crewed Spaceflight](https://www.reddit.com/r/wallstreetbets/comments/obx21c/virgin_galactic_announces_first_fully_crewed/)
+- [Got a margin call from my $wish yolo!](https://www.reddit.com/r/wallstreetbets/comments/obwujs/got_a_margin_call_from_my_wish_yolo/)
+- [$CLF Yolo 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/obv25n/clf_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
