@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPCE: Cathie Woods is one of us - Buy High, Sell Low, Miss the Rip Higher](https://www.reddit.com/r/wallstreetbets/comments/obyazo/spce_cathie_woods_is_one_of_us_buy_high_sell_low/)
-- [Sir Richard Branson sets 11 July to make spaceflight](https://www.reddit.com/r/wallstreetbets/comments/obxu7e/sir_richard_branson_sets_11_july_to_make/)
-- [Virgin Galactic Announces First Fully Crewed Spaceflight](https://www.reddit.com/r/wallstreetbets/comments/obx21c/virgin_galactic_announces_first_fully_crewed/)
-- [Got a margin call from my $wish yolo!](https://www.reddit.com/r/wallstreetbets/comments/obwujs/got_a_margin_call_from_my_wish_yolo/)
-- [$CLF Yolo 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/obv25n/clf_yolo/)
+- [When someone older than you starts picking up day trading…](https://www.reddit.com/r/wallstreetbets/comments/ocmn0o/when_someone_older_than_you_starts_picking_up_day/)
+- [6K to 52K for a nice little profit 😎 SPCE 🚀 thank you SRB. Look forward to the next dip and rip. Now to put into CLOV for my next play 🍀](https://www.reddit.com/r/wallstreetbets/comments/ocl9mx/6k_to_52k_for_a_nice_little_profit_spce_thank_you/)
+- [I like the stock! Sofi](https://www.reddit.com/r/wallstreetbets/comments/ocj44a/i_like_the_stock_sofi/)
+- [Daily option statistics for SPCE, AMC, GME, WISH, CLOV, TSLA, CLNE, PLTR, SOFI and others.](https://www.reddit.com/r/wallstreetbets/comments/ocigxz/daily_option_statistics_for_spce_amc_gme_wish/)
+- [$NVDA Ends another week strong, initial position 160k~](https://www.reddit.com/r/wallstreetbets/comments/ociaac/nvda_ends_another_week_strong_initial_position/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
