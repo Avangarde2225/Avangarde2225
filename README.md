@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When someone older than you starts picking up day trading…](https://www.reddit.com/r/wallstreetbets/comments/ocmn0o/when_someone_older_than_you_starts_picking_up_day/)
-- [6K to 52K for a nice little profit 😎 SPCE 🚀 thank you SRB. Look forward to the next dip and rip. Now to put into CLOV for my next play 🍀](https://www.reddit.com/r/wallstreetbets/comments/ocl9mx/6k_to_52k_for_a_nice_little_profit_spce_thank_you/)
-- [I like the stock! Sofi](https://www.reddit.com/r/wallstreetbets/comments/ocj44a/i_like_the_stock_sofi/)
-- [Daily option statistics for SPCE, AMC, GME, WISH, CLOV, TSLA, CLNE, PLTR, SOFI and others.](https://www.reddit.com/r/wallstreetbets/comments/ocigxz/daily_option_statistics_for_spce_amc_gme_wish/)
-- [$NVDA Ends another week strong, initial position 160k~](https://www.reddit.com/r/wallstreetbets/comments/ociaac/nvda_ends_another_week_strong_initial_position/)
+- [THIS IS A THINKING QUESTION. LEAVE YOU OPINIONS IN THE COMMENT SECTION](https://www.reddit.com/r/wallstreetbets/comments/od8rkq/this_is_a_thinking_question_leave_you_opinions_in/)
+- [Average Annual Return on Investments for WSB](https://www.reddit.com/r/wallstreetbets/comments/od77kx/average_annual_return_on_investments_for_wsb/)
+- [$53k TO $306K in just 2 days.](https://www.reddit.com/r/wallstreetbets/comments/od7008/53k_to_306k_in_just_2_days/)
+- [The End of Financial Piracy](https://www.reddit.com/r/wallstreetbets/comments/od61z8/the_end_of_financial_piracy/)
+- [$82k to $10k. You’re suppose to wait till expiration to sell right? 🤣](https://www.reddit.com/r/wallstreetbets/comments/od612v/82k_to_10k_youre_suppose_to_wait_till_expiration/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
