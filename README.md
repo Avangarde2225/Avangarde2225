@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [THIS IS A THINKING QUESTION. LEAVE YOU OPINIONS IN THE COMMENT SECTION](https://www.reddit.com/r/wallstreetbets/comments/od8rkq/this_is_a_thinking_question_leave_you_opinions_in/)
-- [Average Annual Return on Investments for WSB](https://www.reddit.com/r/wallstreetbets/comments/od77kx/average_annual_return_on_investments_for_wsb/)
-- [$53k TO $306K in just 2 days.](https://www.reddit.com/r/wallstreetbets/comments/od7008/53k_to_306k_in_just_2_days/)
-- [The End of Financial Piracy](https://www.reddit.com/r/wallstreetbets/comments/od61z8/the_end_of_financial_piracy/)
-- [$82k to $10k. You’re suppose to wait till expiration to sell right? 🤣](https://www.reddit.com/r/wallstreetbets/comments/od612v/82k_to_10k_youre_suppose_to_wait_till_expiration/)
+- [🧙The Elders of WSB](https://www.reddit.com/r/wallstreetbets/comments/odv8ni/the_elders_of_wsb/)
+- [Cramer: Buy as many DIDI shares as you can. No thanks buddy...](https://www.reddit.com/r/wallstreetbets/comments/odtuoz/cramer_buy_as_many_didi_shares_as_you_can_no/)
+- [How my investing has been going.](https://www.reddit.com/r/wallstreetbets/comments/odtqzh/how_my_investing_has_been_going/)
+- [Wall Street banks racked up $650 million in fees and stock gains in the busiest IPO week since 2004](https://www.reddit.com/r/wallstreetbets/comments/odt3x5/wall_street_banks_racked_up_650_million_in_fees/)
+- [Still in CLNE?](https://www.reddit.com/r/wallstreetbets/comments/odro71/still_in_clne/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
