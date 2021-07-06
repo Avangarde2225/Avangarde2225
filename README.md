@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🧙The Elders of WSB](https://www.reddit.com/r/wallstreetbets/comments/odv8ni/the_elders_of_wsb/)
-- [Cramer: Buy as many DIDI shares as you can. No thanks buddy...](https://www.reddit.com/r/wallstreetbets/comments/odtuoz/cramer_buy_as_many_didi_shares_as_you_can_no/)
-- [How my investing has been going.](https://www.reddit.com/r/wallstreetbets/comments/odtqzh/how_my_investing_has_been_going/)
-- [Wall Street banks racked up $650 million in fees and stock gains in the busiest IPO week since 2004](https://www.reddit.com/r/wallstreetbets/comments/odt3x5/wall_street_banks_racked_up_650_million_in_fees/)
-- [Still in CLNE?](https://www.reddit.com/r/wallstreetbets/comments/odro71/still_in_clne/)
+- [Advanced Micro Devices: Bullish DD in collaboration w/ u/TheTendilorian](https://www.reddit.com/r/wallstreetbets/comments/oei8fk/advanced_micro_devices_bullish_dd_in/)
+- [Payment for order flow may soon be a thing of the past - Gensler looking to change regulations](https://www.reddit.com/r/wallstreetbets/comments/oei45r/payment_for_order_flow_may_soon_be_a_thing_of_the/)
+- [NIO - a trillion dollar company. Here’s why…(DD with a sprinkle of formulated opinion)](https://www.reddit.com/r/wallstreetbets/comments/oehww2/nio_a_trillion_dollar_company_heres_whydd_with_a/)
+- [+100% gains. What's the next step?](https://www.reddit.com/r/wallstreetbets/comments/oehnp7/100_gains_whats_the_next_step/)
+- [The Game is $RIG'd and y'all need to get in ASAP](https://www.reddit.com/r/wallstreetbets/comments/oegner/the_game_is_rigd_and_yall_need_to_get_in_asap/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
