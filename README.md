@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Advanced Micro Devices: Bullish DD in collaboration w/ u/TheTendilorian](https://www.reddit.com/r/wallstreetbets/comments/oei8fk/advanced_micro_devices_bullish_dd_in/)
-- [Payment for order flow may soon be a thing of the past - Gensler looking to change regulations](https://www.reddit.com/r/wallstreetbets/comments/oei45r/payment_for_order_flow_may_soon_be_a_thing_of_the/)
-- [NIO - a trillion dollar company. Here’s why…(DD with a sprinkle of formulated opinion)](https://www.reddit.com/r/wallstreetbets/comments/oehww2/nio_a_trillion_dollar_company_heres_whydd_with_a/)
-- [+100% gains. What's the next step?](https://www.reddit.com/r/wallstreetbets/comments/oehnp7/100_gains_whats_the_next_step/)
-- [The Game is $RIG'd and y'all need to get in ASAP](https://www.reddit.com/r/wallstreetbets/comments/oegner/the_game_is_rigd_and_yall_need_to_get_in_asap/)
+- [UWMC is a cash printing machine. This is my main account with another ~13k shares in another one.](https://www.reddit.com/r/wallstreetbets/comments/of5gyx/uwmc_is_a_cash_printing_machine_this_is_my_main/)
+- [June 2021 CLNE board approves common shares to be increased specifically for Amazon warrant.](https://www.reddit.com/r/wallstreetbets/comments/of5fbj/june_2021_clne_board_approves_common_shares_to_be/)
+- [When You Paperhand Amzn and it jumps up another 6K.](https://www.reddit.com/r/wallstreetbets/comments/of559d/when_you_paperhand_amzn_and_it_jumps_up_another_6k/)
+- [All in on UWMC](https://www.reddit.com/r/wallstreetbets/comments/of4u8w/all_in_on_uwmc/)
+- [$323k UWMC buy today, total invested is now $932k. Goal is $1M this week. LFG 🚀](https://www.reddit.com/r/wallstreetbets/comments/of4ahp/323k_uwmc_buy_today_total_invested_is_now_932k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
