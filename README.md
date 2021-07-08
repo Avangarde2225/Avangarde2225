@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [UWMC is a cash printing machine. This is my main account with another ~13k shares in another one.](https://www.reddit.com/r/wallstreetbets/comments/of5gyx/uwmc_is_a_cash_printing_machine_this_is_my_main/)
-- [June 2021 CLNE board approves common shares to be increased specifically for Amazon warrant.](https://www.reddit.com/r/wallstreetbets/comments/of5fbj/june_2021_clne_board_approves_common_shares_to_be/)
-- [When You Paperhand Amzn and it jumps up another 6K.](https://www.reddit.com/r/wallstreetbets/comments/of559d/when_you_paperhand_amzn_and_it_jumps_up_another_6k/)
-- [All in on UWMC](https://www.reddit.com/r/wallstreetbets/comments/of4u8w/all_in_on_uwmc/)
-- [$323k UWMC buy today, total invested is now $932k. Goal is $1M this week. LFG 🚀](https://www.reddit.com/r/wallstreetbets/comments/of4ahp/323k_uwmc_buy_today_total_invested_is_now_932k/)
+- [Don’t be a square!](https://www.reddit.com/r/wallstreetbets/comments/ofscns/dont_be_a_square/)
+- [NEGG's cheap paper. Don't get fucking played](https://www.reddit.com/r/wallstreetbets/comments/ofsb8t/neggs_cheap_paper_dont_get_fucking_played/)
+- [NEGG gains - three weeks in the making, bought at $10.10, sold at $52.52 (avg), Profit of $42.42 per share. 107k (420%) total gain.](https://www.reddit.com/r/wallstreetbets/comments/ofrkl0/negg_gains_three_weeks_in_the_making_bought_at/)
+- [Not a loss if I don't sell ($CLOV)](https://www.reddit.com/r/wallstreetbets/comments/ofr499/not_a_loss_if_i_dont_sell_clov/)
+- [What Are Your Moves Tomorrow, July 08, 2021](https://www.reddit.com/r/wallstreetbets/comments/ofqt00/what_are_your_moves_tomorrow_july_08_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
