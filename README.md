@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Don’t be a square!](https://www.reddit.com/r/wallstreetbets/comments/ofscns/dont_be_a_square/)
-- [NEGG's cheap paper. Don't get fucking played](https://www.reddit.com/r/wallstreetbets/comments/ofsb8t/neggs_cheap_paper_dont_get_fucking_played/)
-- [NEGG gains - three weeks in the making, bought at $10.10, sold at $52.52 (avg), Profit of $42.42 per share. 107k (420%) total gain.](https://www.reddit.com/r/wallstreetbets/comments/ofrkl0/negg_gains_three_weeks_in_the_making_bought_at/)
-- [Not a loss if I don't sell ($CLOV)](https://www.reddit.com/r/wallstreetbets/comments/ofr499/not_a_loss_if_i_dont_sell_clov/)
-- [What Are Your Moves Tomorrow, July 08, 2021](https://www.reddit.com/r/wallstreetbets/comments/ofqt00/what_are_your_moves_tomorrow_july_08_2021/)
+- [AMC IS DOING GOOD TODAY!!! Squeeze will start tomorrow!!!](https://www.reddit.com/r/wallstreetbets/comments/ogji2s/amc_is_doing_good_today_squeeze_will_start/)
+- [Kids, don't forget: win little, lose big](https://www.reddit.com/r/wallstreetbets/comments/ogj02z/kids_dont_forget_win_little_lose_big/)
+- [$SOFI YOLO…I am a Sofi Money user and love what they offer…I believe!](https://www.reddit.com/r/wallstreetbets/comments/ogivta/sofi_yoloi_am_a_sofi_money_user_and_love_what/)
+- [Cannot wait for the flight on Sunday and the stock rocket next Monday (SPCE)](https://www.reddit.com/r/wallstreetbets/comments/ogi3w0/cannot_wait_for_the_flight_on_sunday_and_the/)
+- [SPCE TO THE 🌙 literally!](https://www.reddit.com/r/wallstreetbets/comments/oghesk/spce_to_the_literally/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
