@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC IS DOING GOOD TODAY!!! Squeeze will start tomorrow!!!](https://www.reddit.com/r/wallstreetbets/comments/ogji2s/amc_is_doing_good_today_squeeze_will_start/)
-- [Kids, don't forget: win little, lose big](https://www.reddit.com/r/wallstreetbets/comments/ogj02z/kids_dont_forget_win_little_lose_big/)
-- [$SOFI YOLO…I am a Sofi Money user and love what they offer…I believe!](https://www.reddit.com/r/wallstreetbets/comments/ogivta/sofi_yoloi_am_a_sofi_money_user_and_love_what/)
-- [Cannot wait for the flight on Sunday and the stock rocket next Monday (SPCE)](https://www.reddit.com/r/wallstreetbets/comments/ogi3w0/cannot_wait_for_the_flight_on_sunday_and_the/)
-- [SPCE TO THE 🌙 literally!](https://www.reddit.com/r/wallstreetbets/comments/oghesk/spce_to_the_literally/)
+- [Meme Wars 2021](https://www.reddit.com/r/wallstreetbets/comments/oh6lj8/meme_wars_2021/)
+- [💎🙌🏻 Lower volume -> consolidation -> Green dildo -> Ramp -> Rip -> Peak](https://www.reddit.com/r/wallstreetbets/comments/oh6bvq/lower_volume_consolidation_green_dildo_ramp_rip/)
+- [Nokia (NOK) to Power KUKA Automation Solutions With 5G Network](https://www.reddit.com/r/wallstreetbets/comments/oh5n1o/nokia_nok_to_power_kuka_automation_solutions_with/)
+- [DOWN WITH APPLE 🍎💣 $400,000 SHORT!!!](https://www.reddit.com/r/wallstreetbets/comments/oh51bw/down_with_apple_400000_short/)
+- [Fucking gay bears almost got me... 🐻🌈](https://www.reddit.com/r/wallstreetbets/comments/oh3u7p/fucking_gay_bears_almost_got_me/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
