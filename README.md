@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [~200k in SPCE calls across 2 accounts, I've got high hopes for tomorrow's open](https://www.reddit.com/r/wallstreetbets/comments/oifr74/200k_in_spce_calls_across_2_accounts_ive_got_high/)
-- [Downside Up](https://www.reddit.com/r/wallstreetbets/comments/oidid5/downside_up/)
-- [AMD Stock: $111 Target From Goldman Sachs](https://www.reddit.com/r/wallstreetbets/comments/oiddin/amd_stock_111_target_from_goldman_sachs/)
-- [Is it just me, or does the quality of posts seem to be on the rise?](https://www.reddit.com/r/wallstreetbets/comments/oibyzf/is_it_just_me_or_does_the_quality_of_posts_seem/)
-- [Sunday Nights are when the fun starts](https://www.reddit.com/r/wallstreetbets/comments/oibd7s/sunday_nights_are_when_the_fun_starts/)
+- [More bananas to come soon. $amc](https://www.reddit.com/r/wallstreetbets/comments/oj3haq/more_bananas_to_come_soon_amc/)
+- [$300k CLOV YOLO UPDATE! Don’t tell my wife’s bf 🤫🤫🤫](https://www.reddit.com/r/wallstreetbets/comments/oj3830/300k_clov_yolo_update_dont_tell_my_wifes_bf/)
+- [Let's see how tomorrow plays out. $CLOV](https://www.reddit.com/r/wallstreetbets/comments/oj32qr/lets_see_how_tomorrow_plays_out_clov/)
+- [Lockheed Martin (LMT) DD:](https://www.reddit.com/r/wallstreetbets/comments/oj1luk/lockheed_martin_lmt_dd/)
+- [Daily Option Statistics for SPCE, CLOV, AMC, GME, TSLA, WISH, DIS, BB, SOFI and others.](https://www.reddit.com/r/wallstreetbets/comments/oj14y8/daily_option_statistics_for_spce_clov_amc_gme/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
