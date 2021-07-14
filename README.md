@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [More bananas to come soon. $amc](https://www.reddit.com/r/wallstreetbets/comments/oj3haq/more_bananas_to_come_soon_amc/)
-- [$300k CLOV YOLO UPDATE! Don’t tell my wife’s bf 🤫🤫🤫](https://www.reddit.com/r/wallstreetbets/comments/oj3830/300k_clov_yolo_update_dont_tell_my_wifes_bf/)
-- [Let's see how tomorrow plays out. $CLOV](https://www.reddit.com/r/wallstreetbets/comments/oj32qr/lets_see_how_tomorrow_plays_out_clov/)
-- [Lockheed Martin (LMT) DD:](https://www.reddit.com/r/wallstreetbets/comments/oj1luk/lockheed_martin_lmt_dd/)
-- [Daily Option Statistics for SPCE, CLOV, AMC, GME, TSLA, WISH, DIS, BB, SOFI and others.](https://www.reddit.com/r/wallstreetbets/comments/oj14y8/daily_option_statistics_for_spce_clov_amc_gme/)
+- [Long time $wish investor(from IPO) who exited position (1.3 million USD) before sell of, loading up heavy again due to recent bullish developments - discussion](https://www.reddit.com/r/wallstreetbets/comments/ojr5jl/long_time_wish_investorfrom_ipo_who_exited/)
+- [Current State of $GME and $AMC - Unbiased Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/ojpqu3/current_state_of_gme_and_amc_unbiased_technical/)
+- [Schumer’s Pot Bill Said to Open Up Banking, Stock Exchanges](https://www.reddit.com/r/wallstreetbets/comments/ojp3t5/schumers_pot_bill_said_to_open_up_banking_stock/)
+- [It’s only Tuesday](https://www.reddit.com/r/wallstreetbets/comments/ojp0dr/its_only_tuesday/)
+- [Why I'm Holding Onto $433,000 in $SAVA Gains](https://www.reddit.com/r/wallstreetbets/comments/ojoj3s/why_im_holding_onto_433000_in_sava_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
