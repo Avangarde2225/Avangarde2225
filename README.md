@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Long time $wish investor(from IPO) who exited position (1.3 million USD) before sell of, loading up heavy again due to recent bullish developments - discussion](https://www.reddit.com/r/wallstreetbets/comments/ojr5jl/long_time_wish_investorfrom_ipo_who_exited/)
-- [Current State of $GME and $AMC - Unbiased Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/ojpqu3/current_state_of_gme_and_amc_unbiased_technical/)
-- [Schumer’s Pot Bill Said to Open Up Banking, Stock Exchanges](https://www.reddit.com/r/wallstreetbets/comments/ojp3t5/schumers_pot_bill_said_to_open_up_banking_stock/)
-- [It’s only Tuesday](https://www.reddit.com/r/wallstreetbets/comments/ojp0dr/its_only_tuesday/)
-- [Why I'm Holding Onto $433,000 in $SAVA Gains](https://www.reddit.com/r/wallstreetbets/comments/ojoj3s/why_im_holding_onto_433000_in_sava_gains/)
+- [Imagine CNBs if this was Tesla. You’d hear about it for months](https://www.reddit.com/r/wallstreetbets/comments/okfex5/imagine_cnbs_if_this_was_tesla_youd_hear_about_it/)
+- [Beach BODY stock is it gonna boom!?](https://www.reddit.com/r/wallstreetbets/comments/okfasr/beach_body_stock_is_it_gonna_boom/)
+- [MMAT YOLO 🍇🦄🦄](https://www.reddit.com/r/wallstreetbets/comments/okeon7/mmat_yolo/)
+- [Who ever requested loss porn](https://www.reddit.com/r/wallstreetbets/comments/okehpk/who_ever_requested_loss_porn/)
+- [I tried options for the first time and...](https://www.reddit.com/r/wallstreetbets/comments/oke7p6/i_tried_options_for_the_first_time_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
