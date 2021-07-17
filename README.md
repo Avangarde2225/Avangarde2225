@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Housing crash is definitely coming and I will tell you exactly when](https://www.reddit.com/r/wallstreetbets/comments/ol4wgi/housing_crash_is_definitely_coming_and_i_will/)
-- [Trucking industry may be indicating a market crash/correction](https://www.reddit.com/r/wallstreetbets/comments/ol4kc7/trucking_industry_may_be_indicating_a_market/)
-- [They will never understand us…](https://www.reddit.com/r/wallstreetbets/comments/ol2pnr/they_will_never_understand_us/)
-- [How do you guys keep a lid on your earnings excitement?](https://www.reddit.com/r/wallstreetbets/comments/ol1miz/how_do_you_guys_keep_a_lid_on_your_earnings/)
-- [What Are Your Moves Tomorrow, July 16, 2021](https://www.reddit.com/r/wallstreetbets/comments/ol0niy/what_are_your_moves_tomorrow_july_16_2021/)
+- [The Absolute State of WSB](https://www.reddit.com/r/wallstreetbets/comments/olqn7e/the_absolute_state_of_wsb/)
+- [Zillow is aiming to kill real estate agents](https://www.reddit.com/r/wallstreetbets/comments/olqhjh/zillow_is_aiming_to_kill_real_estate_agents/)
+- [Options Losses…wank to this you savages](https://www.reddit.com/r/wallstreetbets/comments/olqfis/options_losseswank_to_this_you_savages/)
+- [The current status of my spy calls](https://www.reddit.com/r/wallstreetbets/comments/olq6ti/the_current_status_of_my_spy_calls/)
+- [-$100,000 Loss on GME Options](https://www.reddit.com/r/wallstreetbets/comments/olq2zu/100000_loss_on_gme_options/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
