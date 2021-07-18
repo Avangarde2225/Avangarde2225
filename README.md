@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Absolute State of WSB](https://www.reddit.com/r/wallstreetbets/comments/olqn7e/the_absolute_state_of_wsb/)
-- [Zillow is aiming to kill real estate agents](https://www.reddit.com/r/wallstreetbets/comments/olqhjh/zillow_is_aiming_to_kill_real_estate_agents/)
-- [Options Losses…wank to this you savages](https://www.reddit.com/r/wallstreetbets/comments/olqfis/options_losseswank_to_this_you_savages/)
-- [The current status of my spy calls](https://www.reddit.com/r/wallstreetbets/comments/olq6ti/the_current_status_of_my_spy_calls/)
-- [-$100,000 Loss on GME Options](https://www.reddit.com/r/wallstreetbets/comments/olq2zu/100000_loss_on_gme_options/)
+- [Took a hard hit last week... Still holding some tho!!!](https://www.reddit.com/r/wallstreetbets/comments/omeo5j/took_a_hard_hit_last_week_still_holding_some_tho/)
+- [$1.2MM AvePoint (AVPT) Yolo!](https://www.reddit.com/r/wallstreetbets/comments/omec0o/12mm_avepoint_avpt_yolo/)
+- [$HIMS and hers DD, It's not just a boner pill company, it's a multiplatform telehealth service with subscripton based revenue and multiple products all over the health sector](https://www.reddit.com/r/wallstreetbets/comments/omcxcp/hims_and_hers_dd_its_not_just_a_boner_pill/)
+- [This is so stupid; I wanna exercise my calls and buy 300 shares for $800 each, but it’s telling me i’m not allowed to.. Anyone here retarded enough to help me out?](https://www.reddit.com/r/wallstreetbets/comments/omcu0q/this_is_so_stupid_i_wanna_exercise_my_calls_and/)
+- [Saucy Play - Ketchup 😉 Kraft Heinze $KHC](https://www.reddit.com/r/wallstreetbets/comments/omcqtj/saucy_play_ketchup_kraft_heinze_khc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
