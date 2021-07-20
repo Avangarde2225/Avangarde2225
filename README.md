@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Expanding Market Share, Superior Products, $4B in share buy back ... *sigh* -$16K](https://www.reddit.com/r/wallstreetbets/comments/on1fky/expanding_market_share_superior_products_4b_in/)
-- [China Signals End to $2 Trillion U.S. Stock Listing Juggernaut](https://www.reddit.com/r/wallstreetbets/comments/on1feo/china_signals_end_to_2_trillion_us_stock_listing/)
-- [Sunday Watchlist Soft TA - Sheela (you know which one), AEHR, SPCE, VERB, ATOS, SGOC, RCAT, NEGG, CLOV, MRIN, Buzz Aldrin (obvious)?](https://www.reddit.com/r/wallstreetbets/comments/on17tw/sunday_watchlist_soft_ta_sheela_you_know_which/)
-- [Market Perspective: Recent Trends and Performance in Charts](https://www.reddit.com/r/wallstreetbets/comments/on00fy/market_perspective_recent_trends_and_performance/)
-- [What Are Your Moves Tomorrow, July 19, 2021](https://www.reddit.com/r/wallstreetbets/comments/omy3dz/what_are_your_moves_tomorrow_july_19_2021/)
+- [Bb yolo update](https://www.reddit.com/r/wallstreetbets/comments/onmn15/bb_yolo_update/)
+- [$WISH: I just bought $79 worth of stuff (14 items) that I didn’t know I needed on WISH app](https://www.reddit.com/r/wallstreetbets/comments/onmkie/wish_i_just_bought_79_worth_of_stuff_14_items/)
+- [Monday Gamble ♣️ - $DKNG](https://www.reddit.com/r/wallstreetbets/comments/onmd5b/monday_gamble_dkng/)
+- [Spy Puts go BRRRRR](https://www.reddit.com/r/wallstreetbets/comments/onmca0/spy_puts_go_brrrrr/)
+- [Why I bought $AMZN Calls for the Space Flight Tomorrow...](https://www.reddit.com/r/wallstreetbets/comments/onm2cl/why_i_bought_amzn_calls_for_the_space_flight/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
