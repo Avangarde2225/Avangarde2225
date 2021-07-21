@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bb yolo update](https://www.reddit.com/r/wallstreetbets/comments/onmn15/bb_yolo_update/)
-- [$WISH: I just bought $79 worth of stuff (14 items) that I didn’t know I needed on WISH app](https://www.reddit.com/r/wallstreetbets/comments/onmkie/wish_i_just_bought_79_worth_of_stuff_14_items/)
-- [Monday Gamble ♣️ - $DKNG](https://www.reddit.com/r/wallstreetbets/comments/onmd5b/monday_gamble_dkng/)
-- [Spy Puts go BRRRRR](https://www.reddit.com/r/wallstreetbets/comments/onmca0/spy_puts_go_brrrrr/)
-- [Why I bought $AMZN Calls for the Space Flight Tomorrow...](https://www.reddit.com/r/wallstreetbets/comments/onm2cl/why_i_bought_amzn_calls_for_the_space_flight/)
+- [Analysis: The Economic Impact of Ending the Eviction & Foreclosure Moratoriums in 31st July 2021](https://www.reddit.com/r/wallstreetbets/comments/oocxuz/analysis_the_economic_impact_of_ending_the/)
+- [Tesla (TSLA) could make more money from software subscription than hardware, says analyst](https://www.reddit.com/r/wallstreetbets/comments/ooc30q/tesla_tsla_could_make_more_money_from_software/)
+- [90k SNDL Done!](https://www.reddit.com/r/wallstreetbets/comments/ooc1cy/90k_sndl_done/)
+- [$CRSR to the moon!!!! We’re gonna be printing boys #brrrrrrr🚀🚀🚀🌝🌝🌝](https://www.reddit.com/r/wallstreetbets/comments/ooau42/crsr_to_the_moon_were_gonna_be_printing_boys/)
+- [I Stand Corrected..... Bears This Week Be Like THIS:](https://www.reddit.com/r/wallstreetbets/comments/ooalp2/i_stand_corrected_bears_this_week_be_like_this/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
