@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Analysis: The Economic Impact of Ending the Eviction & Foreclosure Moratoriums in 31st July 2021](https://www.reddit.com/r/wallstreetbets/comments/oocxuz/analysis_the_economic_impact_of_ending_the/)
-- [Tesla (TSLA) could make more money from software subscription than hardware, says analyst](https://www.reddit.com/r/wallstreetbets/comments/ooc30q/tesla_tsla_could_make_more_money_from_software/)
-- [90k SNDL Done!](https://www.reddit.com/r/wallstreetbets/comments/ooc1cy/90k_sndl_done/)
-- [$CRSR to the moon!!!! We’re gonna be printing boys #brrrrrrr🚀🚀🚀🌝🌝🌝](https://www.reddit.com/r/wallstreetbets/comments/ooau42/crsr_to_the_moon_were_gonna_be_printing_boys/)
-- [I Stand Corrected..... Bears This Week Be Like THIS:](https://www.reddit.com/r/wallstreetbets/comments/ooalp2/i_stand_corrected_bears_this_week_be_like_this/)
+- [SOFI YOLO, God if you exist and SOFI goes down I’ll see you soon](https://www.reddit.com/r/wallstreetbets/comments/op1t8s/sofi_yolo_god_if_you_exist_and_sofi_goes_down_ill/)
+- [So, which one of you retards just spent 3.5M on $BABA calls?](https://www.reddit.com/r/wallstreetbets/comments/op0s4h/so_which_one_of_you_retards_just_spent_35m_on/)
+- [WSB Reaction to "Helpful Trading Guide" Posts](https://www.reddit.com/r/wallstreetbets/comments/op0m4m/wsb_reaction_to_helpful_trading_guide_posts/)
+- [Update $AMD position](https://www.reddit.com/r/wallstreetbets/comments/oozklw/update_amd_position/)
+- [CLOV DD be like](https://www.reddit.com/r/wallstreetbets/comments/ooze76/clov_dd_be_like/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
