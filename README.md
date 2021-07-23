@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SOFI YOLO, God if you exist and SOFI goes down I’ll see you soon](https://www.reddit.com/r/wallstreetbets/comments/op1t8s/sofi_yolo_god_if_you_exist_and_sofi_goes_down_ill/)
-- [So, which one of you retards just spent 3.5M on $BABA calls?](https://www.reddit.com/r/wallstreetbets/comments/op0s4h/so_which_one_of_you_retards_just_spent_35m_on/)
-- [WSB Reaction to "Helpful Trading Guide" Posts](https://www.reddit.com/r/wallstreetbets/comments/op0m4m/wsb_reaction_to_helpful_trading_guide_posts/)
-- [Update $AMD position](https://www.reddit.com/r/wallstreetbets/comments/oozklw/update_amd_position/)
-- [CLOV DD be like](https://www.reddit.com/r/wallstreetbets/comments/ooze76/clov_dd_be_like/)
+- [This is going to sting tomorrow](https://www.reddit.com/r/wallstreetbets/comments/opphl7/this_is_going_to_sting_tomorrow/)
+- [Flatline](https://www.reddit.com/r/wallstreetbets/comments/opp86r/flatline/)
+- [AMC Tendies Still in Play](https://www.reddit.com/r/wallstreetbets/comments/opp27u/amc_tendies_still_in_play/)
+- [Tsla yolo](https://www.reddit.com/r/wallstreetbets/comments/opo5md/tsla_yolo/)
+- [Actual footage of CLNE searching for its "Price Target" of $20](https://www.reddit.com/r/wallstreetbets/comments/opo517/actual_footage_of_clne_searching_for_its_price/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
