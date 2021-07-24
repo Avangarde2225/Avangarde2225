@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is going to sting tomorrow](https://www.reddit.com/r/wallstreetbets/comments/opphl7/this_is_going_to_sting_tomorrow/)
-- [Flatline](https://www.reddit.com/r/wallstreetbets/comments/opp86r/flatline/)
-- [AMC Tendies Still in Play](https://www.reddit.com/r/wallstreetbets/comments/opp27u/amc_tendies_still_in_play/)
-- [Tsla yolo](https://www.reddit.com/r/wallstreetbets/comments/opo5md/tsla_yolo/)
-- [Actual footage of CLNE searching for its "Price Target" of $20](https://www.reddit.com/r/wallstreetbets/comments/opo517/actual_footage_of_clne_searching_for_its_price/)
+- [Bought at the end of market yesterday and sold at market open today for a nice $38,540.00 profit. NIO $46.5 P 07/30.](https://www.reddit.com/r/wallstreetbets/comments/oqe6fn/bought_at_the_end_of_market_yesterday_and_sold_at/)
+- [A 1.6k yolo to 48k. If I held one more day it would have been 104k](https://www.reddit.com/r/wallstreetbets/comments/oqdwnz/a_16k_yolo_to_48k_if_i_held_one_more_day_it_would/)
+- [YOLO $WISH buy the capitulation 🚀💎🙌📈🤩🦁](https://www.reddit.com/r/wallstreetbets/comments/oqdhpj/yolo_wish_buy_the_capitulation/)
+- [Jim Cramer is a Master clown](https://www.reddit.com/r/wallstreetbets/comments/oqdet7/jim_cramer_is_a_master_clown/)
+- [Rent money gamble: 10 AMC calls for 7/30](https://www.reddit.com/r/wallstreetbets/comments/oqcyae/rent_money_gamble_10_amc_calls_for_730/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
