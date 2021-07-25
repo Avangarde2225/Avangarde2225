@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought at the end of market yesterday and sold at market open today for a nice $38,540.00 profit. NIO $46.5 P 07/30.](https://www.reddit.com/r/wallstreetbets/comments/oqe6fn/bought_at_the_end_of_market_yesterday_and_sold_at/)
-- [A 1.6k yolo to 48k. If I held one more day it would have been 104k](https://www.reddit.com/r/wallstreetbets/comments/oqdwnz/a_16k_yolo_to_48k_if_i_held_one_more_day_it_would/)
-- [YOLO $WISH buy the capitulation 🚀💎🙌📈🤩🦁](https://www.reddit.com/r/wallstreetbets/comments/oqdhpj/yolo_wish_buy_the_capitulation/)
-- [Jim Cramer is a Master clown](https://www.reddit.com/r/wallstreetbets/comments/oqdet7/jim_cramer_is_a_master_clown/)
-- [Rent money gamble: 10 AMC calls for 7/30](https://www.reddit.com/r/wallstreetbets/comments/oqcyae/rent_money_gamble_10_amc_calls_for_730/)
+- [As moratoriums lift, will America face a wave of foreclosures and evictions? | In Miami as elsewhere, a house-price boom and a housing crisis could happen at the same time](https://www.reddit.com/r/wallstreetbets/comments/or0gux/as_moratoriums_lift_will_america_face_a_wave_of/)
+- [NIO earnings this week? Wtf we doing?](https://www.reddit.com/r/wallstreetbets/comments/oqz7gs/nio_earnings_this_week_wtf_we_doing/)
+- [F](https://www.reddit.com/r/wallstreetbets/comments/oqz5tv/f/)
+- [SPY open interest volume 🤡](https://www.reddit.com/r/wallstreetbets/comments/oqyfrk/spy_open_interest_volume/)
+- [Come on baba😭](https://www.reddit.com/r/wallstreetbets/comments/oqy2w4/come_on_baba/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
