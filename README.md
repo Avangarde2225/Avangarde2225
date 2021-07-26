@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [As moratoriums lift, will America face a wave of foreclosures and evictions? | In Miami as elsewhere, a house-price boom and a housing crisis could happen at the same time](https://www.reddit.com/r/wallstreetbets/comments/or0gux/as_moratoriums_lift_will_america_face_a_wave_of/)
-- [NIO earnings this week? Wtf we doing?](https://www.reddit.com/r/wallstreetbets/comments/oqz7gs/nio_earnings_this_week_wtf_we_doing/)
-- [F](https://www.reddit.com/r/wallstreetbets/comments/oqz5tv/f/)
-- [SPY open interest volume 🤡](https://www.reddit.com/r/wallstreetbets/comments/oqyfrk/spy_open_interest_volume/)
-- [Come on baba😭](https://www.reddit.com/r/wallstreetbets/comments/oqy2w4/come_on_baba/)
+- [It's a simple but effect spell...](https://www.reddit.com/r/wallstreetbets/comments/ormjts/its_a_simple_but_effect_spell/)
+- [Lucid Motors DD ($LCID)🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/orm6kp/lucid_motors_dd_lcid/)
+- [The 2008 BANKING CRISIS in a nutshell.](https://www.reddit.com/r/wallstreetbets/comments/orldmk/the_2008_banking_crisis_in_a_nutshell/)
+- [Historical Post Earnings Moves MEGA Compilation and Analysis (Q2 Week 3) - $TSLA, $AAPL, $AMZN, $MSFT, $GOOG, $FB, $AMD, and More](https://www.reddit.com/r/wallstreetbets/comments/orkwxl/historical_post_earnings_moves_mega_compilation/)
+- [How government created the 08 market crash and is creating the one we’ll see in 2022](https://www.reddit.com/r/wallstreetbets/comments/orkpum/how_government_created_the_08_market_crash_and_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
