@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It's a simple but effect spell...](https://www.reddit.com/r/wallstreetbets/comments/ormjts/its_a_simple_but_effect_spell/)
-- [Lucid Motors DD ($LCID)🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/orm6kp/lucid_motors_dd_lcid/)
-- [The 2008 BANKING CRISIS in a nutshell.](https://www.reddit.com/r/wallstreetbets/comments/orldmk/the_2008_banking_crisis_in_a_nutshell/)
-- [Historical Post Earnings Moves MEGA Compilation and Analysis (Q2 Week 3) - $TSLA, $AAPL, $AMZN, $MSFT, $GOOG, $FB, $AMD, and More](https://www.reddit.com/r/wallstreetbets/comments/orkwxl/historical_post_earnings_moves_mega_compilation/)
-- [How government created the 08 market crash and is creating the one we’ll see in 2022](https://www.reddit.com/r/wallstreetbets/comments/orkpum/how_government_created_the_08_market_crash_and_is/)
+- [When Autists Touch Forex](https://www.reddit.com/r/wallstreetbets/comments/osbbvd/when_autists_touch_forex/)
+- [Clearing the (Lucid) Air about Lucid Motors](https://www.reddit.com/r/wallstreetbets/comments/osb0k7/clearing_the_lucid_air_about_lucid_motors/)
+- [$600K YOLO on $CLOV. bullish as ever. 🍀🍀🚀🚀 Still diamond handing my $GME as well](https://www.reddit.com/r/wallstreetbets/comments/osaz9c/600k_yolo_on_clov_bullish_as_ever_still_diamond/)
+- [Jeff Bezos is going crazy](https://www.reddit.com/r/wallstreetbets/comments/os9e78/jeff_bezos_is_going_crazy/)
+- [Is there any easier money on Earth right now than SPY/QQQ ATM daily calls? Let’s go JPOW 🇺🇸🦅🚀🌘💎🙌🐂📈](https://www.reddit.com/r/wallstreetbets/comments/os7837/is_there_any_easier_money_on_earth_right_now_than/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
