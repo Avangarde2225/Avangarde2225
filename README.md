@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When Autists Touch Forex](https://www.reddit.com/r/wallstreetbets/comments/osbbvd/when_autists_touch_forex/)
-- [Clearing the (Lucid) Air about Lucid Motors](https://www.reddit.com/r/wallstreetbets/comments/osb0k7/clearing_the_lucid_air_about_lucid_motors/)
-- [$600K YOLO on $CLOV. bullish as ever. 🍀🍀🚀🚀 Still diamond handing my $GME as well](https://www.reddit.com/r/wallstreetbets/comments/osaz9c/600k_yolo_on_clov_bullish_as_ever_still_diamond/)
-- [Jeff Bezos is going crazy](https://www.reddit.com/r/wallstreetbets/comments/os9e78/jeff_bezos_is_going_crazy/)
-- [Is there any easier money on Earth right now than SPY/QQQ ATM daily calls? Let’s go JPOW 🇺🇸🦅🚀🌘💎🙌🐂📈](https://www.reddit.com/r/wallstreetbets/comments/os7837/is_there_any_easier_money_on_earth_right_now_than/)
+- [Join WSB he said, you will be rich he said...](https://www.reddit.com/r/wallstreetbets/comments/osy989/join_wsb_he_said_you_will_be_rich_he_said/)
+- [Robinhood reveals new investigation on the eve of its blockbuster IPO](https://www.reddit.com/r/wallstreetbets/comments/osxydl/robinhood_reveals_new_investigation_on_the_eve_of/)
+- [Run.](https://www.reddit.com/r/wallstreetbets/comments/osx9cw/run/)
+- [After they sold my stuff, I got banned, what's next? A email from roberhood asking for there 14k? Happy Tuesday family](https://www.reddit.com/r/wallstreetbets/comments/oswtjv/after_they_sold_my_stuff_i_got_banned_whats_next/)
+- [the ONLY DD you need not to be a 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/oswj2y/the_only_dd_you_need_not_to_be_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
