@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Join WSB he said, you will be rich he said...](https://www.reddit.com/r/wallstreetbets/comments/osy989/join_wsb_he_said_you_will_be_rich_he_said/)
-- [Robinhood reveals new investigation on the eve of its blockbuster IPO](https://www.reddit.com/r/wallstreetbets/comments/osxydl/robinhood_reveals_new_investigation_on_the_eve_of/)
-- [Run.](https://www.reddit.com/r/wallstreetbets/comments/osx9cw/run/)
-- [After they sold my stuff, I got banned, what's next? A email from roberhood asking for there 14k? Happy Tuesday family](https://www.reddit.com/r/wallstreetbets/comments/oswtjv/after_they_sold_my_stuff_i_got_banned_whats_next/)
-- [the ONLY DD you need not to be a 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/oswj2y/the_only_dd_you_need_not_to_be_a/)
+- [Robinhood investigated because ceo is not registered in U.S. financial industry regulatory authority](https://www.reddit.com/r/wallstreetbets/comments/otkj7y/robinhood_investigated_because_ceo_is_not/)
+- [How to use side way trading days to your advantage (SPY) and understanding IV](https://www.reddit.com/r/wallstreetbets/comments/otk5bi/how_to_use_side_way_trading_days_to_your/)
+- [Don't compare CRSR to Logitech.](https://www.reddit.com/r/wallstreetbets/comments/otiqsi/dont_compare_crsr_to_logitech/)
+- [FB is undervalued they say, can't go wrong with facebook they say](https://www.reddit.com/r/wallstreetbets/comments/otind7/fb_is_undervalued_they_say_cant_go_wrong_with/)
+- [Bottom fishing in $BABA . Earnings next week . Thank you shorts, Bloomberg and CNBC for getting this so cheap](https://www.reddit.com/r/wallstreetbets/comments/oti1cj/bottom_fishing_in_baba_earnings_next_week_thank/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
