@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Robinhood investigated because ceo is not registered in U.S. financial industry regulatory authority](https://www.reddit.com/r/wallstreetbets/comments/otkj7y/robinhood_investigated_because_ceo_is_not/)
-- [How to use side way trading days to your advantage (SPY) and understanding IV](https://www.reddit.com/r/wallstreetbets/comments/otk5bi/how_to_use_side_way_trading_days_to_your/)
-- [Don't compare CRSR to Logitech.](https://www.reddit.com/r/wallstreetbets/comments/otiqsi/dont_compare_crsr_to_logitech/)
-- [FB is undervalued they say, can't go wrong with facebook they say](https://www.reddit.com/r/wallstreetbets/comments/otind7/fb_is_undervalued_they_say_cant_go_wrong_with/)
-- [Bottom fishing in $BABA . Earnings next week . Thank you shorts, Bloomberg and CNBC for getting this so cheap](https://www.reddit.com/r/wallstreetbets/comments/oti1cj/bottom_fishing_in_baba_earnings_next_week_thank/)
+- [AMD 3.2k to 15,400k](https://www.reddit.com/r/wallstreetbets/comments/ou8sp6/amd_32k_to_15400k/)
+- [97.89% of CLOV shareholders are underwater](https://www.reddit.com/r/wallstreetbets/comments/ou8f5t/9789_of_clov_shareholders_are_underwater/)
+- [Yolo - Yup, went full retard. FOMO’d 16k into BB after the 10% run up…](https://www.reddit.com/r/wallstreetbets/comments/ou70sd/yolo_yup_went_full_retard_fomod_16k_into_bb_after/)
+- [First ones one free...RIP AMZN](https://www.reddit.com/r/wallstreetbets/comments/ou704m/first_ones_one_freerip_amzn/)
+- [$WISH 80% in under 2 hours. Buy the morning flush sell at the tippy top. Clockwork baby, clockwork. ~yes I am down an absolute fortune on my spot position~](https://www.reddit.com/r/wallstreetbets/comments/ou6inj/wish_80_in_under_2_hours_buy_the_morning_flush/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
