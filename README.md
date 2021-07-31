@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMD 3.2k to 15,400k](https://www.reddit.com/r/wallstreetbets/comments/ou8sp6/amd_32k_to_15400k/)
-- [97.89% of CLOV shareholders are underwater](https://www.reddit.com/r/wallstreetbets/comments/ou8f5t/9789_of_clov_shareholders_are_underwater/)
-- [Yolo - Yup, went full retard. FOMO’d 16k into BB after the 10% run up…](https://www.reddit.com/r/wallstreetbets/comments/ou70sd/yolo_yup_went_full_retard_fomod_16k_into_bb_after/)
-- [First ones one free...RIP AMZN](https://www.reddit.com/r/wallstreetbets/comments/ou704m/first_ones_one_freerip_amzn/)
-- [$WISH 80% in under 2 hours. Buy the morning flush sell at the tippy top. Clockwork baby, clockwork. ~yes I am down an absolute fortune on my spot position~](https://www.reddit.com/r/wallstreetbets/comments/ou6inj/wish_80_in_under_2_hours_buy_the_morning_flush/)
+- [Lost 100k betting on AMC options. Is this yolo enough for you?? 🐒 🚀](https://www.reddit.com/r/wallstreetbets/comments/ouw1f1/lost_100k_betting_on_amc_options_is_this_yolo/)
+- [The 6 stages of a market bubble](https://www.reddit.com/r/wallstreetbets/comments/ouvz3d/the_6_stages_of_a_market_bubble/)
+- [Fuck, my wife’s boyfriend is gunna be pissed… no money for date night this weekend…](https://www.reddit.com/r/wallstreetbets/comments/ouujdd/fuck_my_wifes_boyfriend_is_gunna_be_pissed_no/)
+- [Story: I almost lost $802K today and I did it for $4100 in options premium. Don't do that.](https://www.reddit.com/r/wallstreetbets/comments/ouuhev/story_i_almost_lost_802k_today_and_i_did_it_for/)
+- [AMZN PUTS 900->20k in a day](https://www.reddit.com/r/wallstreetbets/comments/outrw0/amzn_puts_90020k_in_a_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
