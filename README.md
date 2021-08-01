@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lost 100k betting on AMC options. Is this yolo enough for you?? 🐒 🚀](https://www.reddit.com/r/wallstreetbets/comments/ouw1f1/lost_100k_betting_on_amc_options_is_this_yolo/)
-- [The 6 stages of a market bubble](https://www.reddit.com/r/wallstreetbets/comments/ouvz3d/the_6_stages_of_a_market_bubble/)
-- [Fuck, my wife’s boyfriend is gunna be pissed… no money for date night this weekend…](https://www.reddit.com/r/wallstreetbets/comments/ouujdd/fuck_my_wifes_boyfriend_is_gunna_be_pissed_no/)
-- [Story: I almost lost $802K today and I did it for $4100 in options premium. Don't do that.](https://www.reddit.com/r/wallstreetbets/comments/ouuhev/story_i_almost_lost_802k_today_and_i_did_it_for/)
-- [AMZN PUTS 900->20k in a day](https://www.reddit.com/r/wallstreetbets/comments/outrw0/amzn_puts_90020k_in_a_day/)
+- [Delta Variant isn’t the event that will crash the market. Fed tapering and a rise in yields will.](https://www.reddit.com/r/wallstreetbets/comments/ovhjy7/delta_variant_isnt_the_event_that_will_crash_the/)
+- [Retired neurologist with Alzheimer’s knows firsthand the risks of Biogen’s new drug....more DD on $BIIB](https://www.reddit.com/r/wallstreetbets/comments/ovh2nw/retired_neurologist_with_alzheimers_knows/)
+- [Some people say this sub is stupid. To combat this, here's an election ad for Scooby-Doo.](https://www.reddit.com/r/wallstreetbets/comments/ovgl2j/some_people_say_this_sub_is_stupid_to_combat_this/)
+- [Amazon yolo it was a good one and a goodie](https://www.reddit.com/r/wallstreetbets/comments/ovg2qx/amazon_yolo_it_was_a_good_one_and_a_goodie/)
+- [Will the Delta variant cause travel restrictions to remain in place? Puts on Jets?](https://www.reddit.com/r/wallstreetbets/comments/ovfnjc/will_the_delta_variant_cause_travel_restrictions/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
