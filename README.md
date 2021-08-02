@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Delta Variant isn’t the event that will crash the market. Fed tapering and a rise in yields will.](https://www.reddit.com/r/wallstreetbets/comments/ovhjy7/delta_variant_isnt_the_event_that_will_crash_the/)
-- [Retired neurologist with Alzheimer’s knows firsthand the risks of Biogen’s new drug....more DD on $BIIB](https://www.reddit.com/r/wallstreetbets/comments/ovh2nw/retired_neurologist_with_alzheimers_knows/)
-- [Some people say this sub is stupid. To combat this, here's an election ad for Scooby-Doo.](https://www.reddit.com/r/wallstreetbets/comments/ovgl2j/some_people_say_this_sub_is_stupid_to_combat_this/)
-- [Amazon yolo it was a good one and a goodie](https://www.reddit.com/r/wallstreetbets/comments/ovg2qx/amazon_yolo_it_was_a_good_one_and_a_goodie/)
-- [Will the Delta variant cause travel restrictions to remain in place? Puts on Jets?](https://www.reddit.com/r/wallstreetbets/comments/ovfnjc/will_the_delta_variant_cause_travel_restrictions/)
+- [QQQ TA for AUG 2, bullish flag forming, high probability of an up movement in the morning, then a bounce off of supply(red line at the top). Levels to watch QQQ BELLOW 364.30 for a downward move to 362.50. QQQ ABOVE 365 headed to 366.40](https://www.reddit.com/r/wallstreetbets/comments/ow2amg/qqq_ta_for_aug_2_bullish_flag_forming_high/)
+- [GE split](https://www.reddit.com/r/wallstreetbets/comments/ow1w9q/ge_split/)
+- [Square Earnings Dumped early it seems. Call moved to tomorrow before market instead of Aug. 5. Buying Afterpay](https://www.reddit.com/r/wallstreetbets/comments/ow1lzs/square_earnings_dumped_early_it_seems_call_moved/)
+- [Union declares strike in world’s LARGEST copper mine in Chile after labor negotiations fail.](https://www.reddit.com/r/wallstreetbets/comments/ow1iqj/union_declares_strike_in_worlds_largest_copper/)
+- [Bipartisan Infrastructure Deal Could Pass This Week, Senators Say.](https://www.reddit.com/r/wallstreetbets/comments/ow0kft/bipartisan_infrastructure_deal_could_pass_this/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
