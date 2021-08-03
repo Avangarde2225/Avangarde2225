@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [QQQ TA for AUG 2, bullish flag forming, high probability of an up movement in the morning, then a bounce off of supply(red line at the top). Levels to watch QQQ BELLOW 364.30 for a downward move to 362.50. QQQ ABOVE 365 headed to 366.40](https://www.reddit.com/r/wallstreetbets/comments/ow2amg/qqq_ta_for_aug_2_bullish_flag_forming_high/)
-- [GE split](https://www.reddit.com/r/wallstreetbets/comments/ow1w9q/ge_split/)
-- [Square Earnings Dumped early it seems. Call moved to tomorrow before market instead of Aug. 5. Buying Afterpay](https://www.reddit.com/r/wallstreetbets/comments/ow1lzs/square_earnings_dumped_early_it_seems_call_moved/)
-- [Union declares strike in world’s LARGEST copper mine in Chile after labor negotiations fail.](https://www.reddit.com/r/wallstreetbets/comments/ow1iqj/union_declares_strike_in_worlds_largest_copper/)
-- [Bipartisan Infrastructure Deal Could Pass This Week, Senators Say.](https://www.reddit.com/r/wallstreetbets/comments/ow0kft/bipartisan_infrastructure_deal_could_pass_this/)
+- [WSB where are they now! If you got rich or made bank during the crash what's your status? Who do you remember hitting it big?](https://www.reddit.com/r/wallstreetbets/comments/owqko9/wsb_where_are_they_now_if_you_got_rich_or_made/)
+- [Solar madness](https://www.reddit.com/r/wallstreetbets/comments/owojkj/solar_madness/)
+- [Loss Porn for the lads at home](https://www.reddit.com/r/wallstreetbets/comments/owmodb/loss_porn_for_the_lads_at_home/)
+- [What Are Your Moves Tomorrow, August 03, 2021](https://www.reddit.com/r/wallstreetbets/comments/owmjjx/what_are_your_moves_tomorrow_august_03_2021/)
+- [Fed's Waller: could start taper by October, no reason to go slow](https://www.reddit.com/r/wallstreetbets/comments/owlweo/feds_waller_could_start_taper_by_october_no/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
