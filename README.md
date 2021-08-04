@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WSB where are they now! If you got rich or made bank during the crash what's your status? Who do you remember hitting it big?](https://www.reddit.com/r/wallstreetbets/comments/owqko9/wsb_where_are_they_now_if_you_got_rich_or_made/)
-- [Solar madness](https://www.reddit.com/r/wallstreetbets/comments/owojkj/solar_madness/)
-- [Loss Porn for the lads at home](https://www.reddit.com/r/wallstreetbets/comments/owmodb/loss_porn_for_the_lads_at_home/)
-- [What Are Your Moves Tomorrow, August 03, 2021](https://www.reddit.com/r/wallstreetbets/comments/owmjjx/what_are_your_moves_tomorrow_august_03_2021/)
-- [Fed's Waller: could start taper by October, no reason to go slow](https://www.reddit.com/r/wallstreetbets/comments/owlweo/feds_waller_could_start_taper_by_october_no/)
+- [When your largest holding tanks 6% on someone else's earnings](https://www.reddit.com/r/wallstreetbets/comments/oxg4ii/when_your_largest_holding_tanks_6_on_someone/)
+- [Lisa Su keeps my autism erect $AMD](https://www.reddit.com/r/wallstreetbets/comments/oxftlk/lisa_su_keeps_my_autism_erect_amd/)
+- [According to Nasdaq.com, institutions currently own 109.02% of Zillow's total outstanding shares...](https://www.reddit.com/r/wallstreetbets/comments/oxfhug/according_to_nasdaqcom_institutions_currently_own/)
+- [Are we all secretly holding since IPO? I am.](https://www.reddit.com/r/wallstreetbets/comments/oxecbe/are_we_all_secretly_holding_since_ipo_i_am/)
+- [Over 33k in AMD profits 🥳](https://www.reddit.com/r/wallstreetbets/comments/oxearl/over_33k_in_amd_profits/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
