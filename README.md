@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When your largest holding tanks 6% on someone else's earnings](https://www.reddit.com/r/wallstreetbets/comments/oxg4ii/when_your_largest_holding_tanks_6_on_someone/)
-- [Lisa Su keeps my autism erect $AMD](https://www.reddit.com/r/wallstreetbets/comments/oxftlk/lisa_su_keeps_my_autism_erect_amd/)
-- [According to Nasdaq.com, institutions currently own 109.02% of Zillow's total outstanding shares...](https://www.reddit.com/r/wallstreetbets/comments/oxfhug/according_to_nasdaqcom_institutions_currently_own/)
-- [Are we all secretly holding since IPO? I am.](https://www.reddit.com/r/wallstreetbets/comments/oxecbe/are_we_all_secretly_holding_since_ipo_i_am/)
-- [Over 33k in AMD profits 🥳](https://www.reddit.com/r/wallstreetbets/comments/oxearl/over_33k_in_amd_profits/)
+- [MVIS ER Call: MVIS product on Hololense 2… Confirmed!!!](https://www.reddit.com/r/wallstreetbets/comments/oy3u7a/mvis_er_call_mvis_product_on_hololense_2_confirmed/)
+- [Microvast $MVST - Wallstreetbets (1) - Adam 'Dartboard Analyst' Jonas (0)](https://www.reddit.com/r/wallstreetbets/comments/oy2qgz/microvast_mvst_wallstreetbets_1_adam_dartboard/)
+- [Options Trading Exit Strategies - A Guide to Exiting Trades with Maximum Profits](https://www.reddit.com/r/wallstreetbets/comments/oy25tw/options_trading_exit_strategies_a_guide_to/)
+- [1.6k->13k AMD first big win. Held them over night. Thank you tendie Gods.](https://www.reddit.com/r/wallstreetbets/comments/oy1g08/16k13k_amd_first_big_win_held_them_over_night/)
+- [What Are Your Moves Tomorrow, August 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/oy0ywp/what_are_your_moves_tomorrow_august_05_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
