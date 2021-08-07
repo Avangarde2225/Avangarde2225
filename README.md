@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hope everyone is enjoying summer trading as much as me](https://www.reddit.com/r/wallstreetbets/comments/oyuwe8/hope_everyone_is_enjoying_summer_trading_as_much/)
-- [Not gonna lie, last week was a pretty good week for me...](https://www.reddit.com/r/wallstreetbets/comments/oyu0vd/not_gonna_lie_last_week_was_a_pretty_good_week/)
-- [Band of Stonks](https://www.reddit.com/r/wallstreetbets/comments/oyt6mc/band_of_stonks/)
-- [Life in NYC.](https://www.reddit.com/r/wallstreetbets/comments/oyt3ol/life_in_nyc/)
-- [When Banks get Caught Manipulating Currencies](https://www.reddit.com/r/wallstreetbets/comments/oysbq8/when_banks_get_caught_manipulating_currencies/)
+- [My brain asking me if I’m sure before yoloing naked options.](https://www.reddit.com/r/wallstreetbets/comments/ozhx4h/my_brain_asking_me_if_im_sure_before_yoloing/)
+- [Can't wait to be homeless](https://www.reddit.com/r/wallstreetbets/comments/ozgz54/cant_wait_to_be_homeless/)
+- [Would a CEO buying puts on his company, then subsequently showing his balls on live TV be considered insider trading?](https://www.reddit.com/r/wallstreetbets/comments/ozgojg/would_a_ceo_buying_puts_on_his_company_then/)
+- [Being a retail investor in 2021](https://www.reddit.com/r/wallstreetbets/comments/ozg4d7/being_a_retail_investor_in_2021/)
+- [Fuck you mods](https://www.reddit.com/r/wallstreetbets/comments/ozg3ap/fuck_you_mods/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
