@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My brain asking me if I’m sure before yoloing naked options.](https://www.reddit.com/r/wallstreetbets/comments/ozhx4h/my_brain_asking_me_if_im_sure_before_yoloing/)
-- [Can't wait to be homeless](https://www.reddit.com/r/wallstreetbets/comments/ozgz54/cant_wait_to_be_homeless/)
-- [Would a CEO buying puts on his company, then subsequently showing his balls on live TV be considered insider trading?](https://www.reddit.com/r/wallstreetbets/comments/ozgojg/would_a_ceo_buying_puts_on_his_company_then/)
-- [Being a retail investor in 2021](https://www.reddit.com/r/wallstreetbets/comments/ozg4d7/being_a_retail_investor_in_2021/)
-- [Fuck you mods](https://www.reddit.com/r/wallstreetbets/comments/ozg3ap/fuck_you_mods/)
+- [Tried options for the first time 😳](https://www.reddit.com/r/wallstreetbets/comments/p03l6i/tried_options_for_the_first_time/)
+- [2021 Has been a wild year of trading... so far](https://www.reddit.com/r/wallstreetbets/comments/p03ksj/2021_has_been_a_wild_year_of_trading_so_far/)
+- [How to use the $1T US Senate Infrastructure Bill to Place Bets this Fall and Get Rich w/ America](https://www.reddit.com/r/wallstreetbets/comments/p03h4g/how_to_use_the_1t_us_senate_infrastructure_bill/)
+- [PLTR GOV CONTRACT SIGNED August 05, 2021 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/p01nfm/pltr_gov_contract_signed_august_05_2021/)
+- [CLOV FAILS TO DELIVER YET AGAIN](https://www.reddit.com/r/wallstreetbets/comments/p01fg4/clov_fails_to_deliver_yet_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
