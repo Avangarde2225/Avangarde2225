@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tried options for the first time 😳](https://www.reddit.com/r/wallstreetbets/comments/p03l6i/tried_options_for_the_first_time/)
-- [2021 Has been a wild year of trading... so far](https://www.reddit.com/r/wallstreetbets/comments/p03ksj/2021_has_been_a_wild_year_of_trading_so_far/)
-- [How to use the $1T US Senate Infrastructure Bill to Place Bets this Fall and Get Rich w/ America](https://www.reddit.com/r/wallstreetbets/comments/p03h4g/how_to_use_the_1t_us_senate_infrastructure_bill/)
-- [PLTR GOV CONTRACT SIGNED August 05, 2021 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/p01nfm/pltr_gov_contract_signed_august_05_2021/)
-- [CLOV FAILS TO DELIVER YET AGAIN](https://www.reddit.com/r/wallstreetbets/comments/p01fg4/clov_fails_to_deliver_yet_again/)
+- [I'm glad I finally found a home!](https://www.reddit.com/r/wallstreetbets/comments/p0nzdt/im_glad_i_finally_found_a_home/)
+- [MVST | It ain't much, but it’s honest work](https://www.reddit.com/r/wallstreetbets/comments/p0n4in/mvst_it_aint_much_but_its_honest_work/)
+- [WSB in 19 seconds](https://www.reddit.com/r/wallstreetbets/comments/p0n3y5/wsb_in_19_seconds/)
+- [I gained, lost, quit/gave up, came back after afew months away to... YOLO on $EVGO. Yeah $15k ain't s***t but divorce ain't cheap.](https://www.reddit.com/r/wallstreetbets/comments/p0mvgz/i_gained_lost_quitgave_up_came_back_after_afew/)
+- [SPY GAINS✅](https://www.reddit.com/r/wallstreetbets/comments/p0mqay/spy_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
