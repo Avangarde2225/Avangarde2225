@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I'm glad I finally found a home!](https://www.reddit.com/r/wallstreetbets/comments/p0nzdt/im_glad_i_finally_found_a_home/)
-- [MVST | It ain't much, but it’s honest work](https://www.reddit.com/r/wallstreetbets/comments/p0n4in/mvst_it_aint_much_but_its_honest_work/)
-- [WSB in 19 seconds](https://www.reddit.com/r/wallstreetbets/comments/p0n3y5/wsb_in_19_seconds/)
-- [I gained, lost, quit/gave up, came back after afew months away to... YOLO on $EVGO. Yeah $15k ain't s***t but divorce ain't cheap.](https://www.reddit.com/r/wallstreetbets/comments/p0mvgz/i_gained_lost_quitgave_up_came_back_after_afew/)
-- [SPY GAINS✅](https://www.reddit.com/r/wallstreetbets/comments/p0mqay/spy_gains/)
+- [All in on Microvast. Am I retarted?](https://www.reddit.com/r/wallstreetbets/comments/p1chur/all_in_on_microvast_am_i_retarted/)
+- [Am I doing this right?](https://www.reddit.com/r/wallstreetbets/comments/p1bm91/am_i_doing_this_right/)
+- [AMC Beats Analysts’ Estimates Even With Movie Attendance Slow](https://www.reddit.com/r/wallstreetbets/comments/p1as6l/amc_beats_analysts_estimates_even_with_movie/)
+- [Typical apes when they are waiting for the gamma squeeze...](https://www.reddit.com/r/wallstreetbets/comments/p1a9rs/typical_apes_when_they_are_waiting_for_the_gamma/)
+- ["GET OVER HERE"](https://www.reddit.com/r/wallstreetbets/comments/p19wqr/get_over_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
