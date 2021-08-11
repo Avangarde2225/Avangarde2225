@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [All in on Microvast. Am I retarted?](https://www.reddit.com/r/wallstreetbets/comments/p1chur/all_in_on_microvast_am_i_retarted/)
-- [Am I doing this right?](https://www.reddit.com/r/wallstreetbets/comments/p1bm91/am_i_doing_this_right/)
-- [AMC Beats Analysts’ Estimates Even With Movie Attendance Slow](https://www.reddit.com/r/wallstreetbets/comments/p1as6l/amc_beats_analysts_estimates_even_with_movie/)
-- [Typical apes when they are waiting for the gamma squeeze...](https://www.reddit.com/r/wallstreetbets/comments/p1a9rs/typical_apes_when_they_are_waiting_for_the_gamma/)
-- ["GET OVER HERE"](https://www.reddit.com/r/wallstreetbets/comments/p19wqr/get_over_here/)
+- [🌈🐻 Looking for redemption this week.](https://www.reddit.com/r/wallstreetbets/comments/p1xg80/looking_for_redemption_this_week/)
+- [AvePoint Q2 RESULTS BEAT - 38% YOY GROWTH 🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/p1xfch/avepoint_q2_results_beat_38_yoy_growth/)
+- [Follow The Money - How To Catch Every Rotation And (Almost) Always Make Money](https://www.reddit.com/r/wallstreetbets/comments/p1x0ls/follow_the_money_how_to_catch_every_rotation_and/)
+- [What Are Your Moves Tomorrow, August 11, 2021](https://www.reddit.com/r/wallstreetbets/comments/p1x08o/what_are_your_moves_tomorrow_august_11_2021/)
+- [Betting 80k on $UPST crash after earnings](https://www.reddit.com/r/wallstreetbets/comments/p1wt77/betting_80k_on_upst_crash_after_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
