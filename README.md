@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🌈🐻 Looking for redemption this week.](https://www.reddit.com/r/wallstreetbets/comments/p1xg80/looking_for_redemption_this_week/)
-- [AvePoint Q2 RESULTS BEAT - 38% YOY GROWTH 🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/p1xfch/avepoint_q2_results_beat_38_yoy_growth/)
-- [Follow The Money - How To Catch Every Rotation And (Almost) Always Make Money](https://www.reddit.com/r/wallstreetbets/comments/p1x0ls/follow_the_money_how_to_catch_every_rotation_and/)
-- [What Are Your Moves Tomorrow, August 11, 2021](https://www.reddit.com/r/wallstreetbets/comments/p1x08o/what_are_your_moves_tomorrow_august_11_2021/)
-- [Betting 80k on $UPST crash after earnings](https://www.reddit.com/r/wallstreetbets/comments/p1wt77/betting_80k_on_upst_crash_after_earnings/)
+- [Clov revenue up 140%, Clover Assistant managing an annualized 1 billion in revenue, only a 3.2 billion market cap, high SI, are you kidding me 🚀🚀👨‍🎤🚀](https://www.reddit.com/r/wallstreetbets/comments/p2p9rr/clov_revenue_up_140_clover_assistant_managing_an/)
+- [Anyone else think the stock market has no reason to close?](https://www.reddit.com/r/wallstreetbets/comments/p2p6m6/anyone_else_think_the_stock_market_has_no_reason/)
+- [When my friend and I agree a stock is good](https://www.reddit.com/r/wallstreetbets/comments/p2p1f3/when_my_friend_and_i_agree_a_stock_is_good/)
+- [$PLTR earnings report Pre-Market 08/12 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/p2omld/pltr_earnings_report_premarket_0812/)
+- [$CLOV Trying to stay above $9](https://www.reddit.com/r/wallstreetbets/comments/p2mfsy/clov_trying_to_stay_above_9/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
