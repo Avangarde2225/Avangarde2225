@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Clov revenue up 140%, Clover Assistant managing an annualized 1 billion in revenue, only a 3.2 billion market cap, high SI, are you kidding me 🚀🚀👨‍🎤🚀](https://www.reddit.com/r/wallstreetbets/comments/p2p9rr/clov_revenue_up_140_clover_assistant_managing_an/)
-- [Anyone else think the stock market has no reason to close?](https://www.reddit.com/r/wallstreetbets/comments/p2p6m6/anyone_else_think_the_stock_market_has_no_reason/)
-- [When my friend and I agree a stock is good](https://www.reddit.com/r/wallstreetbets/comments/p2p1f3/when_my_friend_and_i_agree_a_stock_is_good/)
-- [$PLTR earnings report Pre-Market 08/12 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/p2omld/pltr_earnings_report_premarket_0812/)
-- [$CLOV Trying to stay above $9](https://www.reddit.com/r/wallstreetbets/comments/p2mfsy/clov_trying_to_stay_above_9/)
+- [SoFi Earnings - Excellent Growth and one-time expense. Expecting STRONG BUY price targets soon.](https://www.reddit.com/r/wallstreetbets/comments/p3ammo/sofi_earnings_excellent_growth_and_onetime/)
+- [Recent MVST DD from wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/p39yfv/recent_mvst_dd_from_wallstreetbets/)
+- [Fuck you $WISH](https://www.reddit.com/r/wallstreetbets/comments/p39t2j/fuck_you_wish/)
+- [Me when all the WISH porn comes through](https://www.reddit.com/r/wallstreetbets/comments/p39pl3/me_when_all_the_wish_porn_comes_through/)
+- [WISH after earnings:](https://www.reddit.com/r/wallstreetbets/comments/p39k8x/wish_after_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
