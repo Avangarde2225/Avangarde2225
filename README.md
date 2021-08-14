@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SoFi Earnings - Excellent Growth and one-time expense. Expecting STRONG BUY price targets soon.](https://www.reddit.com/r/wallstreetbets/comments/p3ammo/sofi_earnings_excellent_growth_and_onetime/)
-- [Recent MVST DD from wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/p39yfv/recent_mvst_dd_from_wallstreetbets/)
-- [Fuck you $WISH](https://www.reddit.com/r/wallstreetbets/comments/p39t2j/fuck_you_wish/)
-- [Me when all the WISH porn comes through](https://www.reddit.com/r/wallstreetbets/comments/p39pl3/me_when_all_the_wish_porn_comes_through/)
-- [WISH after earnings:](https://www.reddit.com/r/wallstreetbets/comments/p39k8x/wish_after_earnings/)
+- [RKT Quarter Filing - Share Repurchase Program](https://www.reddit.com/r/wallstreetbets/comments/p3wdub/rkt_quarter_filing_share_repurchase_program/)
+- [How to Ditch Your Bags at the Price You Want](https://www.reddit.com/r/wallstreetbets/comments/p3v7k3/how_to_ditch_your_bags_at_the_price_you_want/)
+- [Would manny monitors help you make more or lose more money? 🤔](https://www.reddit.com/r/wallstreetbets/comments/p3tl78/would_manny_monitors_help_you_make_more_or_lose/)
+- [$15k day thanks to $RKT - Follow up on my DD: 100% incorrect but profitable nonetheless](https://www.reddit.com/r/wallstreetbets/comments/p3tino/15k_day_thanks_to_rkt_follow_up_on_my_dd_100/)
+- [Weekend Discussion Thread for the Weekend of August 13, 2021](https://www.reddit.com/r/wallstreetbets/comments/p3sv76/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
