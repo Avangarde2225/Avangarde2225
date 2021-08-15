@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RKT Quarter Filing - Share Repurchase Program](https://www.reddit.com/r/wallstreetbets/comments/p3wdub/rkt_quarter_filing_share_repurchase_program/)
-- [How to Ditch Your Bags at the Price You Want](https://www.reddit.com/r/wallstreetbets/comments/p3v7k3/how_to_ditch_your_bags_at_the_price_you_want/)
-- [Would manny monitors help you make more or lose more money? 🤔](https://www.reddit.com/r/wallstreetbets/comments/p3tl78/would_manny_monitors_help_you_make_more_or_lose/)
-- [$15k day thanks to $RKT - Follow up on my DD: 100% incorrect but profitable nonetheless](https://www.reddit.com/r/wallstreetbets/comments/p3tino/15k_day_thanks_to_rkt_follow_up_on_my_dd_100/)
-- [Weekend Discussion Thread for the Weekend of August 13, 2021](https://www.reddit.com/r/wallstreetbets/comments/p3sv76/weekend_discussion_thread_for_the_weekend_of/)
+- [Ray Dalio Principles of Big Debt Crises Book Summary Part 2](https://www.reddit.com/r/wallstreetbets/comments/p4iqoe/ray_dalio_principles_of_big_debt_crises_book/)
+- [Let’s be honest, a lot of people are trading while at work…. the kind of jobs that don’t want you on your phone.](https://www.reddit.com/r/wallstreetbets/comments/p4in13/lets_be_honest_a_lot_of_people_are_trading_while/)
+- [The fed’s current predicament explained with an analogy of lifting weights with bad form](https://www.reddit.com/r/wallstreetbets/comments/p4hro0/the_feds_current_predicament_explained_with_an/)
+- [Margin CallkOut](https://www.reddit.com/r/wallstreetbets/comments/p4hcp0/margin_callkout/)
+- [Pay attention to UPS stock next week…](https://www.reddit.com/r/wallstreetbets/comments/p4fn0q/pay_attention_to_ups_stock_next_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
