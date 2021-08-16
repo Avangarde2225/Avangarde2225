@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ray Dalio Principles of Big Debt Crises Book Summary Part 2](https://www.reddit.com/r/wallstreetbets/comments/p4iqoe/ray_dalio_principles_of_big_debt_crises_book/)
-- [Let’s be honest, a lot of people are trading while at work…. the kind of jobs that don’t want you on your phone.](https://www.reddit.com/r/wallstreetbets/comments/p4in13/lets_be_honest_a_lot_of_people_are_trading_while/)
-- [The fed’s current predicament explained with an analogy of lifting weights with bad form](https://www.reddit.com/r/wallstreetbets/comments/p4hro0/the_feds_current_predicament_explained_with_an/)
-- [Margin CallkOut](https://www.reddit.com/r/wallstreetbets/comments/p4hcp0/margin_callkout/)
-- [Pay attention to UPS stock next week…](https://www.reddit.com/r/wallstreetbets/comments/p4fn0q/pay_attention_to_ups_stock_next_week/)
+- [When I buy a stock in a random level and try to explain to myself why I made a poor choice.](https://www.reddit.com/r/wallstreetbets/comments/p53ygn/when_i_buy_a_stock_in_a_random_level_and_try_to/)
+- [Historical Post Earnings Moves MEGA Compilation and Analysis (Q2 Week 6) - $RBLX, $NVDA, $WMT, $HD, $CSCO, $TGT, $LOW and More](https://www.reddit.com/r/wallstreetbets/comments/p51jh6/historical_post_earnings_moves_mega_compilation/)
+- [$DOCS deep value proposition](https://www.reddit.com/r/wallstreetbets/comments/p51b2e/docs_deep_value_proposition/)
+- [UWMC Q2 EARNINGS CHEAT CODE!](https://www.reddit.com/r/wallstreetbets/comments/p517bu/uwmc_q2_earnings_cheat_code/)
+- [$AMZN is up to something with $AFRM - Obsessive DD](https://www.reddit.com/r/wallstreetbets/comments/p50n5p/amzn_is_up_to_something_with_afrm_obsessive_dd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
