@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When I buy a stock in a random level and try to explain to myself why I made a poor choice.](https://www.reddit.com/r/wallstreetbets/comments/p53ygn/when_i_buy_a_stock_in_a_random_level_and_try_to/)
-- [Historical Post Earnings Moves MEGA Compilation and Analysis (Q2 Week 6) - $RBLX, $NVDA, $WMT, $HD, $CSCO, $TGT, $LOW and More](https://www.reddit.com/r/wallstreetbets/comments/p51jh6/historical_post_earnings_moves_mega_compilation/)
-- [$DOCS deep value proposition](https://www.reddit.com/r/wallstreetbets/comments/p51b2e/docs_deep_value_proposition/)
-- [UWMC Q2 EARNINGS CHEAT CODE!](https://www.reddit.com/r/wallstreetbets/comments/p517bu/uwmc_q2_earnings_cheat_code/)
-- [$AMZN is up to something with $AFRM - Obsessive DD](https://www.reddit.com/r/wallstreetbets/comments/p50n5p/amzn_is_up_to_something_with_afrm_obsessive_dd/)
+- [Too much green on here](https://www.reddit.com/r/wallstreetbets/comments/p5rdq2/too_much_green_on_here/)
+- [It's been a wild ride with options trading. Finally dug out of the hole I put myself in.](https://www.reddit.com/r/wallstreetbets/comments/p5p9kp/its_been_a_wild_ride_with_options_trading_finally/)
+- [Not sure if this is worthy of a post but it was my last free $500 to play with for the week](https://www.reddit.com/r/wallstreetbets/comments/p5oyyw/not_sure_if_this_is_worthy_of_a_post_but_it_was/)
+- [Rangebound vs Trending Markets - Stopping Theta Gang From Stealing Your Tendies](https://www.reddit.com/r/wallstreetbets/comments/p5o7ic/rangebound_vs_trending_markets_stopping_theta/)
+- [What Are Your Moves Tomorrow, August 17, 2021](https://www.reddit.com/r/wallstreetbets/comments/p5ntsh/what_are_your_moves_tomorrow_august_17_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
