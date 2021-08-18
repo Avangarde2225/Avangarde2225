@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Too much green on here](https://www.reddit.com/r/wallstreetbets/comments/p5rdq2/too_much_green_on_here/)
-- [It's been a wild ride with options trading. Finally dug out of the hole I put myself in.](https://www.reddit.com/r/wallstreetbets/comments/p5p9kp/its_been_a_wild_ride_with_options_trading_finally/)
-- [Not sure if this is worthy of a post but it was my last free $500 to play with for the week](https://www.reddit.com/r/wallstreetbets/comments/p5oyyw/not_sure_if_this_is_worthy_of_a_post_but_it_was/)
-- [Rangebound vs Trending Markets - Stopping Theta Gang From Stealing Your Tendies](https://www.reddit.com/r/wallstreetbets/comments/p5o7ic/rangebound_vs_trending_markets_stopping_theta/)
-- [What Are Your Moves Tomorrow, August 17, 2021](https://www.reddit.com/r/wallstreetbets/comments/p5ntsh/what_are_your_moves_tomorrow_august_17_2021/)
+- [Thinking of starting my own fund for clients that want to lose their money at a 100% success rate. In addition to this have also locked in -17K YTD thank you very much.](https://www.reddit.com/r/wallstreetbets/comments/p6fo7g/thinking_of_starting_my_own_fund_for_clients_that/)
+- [My portfolio once I learned about FDs then WSB… 😫➡️🚀🚀🚀➡️😫](https://www.reddit.com/r/wallstreetbets/comments/p6dxa2/my_portfolio_once_i_learned_about_fds_then_wsb/)
+- [$CLNE DD, moon time.](https://www.reddit.com/r/wallstreetbets/comments/p6ddpj/clne_dd_moon_time/)
+- [Doomed](https://www.reddit.com/r/wallstreetbets/comments/p6dbzw/doomed/)
+- [Tilray acquires majority stake in Medmen in bet on U.S. legalization](https://www.reddit.com/r/wallstreetbets/comments/p6d820/tilray_acquires_majority_stake_in_medmen_in_bet/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
