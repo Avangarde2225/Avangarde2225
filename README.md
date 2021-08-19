@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thinking of starting my own fund for clients that want to lose their money at a 100% success rate. In addition to this have also locked in -17K YTD thank you very much.](https://www.reddit.com/r/wallstreetbets/comments/p6fo7g/thinking_of_starting_my_own_fund_for_clients_that/)
-- [My portfolio once I learned about FDs then WSB… 😫➡️🚀🚀🚀➡️😫](https://www.reddit.com/r/wallstreetbets/comments/p6dxa2/my_portfolio_once_i_learned_about_fds_then_wsb/)
-- [$CLNE DD, moon time.](https://www.reddit.com/r/wallstreetbets/comments/p6ddpj/clne_dd_moon_time/)
-- [Doomed](https://www.reddit.com/r/wallstreetbets/comments/p6dbzw/doomed/)
-- [Tilray acquires majority stake in Medmen in bet on U.S. legalization](https://www.reddit.com/r/wallstreetbets/comments/p6d820/tilray_acquires_majority_stake_in_medmen_in_bet/)
+- [Everyday it retracts further](https://www.reddit.com/r/wallstreetbets/comments/p732bh/everyday_it_retracts_further/)
+- [Ruined My Financial Future… This is 99% of my savings and basically everything that me and many family own… Need Baba back up to 243 to break even…](https://www.reddit.com/r/wallstreetbets/comments/p72imy/ruined_my_financial_future_this_is_99_of_my/)
+- [Not sure what to flair this as but wanted yall to have a laugh. Forgot about RH early sell off, so jokes on me](https://www.reddit.com/r/wallstreetbets/comments/p722qi/not_sure_what_to_flair_this_as_but_wanted_yall_to/)
+- [ARE YOU NOT ENTERTAINED!!!](https://www.reddit.com/r/wallstreetbets/comments/p719fh/are_you_not_entertained/)
+- [BUY THE DIP OR GO WORK AT $MCD ... WERE HERE TO MAKE MONEY](https://www.reddit.com/r/wallstreetbets/comments/p70t16/buy_the_dip_or_go_work_at_mcd_were_here_to_make/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
