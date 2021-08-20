@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Everyday it retracts further](https://www.reddit.com/r/wallstreetbets/comments/p732bh/everyday_it_retracts_further/)
-- [Ruined My Financial Future… This is 99% of my savings and basically everything that me and many family own… Need Baba back up to 243 to break even…](https://www.reddit.com/r/wallstreetbets/comments/p72imy/ruined_my_financial_future_this_is_99_of_my/)
-- [Not sure what to flair this as but wanted yall to have a laugh. Forgot about RH early sell off, so jokes on me](https://www.reddit.com/r/wallstreetbets/comments/p722qi/not_sure_what_to_flair_this_as_but_wanted_yall_to/)
-- [ARE YOU NOT ENTERTAINED!!!](https://www.reddit.com/r/wallstreetbets/comments/p719fh/are_you_not_entertained/)
-- [BUY THE DIP OR GO WORK AT $MCD ... WERE HERE TO MAKE MONEY](https://www.reddit.com/r/wallstreetbets/comments/p70t16/buy_the_dip_or_go_work_at_mcd_were_here_to_make/)
+- [Steamy hot picture of Xi Jinping shitting on my chest](https://www.reddit.com/r/wallstreetbets/comments/p7q12l/steamy_hot_picture_of_xi_jinping_shitting_on_my/)
+- [AVPT CEO just purchased $1M worth of AVPT shares 🚀](https://www.reddit.com/r/wallstreetbets/comments/p7pyiv/avpt_ceo_just_purchased_1m_worth_of_avpt_shares/)
+- [The 2021 bagholder machine](https://www.reddit.com/r/wallstreetbets/comments/p7p9x4/the_2021_bagholder_machine/)
+- [China is raping me no consent. Anybody got lube ?](https://www.reddit.com/r/wallstreetbets/comments/p7my3h/china_is_raping_me_no_consent_anybody_got_lube/)
+- [Jackson Hole Next Week - Holed On To Your Butts](https://www.reddit.com/r/wallstreetbets/comments/p7muwe/jackson_hole_next_week_holed_on_to_your_butts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
