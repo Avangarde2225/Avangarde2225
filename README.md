@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Steamy hot picture of Xi Jinping shitting on my chest](https://www.reddit.com/r/wallstreetbets/comments/p7q12l/steamy_hot_picture_of_xi_jinping_shitting_on_my/)
-- [AVPT CEO just purchased $1M worth of AVPT shares 🚀](https://www.reddit.com/r/wallstreetbets/comments/p7pyiv/avpt_ceo_just_purchased_1m_worth_of_avpt_shares/)
-- [The 2021 bagholder machine](https://www.reddit.com/r/wallstreetbets/comments/p7p9x4/the_2021_bagholder_machine/)
-- [China is raping me no consent. Anybody got lube ?](https://www.reddit.com/r/wallstreetbets/comments/p7my3h/china_is_raping_me_no_consent_anybody_got_lube/)
-- [Jackson Hole Next Week - Holed On To Your Butts](https://www.reddit.com/r/wallstreetbets/comments/p7muwe/jackson_hole_next_week_holed_on_to_your_butts/)
+- [Just felt like sharing, not impressive but not terrible](https://www.reddit.com/r/wallstreetbets/comments/p8gqsp/just_felt_like_sharing_not_impressive_but_not/)
+- [wOOF](https://www.reddit.com/r/wallstreetbets/comments/p8gqle/woof/)
+- [UK Covid Cases Surging Once Again, US Stocks Dip, Retards Buy the Dip because Buy the Dip](https://www.reddit.com/r/wallstreetbets/comments/p8fxeh/uk_covid_cases_surging_once_again_us_stocks_dip/)
+- [Pfizer calls going to go BRRRRRRP next week. Full approval for Pfizer Covid vaccine could come from FDA Monday, report says](https://www.reddit.com/r/wallstreetbets/comments/p8frnk/pfizer_calls_going_to_go_brrrrrrp_next_week_full/)
+- [$WISH of Death starring Bruce Lee and Kareem Abdul Jabbar](https://www.reddit.com/r/wallstreetbets/comments/p8f069/wish_of_death_starring_bruce_lee_and_kareem_abdul/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
