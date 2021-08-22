@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Just felt like sharing, not impressive but not terrible](https://www.reddit.com/r/wallstreetbets/comments/p8gqsp/just_felt_like_sharing_not_impressive_but_not/)
-- [wOOF](https://www.reddit.com/r/wallstreetbets/comments/p8gqle/woof/)
-- [UK Covid Cases Surging Once Again, US Stocks Dip, Retards Buy the Dip because Buy the Dip](https://www.reddit.com/r/wallstreetbets/comments/p8fxeh/uk_covid_cases_surging_once_again_us_stocks_dip/)
-- [Pfizer calls going to go BRRRRRRP next week. Full approval for Pfizer Covid vaccine could come from FDA Monday, report says](https://www.reddit.com/r/wallstreetbets/comments/p8frnk/pfizer_calls_going_to_go_brrrrrrp_next_week_full/)
-- [$WISH of Death starring Bruce Lee and Kareem Abdul Jabbar](https://www.reddit.com/r/wallstreetbets/comments/p8f069/wish_of_death_starring_bruce_lee_and_kareem_abdul/)
+- [AVPT YOLO Update August 🤮](https://www.reddit.com/r/wallstreetbets/comments/p926ap/avpt_yolo_update_august/)
+- [Me holding on to that winning trade like.](https://www.reddit.com/r/wallstreetbets/comments/p925c5/me_holding_on_to_that_winning_trade_like/)
+- [China is on our side](https://www.reddit.com/r/wallstreetbets/comments/p91r2c/china_is_on_our_side/)
+- [My recovery plan using $SKLZ, after having lost 90% of my account in the last 3 months in a swing with LEAPs, from 40k to 5k.](https://www.reddit.com/r/wallstreetbets/comments/p919py/my_recovery_plan_using_sklz_after_having_lost_90/)
+- [I bought $500,000 of triple leveraged bank etf FAS eight months ago. $1,140,000 today. Still holding.](https://www.reddit.com/r/wallstreetbets/comments/p90cg5/i_bought_500000_of_triple_leveraged_bank_etf_fas/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
