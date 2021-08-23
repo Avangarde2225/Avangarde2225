@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AVPT YOLO Update August 🤮](https://www.reddit.com/r/wallstreetbets/comments/p926ap/avpt_yolo_update_august/)
-- [Me holding on to that winning trade like.](https://www.reddit.com/r/wallstreetbets/comments/p925c5/me_holding_on_to_that_winning_trade_like/)
-- [China is on our side](https://www.reddit.com/r/wallstreetbets/comments/p91r2c/china_is_on_our_side/)
-- [My recovery plan using $SKLZ, after having lost 90% of my account in the last 3 months in a swing with LEAPs, from 40k to 5k.](https://www.reddit.com/r/wallstreetbets/comments/p919py/my_recovery_plan_using_sklz_after_having_lost_90/)
-- [I bought $500,000 of triple leveraged bank etf FAS eight months ago. $1,140,000 today. Still holding.](https://www.reddit.com/r/wallstreetbets/comments/p90cg5/i_bought_500000_of_triple_leveraged_bank_etf_fas/)
+- [Several of you Autist’s out there](https://www.reddit.com/r/wallstreetbets/comments/p9mxj9/several_of_you_autists_out_there/)
+- [MindMed (MNMD) has a very similar pattern to its last breakout. Currently oversold and lined up.](https://www.reddit.com/r/wallstreetbets/comments/p9m60p/mindmed_mnmd_has_a_very_similar_pattern_to_its/)
+- [Ratio Review: Price to Earnings Ratio](https://www.reddit.com/r/wallstreetbets/comments/p9jxqb/ratio_review_price_to_earnings_ratio/)
+- [What Are Your Moves Tomorrow, August 23, 2021](https://www.reddit.com/r/wallstreetbets/comments/p9jpeq/what_are_your_moves_tomorrow_august_23_2021/)
+- [Buy the Rumors/Sell the News: a RKT analysis](https://www.reddit.com/r/wallstreetbets/comments/p9gl37/buy_the_rumorssell_the_news_a_rkt_analysis/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
