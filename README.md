@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Several of you Autist’s out there](https://www.reddit.com/r/wallstreetbets/comments/p9mxj9/several_of_you_autists_out_there/)
-- [MindMed (MNMD) has a very similar pattern to its last breakout. Currently oversold and lined up.](https://www.reddit.com/r/wallstreetbets/comments/p9m60p/mindmed_mnmd_has_a_very_similar_pattern_to_its/)
-- [Ratio Review: Price to Earnings Ratio](https://www.reddit.com/r/wallstreetbets/comments/p9jxqb/ratio_review_price_to_earnings_ratio/)
-- [What Are Your Moves Tomorrow, August 23, 2021](https://www.reddit.com/r/wallstreetbets/comments/p9jpeq/what_are_your_moves_tomorrow_august_23_2021/)
-- [Buy the Rumors/Sell the News: a RKT analysis](https://www.reddit.com/r/wallstreetbets/comments/p9gl37/buy_the_rumorssell_the_news_a_rkt_analysis/)
+- [Watching Loss Porn on WSBs (starring Randy Marsh)](https://www.reddit.com/r/wallstreetbets/comments/pac36i/watching_loss_porn_on_wsbs_starring_randy_marsh/)
+- [Hello from the other side](https://www.reddit.com/r/wallstreetbets/comments/paalde/hello_from_the_other_side/)
+- [$500k bet on SLQT. Here's why.](https://www.reddit.com/r/wallstreetbets/comments/paa5i3/500k_bet_on_slqt_heres_why/)
+- [Palantir's (PLTR) main bearish thesis- low scalability of the product is simply not true.](https://www.reddit.com/r/wallstreetbets/comments/pa8veq/palantirs_pltr_main_bearish_thesis_low/)
+- [What Are Your Moves Tomorrow, August 24, 2021](https://www.reddit.com/r/wallstreetbets/comments/pa7km0/what_are_your_moves_tomorrow_august_24_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
