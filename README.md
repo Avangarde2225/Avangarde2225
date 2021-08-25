@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Watching Loss Porn on WSBs (starring Randy Marsh)](https://www.reddit.com/r/wallstreetbets/comments/pac36i/watching_loss_porn_on_wsbs_starring_randy_marsh/)
-- [Hello from the other side](https://www.reddit.com/r/wallstreetbets/comments/paalde/hello_from_the_other_side/)
-- [$500k bet on SLQT. Here's why.](https://www.reddit.com/r/wallstreetbets/comments/paa5i3/500k_bet_on_slqt_heres_why/)
-- [Palantir's (PLTR) main bearish thesis- low scalability of the product is simply not true.](https://www.reddit.com/r/wallstreetbets/comments/pa8veq/palantirs_pltr_main_bearish_thesis_low/)
-- [What Are Your Moves Tomorrow, August 24, 2021](https://www.reddit.com/r/wallstreetbets/comments/pa7km0/what_are_your_moves_tomorrow_august_24_2021/)
+- [You gotta love the degenerates of wallstreetbets 💀](https://www.reddit.com/r/wallstreetbets/comments/payxln/you_gotta_love_the_degenerates_of_wallstreetbets/)
+- [Last 2 k and it worked](https://www.reddit.com/r/wallstreetbets/comments/payjlq/last_2_k_and_it_worked/)
+- [BABA Yolo! I’m autistic. Is this a proper yolo 428k in calls?](https://www.reddit.com/r/wallstreetbets/comments/payhqq/baba_yolo_im_autistic_is_this_a_proper_yolo_428k/)
+- [Positions looking sexy. CLOV/PFE/OSK](https://www.reddit.com/r/wallstreetbets/comments/pay672/positions_looking_sexy_clovpfeosk/)
+- [My first… be gentle. One trade that made back all my losses! ABNB. Sold for 1019% gain.](https://www.reddit.com/r/wallstreetbets/comments/pay3fm/my_first_be_gentle_one_trade_that_made_back_all/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
