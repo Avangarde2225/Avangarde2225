@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You gotta love the degenerates of wallstreetbets 💀](https://www.reddit.com/r/wallstreetbets/comments/payxln/you_gotta_love_the_degenerates_of_wallstreetbets/)
-- [Last 2 k and it worked](https://www.reddit.com/r/wallstreetbets/comments/payjlq/last_2_k_and_it_worked/)
-- [BABA Yolo! I’m autistic. Is this a proper yolo 428k in calls?](https://www.reddit.com/r/wallstreetbets/comments/payhqq/baba_yolo_im_autistic_is_this_a_proper_yolo_428k/)
-- [Positions looking sexy. CLOV/PFE/OSK](https://www.reddit.com/r/wallstreetbets/comments/pay672/positions_looking_sexy_clovpfeosk/)
-- [My first… be gentle. One trade that made back all my losses! ABNB. Sold for 1019% gain.](https://www.reddit.com/r/wallstreetbets/comments/pay3fm/my_first_be_gentle_one_trade_that_made_back_all/)
+- [I don’t know why I keep buying Tesla calls](https://www.reddit.com/r/wallstreetbets/comments/pbm4sd/i_dont_know_why_i_keep_buying_tesla_calls/)
+- [33k loss $AMZN calls](https://www.reddit.com/r/wallstreetbets/comments/pblf0t/33k_loss_amzn_calls/)
+- [WDC saved my a$$ today!! At one point I was down $12k. Got out with $30k profit.](https://www.reddit.com/r/wallstreetbets/comments/pbkb9x/wdc_saved_my_a_today_at_one_point_i_was_down_12k/)
+- [Holding BABA to the moon b like](https://www.reddit.com/r/wallstreetbets/comments/pbjb0x/holding_baba_to_the_moon_b_like/)
+- [What Are Your Moves Tomorrow, August 26, 2021](https://www.reddit.com/r/wallstreetbets/comments/pbj372/what_are_your_moves_tomorrow_august_26_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
