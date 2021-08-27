@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I don’t know why I keep buying Tesla calls](https://www.reddit.com/r/wallstreetbets/comments/pbm4sd/i_dont_know_why_i_keep_buying_tesla_calls/)
-- [33k loss $AMZN calls](https://www.reddit.com/r/wallstreetbets/comments/pblf0t/33k_loss_amzn_calls/)
-- [WDC saved my a$$ today!! At one point I was down $12k. Got out with $30k profit.](https://www.reddit.com/r/wallstreetbets/comments/pbkb9x/wdc_saved_my_a_today_at_one_point_i_was_down_12k/)
-- [Holding BABA to the moon b like](https://www.reddit.com/r/wallstreetbets/comments/pbjb0x/holding_baba_to_the_moon_b_like/)
-- [What Are Your Moves Tomorrow, August 26, 2021](https://www.reddit.com/r/wallstreetbets/comments/pbj372/what_are_your_moves_tomorrow_august_26_2021/)
+- [Dallas Fed’s Kaplan Call’s for tapering announcement in September](https://www.reddit.com/r/wallstreetbets/comments/pca4c5/dallas_feds_kaplan_calls_for_tapering/)
+- [Single Again.......](https://www.reddit.com/r/wallstreetbets/comments/pc9m56/single_again/)
+- [Made $4.2k yesterday with FCEL. Jumped back in today and down $1.2k 😬](https://www.reddit.com/r/wallstreetbets/comments/pc9d1f/made_42k_yesterday_with_fcel_jumped_back_in_today/)
+- [$SENS will skyrocket on upcoming FDA approval!](https://www.reddit.com/r/wallstreetbets/comments/pc96v2/sens_will_skyrocket_on_upcoming_fda_approval/)
+- [AMC Gains 2.0](https://www.reddit.com/r/wallstreetbets/comments/pc8y7s/amc_gains_20/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
