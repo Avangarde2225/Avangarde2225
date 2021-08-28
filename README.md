@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dallas Fed’s Kaplan Call’s for tapering announcement in September](https://www.reddit.com/r/wallstreetbets/comments/pca4c5/dallas_feds_kaplan_calls_for_tapering/)
-- [Single Again.......](https://www.reddit.com/r/wallstreetbets/comments/pc9m56/single_again/)
-- [Made $4.2k yesterday with FCEL. Jumped back in today and down $1.2k 😬](https://www.reddit.com/r/wallstreetbets/comments/pc9d1f/made_42k_yesterday_with_fcel_jumped_back_in_today/)
-- [$SENS will skyrocket on upcoming FDA approval!](https://www.reddit.com/r/wallstreetbets/comments/pc96v2/sens_will_skyrocket_on_upcoming_fda_approval/)
-- [AMC Gains 2.0](https://www.reddit.com/r/wallstreetbets/comments/pc8y7s/amc_gains_20/)
+- [Please translate this support message into plain English](https://www.reddit.com/r/wallstreetbets/comments/pcyr83/please_translate_this_support_message_into_plain/)
+- [SENS YOLO - Either I'm Giving Or Receiving Sucky Behind Wendy's](https://www.reddit.com/r/wallstreetbets/comments/pcwn3s/sens_yolo_either_im_giving_or_receiving_sucky/)
+- [Where is the guy that correctly predicted Affirm and Amazon connection?](https://www.reddit.com/r/wallstreetbets/comments/pcwk0b/where_is_the_guy_that_correctly_predicted_affirm/)
+- [How throwing money on FDs feels like](https://www.reddit.com/r/wallstreetbets/comments/pcwgij/how_throwing_money_on_fds_feels_like/)
+- [$AFRM TO THE MOON WITH AMAZON PARTNERSHIP!](https://www.reddit.com/r/wallstreetbets/comments/pcvmpn/afrm_to_the_moon_with_amazon_partnership/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
