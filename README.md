@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Please translate this support message into plain English](https://www.reddit.com/r/wallstreetbets/comments/pcyr83/please_translate_this_support_message_into_plain/)
-- [SENS YOLO - Either I'm Giving Or Receiving Sucky Behind Wendy's](https://www.reddit.com/r/wallstreetbets/comments/pcwn3s/sens_yolo_either_im_giving_or_receiving_sucky/)
-- [Where is the guy that correctly predicted Affirm and Amazon connection?](https://www.reddit.com/r/wallstreetbets/comments/pcwk0b/where_is_the_guy_that_correctly_predicted_affirm/)
-- [How throwing money on FDs feels like](https://www.reddit.com/r/wallstreetbets/comments/pcwgij/how_throwing_money_on_fds_feels_like/)
-- [$AFRM TO THE MOON WITH AMAZON PARTNERSHIP!](https://www.reddit.com/r/wallstreetbets/comments/pcvmpn/afrm_to_the_moon_with_amazon_partnership/)
+- [CLOV yolo from canada](https://www.reddit.com/r/wallstreetbets/comments/pdktm9/clov_yolo_from_canada/)
+- [SEC vs commodity futures trading commission IN charge of fiasco.](https://www.reddit.com/r/wallstreetbets/comments/pdk5g7/sec_vs_commodity_futures_trading_commission_in/)
+- [Nubank targets valuation of up to $100 billion with upcoming IPO](https://www.reddit.com/r/wallstreetbets/comments/pdjecs/nubank_targets_valuation_of_up_to_100_billion/)
+- [Why buy papayas when you can buy $PAYA?](https://www.reddit.com/r/wallstreetbets/comments/pdj113/why_buy_papayas_when_you_can_buy_paya/)
+- [Alibaba has been on a decline since October. But when looking at the resistance line baba tests it every 4ish months. (November calls)](https://www.reddit.com/r/wallstreetbets/comments/pdgqow/alibaba_has_been_on_a_decline_since_october_but/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
