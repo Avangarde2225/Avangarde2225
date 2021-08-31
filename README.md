@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is this really all there is to the market?](https://www.reddit.com/r/wallstreetbets/comments/pe44tf/is_this_really_all_there_is_to_the_market/)
-- [$BABA. Ban me if it doesn’t go +5% tomorrow.](https://www.reddit.com/r/wallstreetbets/comments/pe3y4x/baba_ban_me_if_it_doesnt_go_5_tomorrow/)
-- [Spaceballs - Episode V - The QE Strikes Back...](https://www.reddit.com/r/wallstreetbets/comments/pe3mj5/spaceballs_episode_v_the_qe_strikes_back/)
-- [What Are Your Moves Tomorrow, August 30, 2021](https://www.reddit.com/r/wallstreetbets/comments/pe2ihy/what_are_your_moves_tomorrow_august_30_2021/)
-- [$ROOT.](https://www.reddit.com/r/wallstreetbets/comments/pe16la/root/)
+- [Robinhood tumbles 7% after SEC's Gary Gensler says ban of payment for order flow 'is on the table'](https://www.reddit.com/r/wallstreetbets/comments/peto92/robinhood_tumbles_7_after_secs_gary_gensler_says/)
+- [JPOW is our friend](https://www.reddit.com/r/wallstreetbets/comments/petjp2/jpow_is_our_friend/)
+- [Palantir is awarded a $48,500,000 firm-fixed-price definitization modification for a Data-as-a-Service Platform, by the U.S Air Force. The work is expected to be completed by Nov. 30, 2021, with three six-month options.](https://www.reddit.com/r/wallstreetbets/comments/pespgc/palantir_is_awarded_a_48500000_firmfixedprice/)
+- [Tax Advice - lost over 70k this year on short term trades. What is my best approach to apply this loss against my ordinary income? Income is just over 200k. Not bragging need genuine advice.](https://www.reddit.com/r/wallstreetbets/comments/pes1lr/tax_advice_lost_over_70k_this_year_on_short_term/)
+- [On a scale from 1 to 69, how fu*ked am I?](https://www.reddit.com/r/wallstreetbets/comments/per1js/on_a_scale_from_1_to_69_how_fuked_am_i/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
