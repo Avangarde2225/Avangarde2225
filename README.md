@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Robinhood tumbles 7% after SEC's Gary Gensler says ban of payment for order flow 'is on the table'](https://www.reddit.com/r/wallstreetbets/comments/peto92/robinhood_tumbles_7_after_secs_gary_gensler_says/)
-- [JPOW is our friend](https://www.reddit.com/r/wallstreetbets/comments/petjp2/jpow_is_our_friend/)
-- [Palantir is awarded a $48,500,000 firm-fixed-price definitization modification for a Data-as-a-Service Platform, by the U.S Air Force. The work is expected to be completed by Nov. 30, 2021, with three six-month options.](https://www.reddit.com/r/wallstreetbets/comments/pespgc/palantir_is_awarded_a_48500000_firmfixedprice/)
-- [Tax Advice - lost over 70k this year on short term trades. What is my best approach to apply this loss against my ordinary income? Income is just over 200k. Not bragging need genuine advice.](https://www.reddit.com/r/wallstreetbets/comments/pes1lr/tax_advice_lost_over_70k_this_year_on_short_term/)
-- [On a scale from 1 to 69, how fu*ked am I?](https://www.reddit.com/r/wallstreetbets/comments/per1js/on_a_scale_from_1_to_69_how_fuked_am_i/)
+- [GME has consistently spiked every T-17 days before quad witching which is what we saw last week on 8-24. Next spike is T-9 before quad witching which is this Friday 9-3.](https://www.reddit.com/r/wallstreetbets/comments/pfhn3d/gme_has_consistently_spiked_every_t17_days_before/)
+- [Hedgies trying to stop us tomorrow](https://www.reddit.com/r/wallstreetbets/comments/pfh4j8/hedgies_trying_to_stop_us_tomorrow/)
+- [The squeeze has not squoze.](https://www.reddit.com/r/wallstreetbets/comments/pfgwg7/the_squeeze_has_not_squoze/)
+- [28k yolo on gme](https://www.reddit.com/r/wallstreetbets/comments/pfgr1h/28k_yolo_on_gme/)
+- [Am I The Asshole for dropping my 6 year old off at an orphanage for his inability to trade options](https://www.reddit.com/r/wallstreetbets/comments/pfgew5/am_i_the_asshole_for_dropping_my_6_year_old_off/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
