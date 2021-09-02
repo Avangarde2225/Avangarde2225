@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GME has consistently spiked every T-17 days before quad witching which is what we saw last week on 8-24. Next spike is T-9 before quad witching which is this Friday 9-3.](https://www.reddit.com/r/wallstreetbets/comments/pfhn3d/gme_has_consistently_spiked_every_t17_days_before/)
-- [Hedgies trying to stop us tomorrow](https://www.reddit.com/r/wallstreetbets/comments/pfh4j8/hedgies_trying_to_stop_us_tomorrow/)
-- [The squeeze has not squoze.](https://www.reddit.com/r/wallstreetbets/comments/pfgwg7/the_squeeze_has_not_squoze/)
-- [28k yolo on gme](https://www.reddit.com/r/wallstreetbets/comments/pfgr1h/28k_yolo_on_gme/)
-- [Am I The Asshole for dropping my 6 year old off at an orphanage for his inability to trade options](https://www.reddit.com/r/wallstreetbets/comments/pfgew5/am_i_the_asshole_for_dropping_my_6_year_old_off/)
+- [Meta Materials A technical analysis! Day 2 update 🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pg5rse/meta_materials_a_technical_analysis_day_2_update/)
+- [PLTR: 57,000 shares + 20,000 shares YOLO Part II @ $25.97](https://www.reddit.com/r/wallstreetbets/comments/pg4wk3/pltr_57000_shares_20000_shares_yolo_part_ii_2597/)
+- [$SPCE Gang Remembers](https://www.reddit.com/r/wallstreetbets/comments/pg4tgn/spce_gang_remembers/)
+- [SOFI YOLO $84k](https://www.reddit.com/r/wallstreetbets/comments/pg40ak/sofi_yolo_84k/)
+- [TTCF-Meat is...not back on the menu, but maybe tendies are?](https://www.reddit.com/r/wallstreetbets/comments/pg3sde/ttcfmeat_isnot_back_on_the_menu_but_maybe_tendies/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
