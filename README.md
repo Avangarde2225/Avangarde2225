@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Meta Materials A technical analysis! Day 2 update 🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pg5rse/meta_materials_a_technical_analysis_day_2_update/)
-- [PLTR: 57,000 shares + 20,000 shares YOLO Part II @ $25.97](https://www.reddit.com/r/wallstreetbets/comments/pg4wk3/pltr_57000_shares_20000_shares_yolo_part_ii_2597/)
-- [$SPCE Gang Remembers](https://www.reddit.com/r/wallstreetbets/comments/pg4tgn/spce_gang_remembers/)
-- [SOFI YOLO $84k](https://www.reddit.com/r/wallstreetbets/comments/pg40ak/sofi_yolo_84k/)
-- [TTCF-Meat is...not back on the menu, but maybe tendies are?](https://www.reddit.com/r/wallstreetbets/comments/pg3sde/ttcfmeat_isnot_back_on_the_menu_but_maybe_tendies/)
+- [Today's price action before market close.](https://www.reddit.com/r/wallstreetbets/comments/pgsajz/todays_price_action_before_market_close/)
+- [Hoping for a surge tomorrow or else calls on $ROPE. GUH!](https://www.reddit.com/r/wallstreetbets/comments/pgs8mp/hoping_for_a_surge_tomorrow_or_else_calls_on_rope/)
+- [Not a bad day my peeps](https://www.reddit.com/r/wallstreetbets/comments/pgqb2r/not_a_bad_day_my_peeps/)
+- [390k TTCF YOLO. That DD really sent me over the edge and now my port is raw doggin this cauliflower rice peddler](https://www.reddit.com/r/wallstreetbets/comments/pgpzh5/390k_ttcf_yolo_that_dd_really_sent_me_over_the/)
+- [Anyone else in $TTCF. Possible squeeze coming. Loaded Up 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pgpw96/anyone_else_in_ttcf_possible_squeeze_coming/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
