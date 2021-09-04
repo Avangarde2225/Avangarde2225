@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Today's price action before market close.](https://www.reddit.com/r/wallstreetbets/comments/pgsajz/todays_price_action_before_market_close/)
-- [Hoping for a surge tomorrow or else calls on $ROPE. GUH!](https://www.reddit.com/r/wallstreetbets/comments/pgs8mp/hoping_for_a_surge_tomorrow_or_else_calls_on_rope/)
-- [Not a bad day my peeps](https://www.reddit.com/r/wallstreetbets/comments/pgqb2r/not_a_bad_day_my_peeps/)
-- [390k TTCF YOLO. That DD really sent me over the edge and now my port is raw doggin this cauliflower rice peddler](https://www.reddit.com/r/wallstreetbets/comments/pgpzh5/390k_ttcf_yolo_that_dd_really_sent_me_over_the/)
-- [Anyone else in $TTCF. Possible squeeze coming. Loaded Up 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pgpw96/anyone_else_in_ttcf_possible_squeeze_coming/)
+- ['We couldn't be further from' a market bubble: Cathie Wood](https://www.reddit.com/r/wallstreetbets/comments/phdj5v/we_couldnt_be_further_from_a_market_bubble_cathie/)
+- [We feel no pain.](https://www.reddit.com/r/wallstreetbets/comments/phd7n7/we_feel_no_pain/)
+- [Am I doing it right?](https://www.reddit.com/r/wallstreetbets/comments/phd1hj/am_i_doing_it_right/)
+- [Weekend Discussion Thread for the Weekend of September 03, 2021](https://www.reddit.com/r/wallstreetbets/comments/phcns0/weekend_discussion_thread_for_the_weekend_of/)
+- [$20k SPY PUTs - 1 Day to Expire - I'm gambling at this point lol](https://www.reddit.com/r/wallstreetbets/comments/phci0w/20k_spy_puts_1_day_to_expire_im_gambling_at_this/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
