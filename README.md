@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- ['We couldn't be further from' a market bubble: Cathie Wood](https://www.reddit.com/r/wallstreetbets/comments/phdj5v/we_couldnt_be_further_from_a_market_bubble_cathie/)
-- [We feel no pain.](https://www.reddit.com/r/wallstreetbets/comments/phd7n7/we_feel_no_pain/)
-- [Am I doing it right?](https://www.reddit.com/r/wallstreetbets/comments/phd1hj/am_i_doing_it_right/)
-- [Weekend Discussion Thread for the Weekend of September 03, 2021](https://www.reddit.com/r/wallstreetbets/comments/phcns0/weekend_discussion_thread_for_the_weekend_of/)
-- [$20k SPY PUTs - 1 Day to Expire - I'm gambling at this point lol](https://www.reddit.com/r/wallstreetbets/comments/phci0w/20k_spy_puts_1_day_to_expire_im_gambling_at_this/)
+- [How tax affects your trade (wash sale, deduction, gain, loss)](https://www.reddit.com/r/wallstreetbets/comments/pi2nom/how_tax_affects_your_trade_wash_sale_deduction/)
+- [CLOV - YOLO](https://www.reddit.com/r/wallstreetbets/comments/pi2buw/clov_yolo/)
+- [CLOV 16K YOLO](https://www.reddit.com/r/wallstreetbets/comments/pi25h2/clov_16k_yolo/)
+- [1 of 2 things guaranteed in life.](https://www.reddit.com/r/wallstreetbets/comments/pi0x0s/1_of_2_things_guaranteed_in_life/)
+- [Is this the top? No it’s actually the bottom. How endless printing is creating the next ten year bull run.](https://www.reddit.com/r/wallstreetbets/comments/phzx2a/is_this_the_top_no_its_actually_the_bottom_how/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
