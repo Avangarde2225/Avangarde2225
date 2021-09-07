@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$CLOV seeing green! Buying more at open! Let's go! 🍀 🚀](https://www.reddit.com/r/wallstreetbets/comments/piochc/clov_seeing_green_buying_more_at_open_lets_go/)
-- [CLOV due for a massive short squeeze in 2200 shares](https://www.reddit.com/r/wallstreetbets/comments/piobxs/clov_due_for_a_massive_short_squeeze_in_2200/)
-- [CLOV to the MOON. Make me rich!](https://www.reddit.com/r/wallstreetbets/comments/pio5ku/clov_to_the_moon_make_me_rich/)
-- [Why so many $CLOV apes? Because we truly believe in this company #TeslaHealth and we prove with our real money. 664K yolo in $CLOV.](https://www.reddit.com/r/wallstreetbets/comments/pinxwk/why_so_many_clov_apes_because_we_truly_believe_in/)
-- [Am I doing this right?](https://www.reddit.com/r/wallstreetbets/comments/pinpak/am_i_doing_this_right/)
+- [Let me put gasoline into this fire $CLOV](https://www.reddit.com/r/wallstreetbets/comments/pjbm6i/let_me_put_gasoline_into_this_fire_clov/)
+- [First time retards seeing their first dip.](https://www.reddit.com/r/wallstreetbets/comments/pjapy4/first_time_retards_seeing_their_first_dip/)
+- [Texas city to offer Samsung large property tax breaks to build $17 bln chip plant](https://www.reddit.com/r/wallstreetbets/comments/pjahvi/texas_city_to_offer_samsung_large_property_tax/)
+- [This CLOV shit on WSB is garbage.](https://www.reddit.com/r/wallstreetbets/comments/pja7lf/this_clov_shit_on_wsb_is_garbage/)
+- [Why yes I'm a momentum based trader who gets it wrong, how did you know?](https://www.reddit.com/r/wallstreetbets/comments/pj9tms/why_yes_im_a_momentum_based_trader_who_gets_it/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
