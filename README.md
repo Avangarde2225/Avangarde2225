@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Let me put gasoline into this fire $CLOV](https://www.reddit.com/r/wallstreetbets/comments/pjbm6i/let_me_put_gasoline_into_this_fire_clov/)
-- [First time retards seeing their first dip.](https://www.reddit.com/r/wallstreetbets/comments/pjapy4/first_time_retards_seeing_their_first_dip/)
-- [Texas city to offer Samsung large property tax breaks to build $17 bln chip plant](https://www.reddit.com/r/wallstreetbets/comments/pjahvi/texas_city_to_offer_samsung_large_property_tax/)
-- [This CLOV shit on WSB is garbage.](https://www.reddit.com/r/wallstreetbets/comments/pja7lf/this_clov_shit_on_wsb_is_garbage/)
-- [Why yes I'm a momentum based trader who gets it wrong, how did you know?](https://www.reddit.com/r/wallstreetbets/comments/pj9tms/why_yes_im_a_momentum_based_trader_who_gets_it/)
+- [Fuck it Yolo’d in2 clov aswell lol💰💰](https://www.reddit.com/r/wallstreetbets/comments/pjxd44/fuck_it_yolod_in2_clov_aswell_lol/)
+- [Clover gangggg 🍀🍀🍀](https://www.reddit.com/r/wallstreetbets/comments/pjvu0h/clover_gangggg/)
+- [Zombie Kong is Back 🪦🗿 🦍 🦍 🦍 Warning ⚠️: retarded GME yolo inside 🦍🦍🦍🍆🛸🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pjvgox/zombie_kong_is_back_warning_retarded_gme_yolo/)
+- [CLOV YOLO Gain. Stacks on Stacks](https://www.reddit.com/r/wallstreetbets/comments/pjuyxo/clov_yolo_gain_stacks_on_stacks/)
+- [CLOV 16K YOLO (Update). Mods deleted my post and told us to post with significant gains. I have that now.](https://www.reddit.com/r/wallstreetbets/comments/pjuttk/clov_16k_yolo_update_mods_deleted_my_post_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
