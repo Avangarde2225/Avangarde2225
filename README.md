@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fuck it Yolo’d in2 clov aswell lol💰💰](https://www.reddit.com/r/wallstreetbets/comments/pjxd44/fuck_it_yolod_in2_clov_aswell_lol/)
-- [Clover gangggg 🍀🍀🍀](https://www.reddit.com/r/wallstreetbets/comments/pjvu0h/clover_gangggg/)
-- [Zombie Kong is Back 🪦🗿 🦍 🦍 🦍 Warning ⚠️: retarded GME yolo inside 🦍🦍🦍🍆🛸🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pjvgox/zombie_kong_is_back_warning_retarded_gme_yolo/)
-- [CLOV YOLO Gain. Stacks on Stacks](https://www.reddit.com/r/wallstreetbets/comments/pjuyxo/clov_yolo_gain_stacks_on_stacks/)
-- [CLOV 16K YOLO (Update). Mods deleted my post and told us to post with significant gains. I have that now.](https://www.reddit.com/r/wallstreetbets/comments/pjuttk/clov_16k_yolo_update_mods_deleted_my_post_and/)
+- [Why did I pay for an education when I can get it for free](https://www.reddit.com/r/wallstreetbets/comments/pkmejg/why_did_i_pay_for_an_education_when_i_can_get_it/)
+- [CLOV LOSS PORN. My parents would be so proud. Hope tomorrow will be a better day🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pkkesm/clov_loss_porn_my_parents_would_be_so_proud_hope/)
+- [You asked for the CLOV Loss Porn (yes unrealized a holes)](https://www.reddit.com/r/wallstreetbets/comments/pkk3r3/you_asked_for_the_clov_loss_porn_yes_unrealized_a/)
+- [Outsiders view of GME ER results.](https://www.reddit.com/r/wallstreetbets/comments/pkk2p4/outsiders_view_of_gme_er_results/)
+- [🚀🚀 ROCKET LAB 🚀🚀 RKLB 🚀🚀 Half year results DD - Officially going to Mars, literally 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pkj7pv/rocket_lab_rklb_half_year_results_dd_officially/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
