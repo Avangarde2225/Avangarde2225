@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why did I pay for an education when I can get it for free](https://www.reddit.com/r/wallstreetbets/comments/pkmejg/why_did_i_pay_for_an_education_when_i_can_get_it/)
-- [CLOV LOSS PORN. My parents would be so proud. Hope tomorrow will be a better day🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pkkesm/clov_loss_porn_my_parents_would_be_so_proud_hope/)
-- [You asked for the CLOV Loss Porn (yes unrealized a holes)](https://www.reddit.com/r/wallstreetbets/comments/pkk3r3/you_asked_for_the_clov_loss_porn_yes_unrealized_a/)
-- [Outsiders view of GME ER results.](https://www.reddit.com/r/wallstreetbets/comments/pkk2p4/outsiders_view_of_gme_er_results/)
-- [🚀🚀 ROCKET LAB 🚀🚀 RKLB 🚀🚀 Half year results DD - Officially going to Mars, literally 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pkj7pv/rocket_lab_rklb_half_year_results_dd_officially/)
+- [Me buying all the dips](https://www.reddit.com/r/wallstreetbets/comments/pl8qx7/me_buying_all_the_dips/)
+- [Updated CLOV options yolo. Lost about 21k today not worried at all, tomorrow I'll make it all back.](https://www.reddit.com/r/wallstreetbets/comments/pl8eb6/updated_clov_options_yolo_lost_about_21k_today/)
+- [Everything is a short squeeze nowadays](https://www.reddit.com/r/wallstreetbets/comments/pl7u0c/everything_is_a_short_squeeze_nowadays/)
+- ['Virgin Galactic and Richard Branson sold $800 million in stock before investors knew the FAA was investigating a 'mishap' on its edge-of-space flight' -Business Insider Report](https://www.reddit.com/r/wallstreetbets/comments/pl730n/virgin_galactic_and_richard_branson_sold_800/)
+- [3 Things to Stop doing That Will Help You Lose Less Money](https://www.reddit.com/r/wallstreetbets/comments/pl6ekj/3_things_to_stop_doing_that_will_help_you_lose/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
