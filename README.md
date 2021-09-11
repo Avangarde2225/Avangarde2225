@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me buying all the dips](https://www.reddit.com/r/wallstreetbets/comments/pl8qx7/me_buying_all_the_dips/)
-- [Updated CLOV options yolo. Lost about 21k today not worried at all, tomorrow I'll make it all back.](https://www.reddit.com/r/wallstreetbets/comments/pl8eb6/updated_clov_options_yolo_lost_about_21k_today/)
-- [Everything is a short squeeze nowadays](https://www.reddit.com/r/wallstreetbets/comments/pl7u0c/everything_is_a_short_squeeze_nowadays/)
-- ['Virgin Galactic and Richard Branson sold $800 million in stock before investors knew the FAA was investigating a 'mishap' on its edge-of-space flight' -Business Insider Report](https://www.reddit.com/r/wallstreetbets/comments/pl730n/virgin_galactic_and_richard_branson_sold_800/)
-- [3 Things to Stop doing That Will Help You Lose Less Money](https://www.reddit.com/r/wallstreetbets/comments/pl6ekj/3_things_to_stop_doing_that_will_help_you_lose/)
+- [Apes learning about uranium squeeze today be like:](https://www.reddit.com/r/wallstreetbets/comments/plw0lf/apes_learning_about_uranium_squeeze_today_be_like/)
+- [Why uranium is the worldwide clean energy play and $CCJ is poised to make us rich as the largest uranium supplier in the stock market](https://www.reddit.com/r/wallstreetbets/comments/plv17f/why_uranium_is_the_worldwide_clean_energy_play/)
+- [The worst stock in the market.](https://www.reddit.com/r/wallstreetbets/comments/plu6c5/the_worst_stock_in_the_market/)
+- [I admit, I’m a fcking 🤡. Was up 22k at 1pm, didn’t sell, down 36k by market close.](https://www.reddit.com/r/wallstreetbets/comments/plsivv/i_admit_im_a_fcking_was_up_22k_at_1pm_didnt_sell/)
+- [Weekend Discussion Thread for the Weekend of September 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/plsh4c/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
