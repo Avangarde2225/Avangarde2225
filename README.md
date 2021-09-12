@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apes learning about uranium squeeze today be like:](https://www.reddit.com/r/wallstreetbets/comments/plw0lf/apes_learning_about_uranium_squeeze_today_be_like/)
-- [Why uranium is the worldwide clean energy play and $CCJ is poised to make us rich as the largest uranium supplier in the stock market](https://www.reddit.com/r/wallstreetbets/comments/plv17f/why_uranium_is_the_worldwide_clean_energy_play/)
-- [The worst stock in the market.](https://www.reddit.com/r/wallstreetbets/comments/plu6c5/the_worst_stock_in_the_market/)
-- [I admit, I’m a fcking 🤡. Was up 22k at 1pm, didn’t sell, down 36k by market close.](https://www.reddit.com/r/wallstreetbets/comments/plsivv/i_admit_im_a_fcking_was_up_22k_at_1pm_didnt_sell/)
-- [Weekend Discussion Thread for the Weekend of September 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/plsh4c/weekend_discussion_thread_for_the_weekend_of/)
+- [This is a wakeup call](https://www.reddit.com/r/wallstreetbets/comments/pmgszo/this_is_a_wakeup_call/)
+- [Could this be a play in the future?](https://www.reddit.com/r/wallstreetbets/comments/pmfzl3/could_this_be_a_play_in_the_future/)
+- [Uranium Market Backdrop Explanation and 9/10 after-market most recent updates!](https://www.reddit.com/r/wallstreetbets/comments/pmfbhb/uranium_market_backdrop_explanation_and_910/)
+- [Hoping $ROOT gets to $7.49 by next Friday :))](https://www.reddit.com/r/wallstreetbets/comments/pmf75z/hoping_root_gets_to_749_by_next_friday/)
+- [Sept Market Crash Catalyst Incoming!](https://www.reddit.com/r/wallstreetbets/comments/pmf0ia/sept_market_crash_catalyst_incoming/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
