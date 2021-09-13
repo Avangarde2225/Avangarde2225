@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is a wakeup call](https://www.reddit.com/r/wallstreetbets/comments/pmgszo/this_is_a_wakeup_call/)
-- [Could this be a play in the future?](https://www.reddit.com/r/wallstreetbets/comments/pmfzl3/could_this_be_a_play_in_the_future/)
-- [Uranium Market Backdrop Explanation and 9/10 after-market most recent updates!](https://www.reddit.com/r/wallstreetbets/comments/pmfbhb/uranium_market_backdrop_explanation_and_910/)
-- [Hoping $ROOT gets to $7.49 by next Friday :))](https://www.reddit.com/r/wallstreetbets/comments/pmf75z/hoping_root_gets_to_749_by_next_friday/)
-- [Sept Market Crash Catalyst Incoming!](https://www.reddit.com/r/wallstreetbets/comments/pmf0ia/sept_market_crash_catalyst_incoming/)
+- [Made my choices](https://www.reddit.com/r/wallstreetbets/comments/pn336p/made_my_choices/)
+- [Financial freedom achieved!!!😎](https://www.reddit.com/r/wallstreetbets/comments/pn2890/financial_freedom_achieved/)
+- [An Enshambled Story](https://www.reddit.com/r/wallstreetbets/comments/pn0g4v/an_enshambled_story/)
+- [What Are Your Moves Tomorrow, September 13, 2021](https://www.reddit.com/r/wallstreetbets/comments/pmzxa9/what_are_your_moves_tomorrow_september_13_2021/)
+- [Week should be lit! Share 1 name from your buy list & 1 from your sell list.](https://www.reddit.com/r/wallstreetbets/comments/pmzvyo/week_should_be_lit_share_1_name_from_your_buy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
