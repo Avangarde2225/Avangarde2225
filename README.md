@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BEKE, $YANG, $NOAH - Big Profits off the Collapse of Big Brother - An Evergrande DD](https://www.reddit.com/r/wallstreetbets/comments/pp1obi/beke_yang_noah_big_profits_off_the_collapse_of/)
-- [Update #2: $IRNT - Gamma squeeze with >=479% of float claimed by OI & SI](https://www.reddit.com/r/wallstreetbets/comments/pp0nhe/update_2_irnt_gamma_squeeze_with_479_of_float/)
-- [TMC YOLO -- Have another 3,000 shares too. Not selling until $25 next week. Shares and calls ftw.](https://www.reddit.com/r/wallstreetbets/comments/pozxqz/tmc_yolo_have_another_3000_shares_too_not_selling/)
-- [The beginning of the end for most people’s trading career is when they discover options](https://www.reddit.com/r/wallstreetbets/comments/pozsyh/the_beginning_of_the_end_for_most_peoples_trading/)
-- [1.1 Milly IRNT YOLO update, bought some more shares](https://www.reddit.com/r/wallstreetbets/comments/poylg7/11_milly_irnt_yolo_update_bought_some_more_shares/)
+- [Chill the fuck out and read this. $IRNT & $OPAD](https://www.reddit.com/r/wallstreetbets/comments/ppo5hq/chill_the_fuck_out_and_read_this_irnt_opad/)
+- [Hopped in and out of INRT in 24hrs](https://www.reddit.com/r/wallstreetbets/comments/ppnr9n/hopped_in_and_out_of_inrt_in_24hrs/)
+- [Let’s get mining - $TMC](https://www.reddit.com/r/wallstreetbets/comments/ppnps6/lets_get_mining_tmc/)
+- [Go SDC !! Waiting to be Un-Fucked](https://www.reddit.com/r/wallstreetbets/comments/ppmoci/go_sdc_waiting_to_be_unfucked/)
+- [TMC - The nuclear thesis that will give you an erection lasting more than 4 hours](https://www.reddit.com/r/wallstreetbets/comments/ppmd1n/tmc_the_nuclear_thesis_that_will_give_you_an/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
