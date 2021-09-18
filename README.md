@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Chill the fuck out and read this. $IRNT & $OPAD](https://www.reddit.com/r/wallstreetbets/comments/ppo5hq/chill_the_fuck_out_and_read_this_irnt_opad/)
-- [Hopped in and out of INRT in 24hrs](https://www.reddit.com/r/wallstreetbets/comments/ppnr9n/hopped_in_and_out_of_inrt_in_24hrs/)
-- [Let’s get mining - $TMC](https://www.reddit.com/r/wallstreetbets/comments/ppnps6/lets_get_mining_tmc/)
-- [Go SDC !! Waiting to be Un-Fucked](https://www.reddit.com/r/wallstreetbets/comments/ppmoci/go_sdc_waiting_to_be_unfucked/)
-- [TMC - The nuclear thesis that will give you an erection lasting more than 4 hours](https://www.reddit.com/r/wallstreetbets/comments/ppmd1n/tmc_the_nuclear_thesis_that_will_give_you_an/)
+- [SDC - Dehedging the (tiny) float](https://www.reddit.com/r/wallstreetbets/comments/pqafty/sdc_dehedging_the_tiny_float/)
+- [Just wsb with bigger budget](https://www.reddit.com/r/wallstreetbets/comments/pqadqh/just_wsb_with_bigger_budget/)
+- [$IRNT Bagholders now.](https://www.reddit.com/r/wallstreetbets/comments/pq9g75/irnt_bagholders_now/)
+- [WSB Right now](https://www.reddit.com/r/wallstreetbets/comments/pq8vq2/wsb_right_now/)
+- [SDC Yolo Update](https://www.reddit.com/r/wallstreetbets/comments/pq8er1/sdc_yolo_update/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
