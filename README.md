@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SDC - Dehedging the (tiny) float](https://www.reddit.com/r/wallstreetbets/comments/pqafty/sdc_dehedging_the_tiny_float/)
-- [Just wsb with bigger budget](https://www.reddit.com/r/wallstreetbets/comments/pqadqh/just_wsb_with_bigger_budget/)
-- [$IRNT Bagholders now.](https://www.reddit.com/r/wallstreetbets/comments/pq9g75/irnt_bagholders_now/)
-- [WSB Right now](https://www.reddit.com/r/wallstreetbets/comments/pq8vq2/wsb_right_now/)
-- [SDC Yolo Update](https://www.reddit.com/r/wallstreetbets/comments/pq8er1/sdc_yolo_update/)
+- [I am a Korean who invested all the small money he saved for a year in SDC. In Korea, SDC is the best stock](https://www.reddit.com/r/wallstreetbets/comments/pqww83/i_am_a_korean_who_invested_all_the_small_money_he/)
+- [Bagholding.mp4](https://www.reddit.com/r/wallstreetbets/comments/pqvyvv/bagholdingmp4/)
+- [Technical analysis is pretty much a horoscope astrological chart for men](https://www.reddit.com/r/wallstreetbets/comments/pqui8u/technical_analysis_is_pretty_much_a_horoscope/)
+- [$112k SDC YOLO. Who’s coming with me to the moon 🚀](https://www.reddit.com/r/wallstreetbets/comments/pqueas/112k_sdc_yolo_whos_coming_with_me_to_the_moon/)
+- [I saw the crocodile analysis and decided to bring you....](https://www.reddit.com/r/wallstreetbets/comments/pqu5yp/i_saw_the_crocodile_analysis_and_decided_to_bring/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
