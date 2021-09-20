@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I am a Korean who invested all the small money he saved for a year in SDC. In Korea, SDC is the best stock](https://www.reddit.com/r/wallstreetbets/comments/pqww83/i_am_a_korean_who_invested_all_the_small_money_he/)
-- [Bagholding.mp4](https://www.reddit.com/r/wallstreetbets/comments/pqvyvv/bagholdingmp4/)
-- [Technical analysis is pretty much a horoscope astrological chart for men](https://www.reddit.com/r/wallstreetbets/comments/pqui8u/technical_analysis_is_pretty_much_a_horoscope/)
-- [$112k SDC YOLO. Who’s coming with me to the moon 🚀](https://www.reddit.com/r/wallstreetbets/comments/pqueas/112k_sdc_yolo_whos_coming_with_me_to_the_moon/)
-- [I saw the crocodile analysis and decided to bring you....](https://www.reddit.com/r/wallstreetbets/comments/pqu5yp/i_saw_the_crocodile_analysis_and_decided_to_bring/)
+- [Cover Story: How Evergrande Could Turn Into ‘China’s Lehman Brothers’](https://www.reddit.com/r/wallstreetbets/comments/prjbdn/cover_story_how_evergrande_could_turn_into_chinas/)
+- [Buy the dip.](https://www.reddit.com/r/wallstreetbets/comments/prj502/buy_the_dip/)
+- [Bb with spicy earnings yolos](https://www.reddit.com/r/wallstreetbets/comments/prj2nr/bb_with_spicy_earnings_yolos/)
+- [TMC- set for explosive week!!!](https://www.reddit.com/r/wallstreetbets/comments/priumc/tmc_set_for_explosive_week/)
+- [Sometimes truth is stranger than fiction.](https://www.reddit.com/r/wallstreetbets/comments/pribd0/sometimes_truth_is_stranger_than_fiction/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
