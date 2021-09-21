@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cover Story: How Evergrande Could Turn Into ‘China’s Lehman Brothers’](https://www.reddit.com/r/wallstreetbets/comments/prjbdn/cover_story_how_evergrande_could_turn_into_chinas/)
-- [Buy the dip.](https://www.reddit.com/r/wallstreetbets/comments/prj502/buy_the_dip/)
-- [Bb with spicy earnings yolos](https://www.reddit.com/r/wallstreetbets/comments/prj2nr/bb_with_spicy_earnings_yolos/)
-- [TMC- set for explosive week!!!](https://www.reddit.com/r/wallstreetbets/comments/priumc/tmc_set_for_explosive_week/)
-- [Sometimes truth is stranger than fiction.](https://www.reddit.com/r/wallstreetbets/comments/pribd0/sometimes_truth_is_stranger_than_fiction/)
+- [People with SPY calls right now](https://www.reddit.com/r/wallstreetbets/comments/ps5yav/people_with_spy_calls_right_now/)
+- [When my parents ask what I did at work today](https://www.reddit.com/r/wallstreetbets/comments/ps4pnl/when_my_parents_ask_what_i_did_at_work_today/)
+- [Markets Will Continue to Drop Until October 2nd due to National Park Service Interference](https://www.reddit.com/r/wallstreetbets/comments/ps3uht/markets_will_continue_to_drop_until_october_2nd/)
+- [Well, shit.](https://www.reddit.com/r/wallstreetbets/comments/ps3s07/well_shit/)
+- [What Are Your Moves Tomorrow, September 21, 2021](https://www.reddit.com/r/wallstreetbets/comments/ps2twg/what_are_your_moves_tomorrow_september_21_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
