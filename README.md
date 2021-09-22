@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [People with SPY calls right now](https://www.reddit.com/r/wallstreetbets/comments/ps5yav/people_with_spy_calls_right_now/)
-- [When my parents ask what I did at work today](https://www.reddit.com/r/wallstreetbets/comments/ps4pnl/when_my_parents_ask_what_i_did_at_work_today/)
-- [Markets Will Continue to Drop Until October 2nd due to National Park Service Interference](https://www.reddit.com/r/wallstreetbets/comments/ps3uht/markets_will_continue_to_drop_until_october_2nd/)
-- [Well, shit.](https://www.reddit.com/r/wallstreetbets/comments/ps3s07/well_shit/)
-- [What Are Your Moves Tomorrow, September 21, 2021](https://www.reddit.com/r/wallstreetbets/comments/ps2twg/what_are_your_moves_tomorrow_september_21_2021/)
+- [LCID Dreams](https://www.reddit.com/r/wallstreetbets/comments/psu8ep/lcid_dreams/)
+- [Ground hog day for $WISH investors](https://www.reddit.com/r/wallstreetbets/comments/psu3gz/ground_hog_day_for_wish_investors/)
+- [No sell, no loss. Just another day on paper. #temporaryopportunitycost](https://www.reddit.com/r/wallstreetbets/comments/pst6kx/no_sell_no_loss_just_another_day_on_paper/)
+- [$SPY today](https://www.reddit.com/r/wallstreetbets/comments/psr7ds/spy_today/)
+- [[OC] Waiting for the drop](https://www.reddit.com/r/wallstreetbets/comments/psr0aj/oc_waiting_for_the_drop/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
