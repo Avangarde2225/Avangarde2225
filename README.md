@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [LCID Dreams](https://www.reddit.com/r/wallstreetbets/comments/psu8ep/lcid_dreams/)
-- [Ground hog day for $WISH investors](https://www.reddit.com/r/wallstreetbets/comments/psu3gz/ground_hog_day_for_wish_investors/)
-- [No sell, no loss. Just another day on paper. #temporaryopportunitycost](https://www.reddit.com/r/wallstreetbets/comments/pst6kx/no_sell_no_loss_just_another_day_on_paper/)
-- [$SPY today](https://www.reddit.com/r/wallstreetbets/comments/psr7ds/spy_today/)
-- [[OC] Waiting for the drop](https://www.reddit.com/r/wallstreetbets/comments/psr0aj/oc_waiting_for_the_drop/)
+- [Joined WSB in April](https://www.reddit.com/r/wallstreetbets/comments/ptidzo/joined_wsb_in_april/)
+- [$BB BlackBerry - UNLEASH THE BEAST!!! (Post earning analysis) 🍇💎🐵](https://www.reddit.com/r/wallstreetbets/comments/ptidr0/bb_blackberry_unleash_the_beast_post_earning/)
+- [Why Is no one talking about BB's epic earnings...](https://www.reddit.com/r/wallstreetbets/comments/pthsij/why_is_no_one_talking_about_bbs_epic_earnings/)
+- [The $SPIR 10 bagger finally came 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ptfsge/the_spir_10_bagger_finally_came/)
+- [What Are Your Moves Tomorrow, September 23, 2021](https://www.reddit.com/r/wallstreetbets/comments/ptfnuf/what_are_your_moves_tomorrow_september_23_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
