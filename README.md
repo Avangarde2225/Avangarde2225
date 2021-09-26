@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You know who you are 👀](https://www.reddit.com/r/wallstreetbets/comments/putmjf/you_know_who_you_are/)
-- [$CLOV and $WISH apes now:](https://www.reddit.com/r/wallstreetbets/comments/put2cj/clov_and_wish_apes_now/)
-- [Tough life of a $BABAgholder](https://www.reddit.com/r/wallstreetbets/comments/puszcg/tough_life_of_a_babagholder/)
-- [$WISH 💎🙌🏻 Down 67K](https://www.reddit.com/r/wallstreetbets/comments/pusq5s/wish_down_67k/)
-- [IM IN IF YOU’RE IN. CANOO to the moon? Also just so happens to be the name of the local crackhead. Coincidence? I think not](https://www.reddit.com/r/wallstreetbets/comments/puriwj/im_in_if_youre_in_canoo_to_the_moon_also_just_so/)
+- [Every new WSB'er be like](https://www.reddit.com/r/wallstreetbets/comments/pvh3u7/every_new_wsber_be_like/)
+- [Some people just want to watch the world burn. But Kenny! I’m not f’n selling. Monday I’m getting more tendies.](https://www.reddit.com/r/wallstreetbets/comments/pvh0ep/some_people_just_want_to_watch_the_world_burn_but/)
+- [Did anyone else receive their settlement from Robinhood? I sure didn't expect it to be this much.](https://www.reddit.com/r/wallstreetbets/comments/pvggo1/did_anyone_else_receive_their_settlement_from/)
+- [A Bears Guide to Shorting Stupid Meme Stocks](https://www.reddit.com/r/wallstreetbets/comments/pvg6gq/a_bears_guide_to_shorting_stupid_meme_stocks/)
+- [The current state of wsb](https://www.reddit.com/r/wallstreetbets/comments/pvg3zl/the_current_state_of_wsb/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
