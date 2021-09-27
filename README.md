@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Every new WSB'er be like](https://www.reddit.com/r/wallstreetbets/comments/pvh3u7/every_new_wsber_be_like/)
-- [Some people just want to watch the world burn. But Kenny! I’m not f’n selling. Monday I’m getting more tendies.](https://www.reddit.com/r/wallstreetbets/comments/pvh0ep/some_people_just_want_to_watch_the_world_burn_but/)
-- [Did anyone else receive their settlement from Robinhood? I sure didn't expect it to be this much.](https://www.reddit.com/r/wallstreetbets/comments/pvggo1/did_anyone_else_receive_their_settlement_from/)
-- [A Bears Guide to Shorting Stupid Meme Stocks](https://www.reddit.com/r/wallstreetbets/comments/pvg6gq/a_bears_guide_to_shorting_stupid_meme_stocks/)
-- [The current state of wsb](https://www.reddit.com/r/wallstreetbets/comments/pvg3zl/the_current_state_of_wsb/)
+- [Talk is cheap, it takes money to buy whiskey.](https://www.reddit.com/r/wallstreetbets/comments/pw4g3m/talk_is_cheap_it_takes_money_to_buy_whiskey/)
+- [Mortgage Lender Cut Corners in Echo of 2008 Crisis, Ex-Executive Says](https://www.reddit.com/r/wallstreetbets/comments/pw2axo/mortgage_lender_cut_corners_in_echo_of_2008/)
+- [What Are Your Moves Tomorrow, September 27, 2021](https://www.reddit.com/r/wallstreetbets/comments/pw1mqg/what_are_your_moves_tomorrow_september_27_2021/)
+- [The real story behind Evergrande](https://www.reddit.com/r/wallstreetbets/comments/pw0p1j/the_real_story_behind_evergrande/)
+- [TSLA to Produce 300k Cars From China Through Q3 YTD.](https://www.reddit.com/r/wallstreetbets/comments/pw0ewm/tsla_to_produce_300k_cars_from_china_through_q3/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
