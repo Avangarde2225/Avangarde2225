@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I think you know what time it is.CLOV](https://www.reddit.com/r/wallstreetbets/comments/pws6ro/i_think_you_know_what_time_it_isclov/)
-- [Holding SDC until $25 🚀 WHO ELSE GUNNA BE RICH WITH ME?!](https://www.reddit.com/r/wallstreetbets/comments/pwro1d/holding_sdc_until_25_who_else_gunna_be_rich_with/)
-- [Cut $10,000 off my losses here while I loaded up 5,000 more cheapies today. $SDC 🤏🍆🥪](https://www.reddit.com/r/wallstreetbets/comments/pwrg3j/cut_10000_off_my_losses_here_while_i_loaded_up/)
-- [Depiction of the Great Ape Extinction circa 2024](https://www.reddit.com/r/wallstreetbets/comments/pwqwyh/depiction_of_the_great_ape_extinction_circa_2024/)
-- [We don't take 1% gains for granted](https://www.reddit.com/r/wallstreetbets/comments/pwpuno/we_dont_take_1_gains_for_granted/)
+- [BUY SIGNAL CONFIRMED 🚀🚀🚀🚀🚀 THEY RELEASED THE KRAKEN 🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pxi7ku/buy_signal_confirmed_they_released_the_kraken/)
+- [Portfolio on fire 🔥](https://www.reddit.com/r/wallstreetbets/comments/pxht03/portfolio_on_fire/)
+- [Portfolio manager that gets paid millions a year reveals his complex strategy:](https://www.reddit.com/r/wallstreetbets/comments/pxhqg9/portfolio_manager_that_gets_paid_millions_a_year/)
+- [Present day Wallstreet(bets)](https://www.reddit.com/r/wallstreetbets/comments/pxhn11/present_day_wallstreetbets/)
+- [No matter what happens, can we all take a moment to thank King JPOW for his destruction of all bears over the past few years?](https://www.reddit.com/r/wallstreetbets/comments/pxgwan/no_matter_what_happens_can_we_all_take_a_moment/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
