@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BUY SIGNAL CONFIRMED 🚀🚀🚀🚀🚀 THEY RELEASED THE KRAKEN 🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pxi7ku/buy_signal_confirmed_they_released_the_kraken/)
-- [Portfolio on fire 🔥](https://www.reddit.com/r/wallstreetbets/comments/pxht03/portfolio_on_fire/)
-- [Portfolio manager that gets paid millions a year reveals his complex strategy:](https://www.reddit.com/r/wallstreetbets/comments/pxhqg9/portfolio_manager_that_gets_paid_millions_a_year/)
-- [Present day Wallstreet(bets)](https://www.reddit.com/r/wallstreetbets/comments/pxhn11/present_day_wallstreetbets/)
-- [No matter what happens, can we all take a moment to thank King JPOW for his destruction of all bears over the past few years?](https://www.reddit.com/r/wallstreetbets/comments/pxgwan/no_matter_what_happens_can_we_all_take_a_moment/)
+- [Upcoming market crash for October 1st.](https://www.reddit.com/r/wallstreetbets/comments/py5y01/upcoming_market_crash_for_october_1st/)
+- [120k loss in SDC](https://www.reddit.com/r/wallstreetbets/comments/py5p65/120k_loss_in_sdc/)
+- [U.S. Rents Are Increasing at ‘Shocking’ Rates of More Than 10%](https://www.reddit.com/r/wallstreetbets/comments/py4k6t/us_rents_are_increasing_at_shocking_rates_of_more/)
+- [The workers who keep global supply chains moving are warning of a 'system collapse'](https://www.reddit.com/r/wallstreetbets/comments/py4hum/the_workers_who_keep_global_supply_chains_moving/)
+- [DOLE YOLO 🐒🍌](https://www.reddit.com/r/wallstreetbets/comments/py47i9/dole_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
