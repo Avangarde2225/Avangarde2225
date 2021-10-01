@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Upcoming market crash for October 1st.](https://www.reddit.com/r/wallstreetbets/comments/py5y01/upcoming_market_crash_for_october_1st/)
-- [120k loss in SDC](https://www.reddit.com/r/wallstreetbets/comments/py5p65/120k_loss_in_sdc/)
-- [U.S. Rents Are Increasing at ‘Shocking’ Rates of More Than 10%](https://www.reddit.com/r/wallstreetbets/comments/py4k6t/us_rents_are_increasing_at_shocking_rates_of_more/)
-- [The workers who keep global supply chains moving are warning of a 'system collapse'](https://www.reddit.com/r/wallstreetbets/comments/py4hum/the_workers_who_keep_global_supply_chains_moving/)
-- [DOLE YOLO 🐒🍌](https://www.reddit.com/r/wallstreetbets/comments/py47i9/dole_yolo/)
+- [AMC Repurchase Some of its First Lien Debt and Reduces annual interest cost](https://www.reddit.com/r/wallstreetbets/comments/pyu07t/amc_repurchase_some_of_its_first_lien_debt_and/)
+- [It's a mean but it's also true so I don't know how to categorize this.](https://www.reddit.com/r/wallstreetbets/comments/pytwki/its_a_mean_but_its_also_true_so_i_dont_know_how/)
+- [This is how you go long in style my friends.](https://www.reddit.com/r/wallstreetbets/comments/pythl4/this_is_how_you_go_long_in_style_my_friends/)
+- [+$70,000 GAIN ON SPY/QQQ PUTS IN ONE DAY, UP ALMOST +$100,000 THIS WEEK 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pytd54/70000_gain_on_spyqqq_puts_in_one_day_up_almost/)
+- [Preview of Tonight's Mad Money (probably)](https://www.reddit.com/r/wallstreetbets/comments/pyt26x/preview_of_tonights_mad_money_probably/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
