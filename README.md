@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC Repurchase Some of its First Lien Debt and Reduces annual interest cost](https://www.reddit.com/r/wallstreetbets/comments/pyu07t/amc_repurchase_some_of_its_first_lien_debt_and/)
-- [It's a mean but it's also true so I don't know how to categorize this.](https://www.reddit.com/r/wallstreetbets/comments/pytwki/its_a_mean_but_its_also_true_so_i_dont_know_how/)
-- [This is how you go long in style my friends.](https://www.reddit.com/r/wallstreetbets/comments/pythl4/this_is_how_you_go_long_in_style_my_friends/)
-- [+$70,000 GAIN ON SPY/QQQ PUTS IN ONE DAY, UP ALMOST +$100,000 THIS WEEK 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/pytd54/70000_gain_on_spyqqq_puts_in_one_day_up_almost/)
-- [Preview of Tonight's Mad Money (probably)](https://www.reddit.com/r/wallstreetbets/comments/pyt26x/preview_of_tonights_mad_money_probably/)
+- [They used to be](https://www.reddit.com/r/wallstreetbets/comments/pzj09r/they_used_to_be/)
+- [UPDATE: LOCKED IN +$82,000 GAIN ON SPY/QQQ PUTS IN ONE WEEK 🚀🚀🚀 GOT OUT EARLY TODAY BEFORE MARKET RALLY!!!](https://www.reddit.com/r/wallstreetbets/comments/pziukh/update_locked_in_82000_gain_on_spyqqq_puts_in_one/)
+- [$1000 spy bet Paid..Opponent true wallstbets member](https://www.reddit.com/r/wallstreetbets/comments/pzhh18/1000_spy_bet_paidopponent_true_wallstbets_member/)
+- [That's what Xi said!](https://www.reddit.com/r/wallstreetbets/comments/pzggfo/thats_what_xi_said/)
+- ["How was your September?"](https://www.reddit.com/r/wallstreetbets/comments/pzgbz1/how_was_your_september/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
