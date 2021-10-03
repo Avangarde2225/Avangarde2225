@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [They used to be](https://www.reddit.com/r/wallstreetbets/comments/pzj09r/they_used_to_be/)
-- [UPDATE: LOCKED IN +$82,000 GAIN ON SPY/QQQ PUTS IN ONE WEEK 🚀🚀🚀 GOT OUT EARLY TODAY BEFORE MARKET RALLY!!!](https://www.reddit.com/r/wallstreetbets/comments/pziukh/update_locked_in_82000_gain_on_spyqqq_puts_in_one/)
-- [$1000 spy bet Paid..Opponent true wallstbets member](https://www.reddit.com/r/wallstreetbets/comments/pzhh18/1000_spy_bet_paidopponent_true_wallstbets_member/)
-- [That's what Xi said!](https://www.reddit.com/r/wallstreetbets/comments/pzggfo/thats_what_xi_said/)
-- ["How was your September?"](https://www.reddit.com/r/wallstreetbets/comments/pzgbz1/how_was_your_september/)
+- [green dildos 🟩🍆🚀](https://www.reddit.com/r/wallstreetbets/comments/q06giy/green_dildos/)
+- [Oof](https://www.reddit.com/r/wallstreetbets/comments/q06c9y/oof/)
+- [Cargo Ships in LA, NY Face 4-Week Wait to Dock Amid Supply Chain Chaos](https://www.reddit.com/r/wallstreetbets/comments/q0692i/cargo_ships_in_la_ny_face_4week_wait_to_dock_amid/)
+- [Shots fired! Cathie calling out GM after TSLA deliveries!](https://www.reddit.com/r/wallstreetbets/comments/q05y3e/shots_fired_cathie_calling_out_gm_after_tsla/)
+- [Former SEC](https://www.reddit.com/r/wallstreetbets/comments/q057lg/former_sec/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
