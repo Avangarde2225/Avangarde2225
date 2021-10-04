@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [green dildos 🟩🍆🚀](https://www.reddit.com/r/wallstreetbets/comments/q06giy/green_dildos/)
-- [Oof](https://www.reddit.com/r/wallstreetbets/comments/q06c9y/oof/)
-- [Cargo Ships in LA, NY Face 4-Week Wait to Dock Amid Supply Chain Chaos](https://www.reddit.com/r/wallstreetbets/comments/q0692i/cargo_ships_in_la_ny_face_4week_wait_to_dock_amid/)
-- [Shots fired! Cathie calling out GM after TSLA deliveries!](https://www.reddit.com/r/wallstreetbets/comments/q05y3e/shots_fired_cathie_calling_out_gm_after_tsla/)
-- [Former SEC](https://www.reddit.com/r/wallstreetbets/comments/q057lg/former_sec/)
+- [Jerome Powell discusses insider trading at the Federal Reserve](https://www.reddit.com/r/wallstreetbets/comments/q0tt6t/jerome_powell_discusses_insider_trading_at_the/)
+- [Pandora Papers: An offshore data tsunami](https://www.reddit.com/r/wallstreetbets/comments/q0sp4z/pandora_papers_an_offshore_data_tsunami/)
+- [The alluring market rattle](https://www.reddit.com/r/wallstreetbets/comments/q0silx/the_alluring_market_rattle/)
+- [Good news for the ill also helped the health of my portfolio (3pm Thurs-9am Fri)](https://www.reddit.com/r/wallstreetbets/comments/q0s511/good_news_for_the_ill_also_helped_the_health_of/)
+- [How are you people able to shrug off margin calls and insane losses so nonchalantly?](https://www.reddit.com/r/wallstreetbets/comments/q0rzf9/how_are_you_people_able_to_shrug_off_margin_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
