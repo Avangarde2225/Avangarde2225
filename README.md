@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Buying the dip](https://www.reddit.com/r/wallstreetbets/comments/q1ho6y/buying_the_dip/)
-- [Should we ground him ?](https://www.reddit.com/r/wallstreetbets/comments/q1gf4k/should_we_ground_him/)
-- [cya facebook](https://www.reddit.com/r/wallstreetbets/comments/q1f8hu/cya_facebook/)
-- [Here we go again...](https://www.reddit.com/r/wallstreetbets/comments/q1eont/here_we_go_again/)
-- [$WISH Loss Porn... From trader... to investor... to bagholder](https://www.reddit.com/r/wallstreetbets/comments/q1dwuz/wish_loss_porn_from_trader_to_investor_to/)
+- [$FB](https://www.reddit.com/r/wallstreetbets/comments/q28kk2/fb/)
+- [Does anyone else miss 2020 or is it just me?](https://www.reddit.com/r/wallstreetbets/comments/q28a90/does_anyone_else_miss_2020_or_is_it_just_me/)
+- [WISH investors meet Pennywise](https://www.reddit.com/r/wallstreetbets/comments/q2898b/wish_investors_meet_pennywise/)
+- [PLTR $70 for premium before the rocket AH 😭](https://www.reddit.com/r/wallstreetbets/comments/q27j6l/pltr_70_for_premium_before_the_rocket_ah/)
+- [Kellogg's U.S. cereal plant workers go on strike](https://www.reddit.com/r/wallstreetbets/comments/q26api/kelloggs_us_cereal_plant_workers_go_on_strike/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
