@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$FB](https://www.reddit.com/r/wallstreetbets/comments/q28kk2/fb/)
-- [Does anyone else miss 2020 or is it just me?](https://www.reddit.com/r/wallstreetbets/comments/q28a90/does_anyone_else_miss_2020_or_is_it_just_me/)
-- [WISH investors meet Pennywise](https://www.reddit.com/r/wallstreetbets/comments/q2898b/wish_investors_meet_pennywise/)
-- [PLTR $70 for premium before the rocket AH 😭](https://www.reddit.com/r/wallstreetbets/comments/q27j6l/pltr_70_for_premium_before_the_rocket_ah/)
-- [Kellogg's U.S. cereal plant workers go on strike](https://www.reddit.com/r/wallstreetbets/comments/q26api/kelloggs_us_cereal_plant_workers_go_on_strike/)
+- [255K $GME YOLO UPDATE. Added 30 more shares, please NO DRS comments. I’ve started my transfer to fidelity, gonna move 25% to Computer-share afterwards. GME is at its 2nd lowest RSI this year and as for the monthly chart, there’s a bullish MACD divergence. Fuck your puts, endgame is near](https://www.reddit.com/r/wallstreetbets/comments/q2vwkg/255k_gme_yolo_update_added_30_more_shares_please/)
+- [FOX News: Recreational marijuana legalization in Pennsylvania proposed by Republican lawmaker.](https://www.reddit.com/r/wallstreetbets/comments/q2u5ze/fox_news_recreational_marijuana_legalization_in/)
+- [$WISH apes today.](https://www.reddit.com/r/wallstreetbets/comments/q2sxsv/wish_apes_today/)
+- [I HAVE small d**k AND I CANT LIE](https://www.reddit.com/r/wallstreetbets/comments/q2spa7/i_have_small_dk_and_i_cant_lie/)
+- [I’m a retard that is going to become a super saiyan SDC 38k yolo 🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/q2sma0/im_a_retard_that_is_going_to_become_a_super/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
