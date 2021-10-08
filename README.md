@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [255K $GME YOLO UPDATE. Added 30 more shares, please NO DRS comments. I’ve started my transfer to fidelity, gonna move 25% to Computer-share afterwards. GME is at its 2nd lowest RSI this year and as for the monthly chart, there’s a bullish MACD divergence. Fuck your puts, endgame is near](https://www.reddit.com/r/wallstreetbets/comments/q2vwkg/255k_gme_yolo_update_added_30_more_shares_please/)
-- [FOX News: Recreational marijuana legalization in Pennsylvania proposed by Republican lawmaker.](https://www.reddit.com/r/wallstreetbets/comments/q2u5ze/fox_news_recreational_marijuana_legalization_in/)
-- [$WISH apes today.](https://www.reddit.com/r/wallstreetbets/comments/q2sxsv/wish_apes_today/)
-- [I HAVE small d**k AND I CANT LIE](https://www.reddit.com/r/wallstreetbets/comments/q2spa7/i_have_small_dk_and_i_cant_lie/)
-- [I’m a retard that is going to become a super saiyan SDC 38k yolo 🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/q2sma0/im_a_retard_that_is_going_to_become_a_super/)
+- [And then it fell over](https://www.reddit.com/r/wallstreetbets/comments/q3ll9y/and_then_it_fell_over/)
+- [Please make this the new banner.](https://www.reddit.com/r/wallstreetbets/comments/q3ku9i/please_make_this_the_new_banner/)
+- [Tesla moves headquarters from California to Texas](https://www.reddit.com/r/wallstreetbets/comments/q3kgka/tesla_moves_headquarters_from_california_to_texas/)
+- [$SDC held support PERFECT today! [Tech Analysis] 🔥 , see chart below.](https://www.reddit.com/r/wallstreetbets/comments/q3jmjt/sdc_held_support_perfect_today_tech_analysis_see/)
+- [AMC technical analysis for next week - The sellers seem exhausted](https://www.reddit.com/r/wallstreetbets/comments/q3j413/amc_technical_analysis_for_next_week_the_sellers/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
