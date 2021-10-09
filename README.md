@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [And then it fell over](https://www.reddit.com/r/wallstreetbets/comments/q3ll9y/and_then_it_fell_over/)
-- [Please make this the new banner.](https://www.reddit.com/r/wallstreetbets/comments/q3ku9i/please_make_this_the_new_banner/)
-- [Tesla moves headquarters from California to Texas](https://www.reddit.com/r/wallstreetbets/comments/q3kgka/tesla_moves_headquarters_from_california_to_texas/)
-- [$SDC held support PERFECT today! [Tech Analysis] 🔥 , see chart below.](https://www.reddit.com/r/wallstreetbets/comments/q3jmjt/sdc_held_support_perfect_today_tech_analysis_see/)
-- [AMC technical analysis for next week - The sellers seem exhausted](https://www.reddit.com/r/wallstreetbets/comments/q3j413/amc_technical_analysis_for_next_week_the_sellers/)
+- [Warren Buffet joins WSB](https://www.reddit.com/r/wallstreetbets/comments/q49krm/warren_buffet_joins_wsb/)
+- [$SDC 75k shares! No YOLO move! Confidently holding! I am a Dentist, and work with SDC and understand the business! German partner offices ARE Fully booked!!!](https://www.reddit.com/r/wallstreetbets/comments/q49iv7/sdc_75k_shares_no_yolo_move_confidently_holding_i/)
+- [U.S. crude oil price tops $80 a barrel, the highest since 2014](https://www.reddit.com/r/wallstreetbets/comments/q48wq9/us_crude_oil_price_tops_80_a_barrel_the_highest/)
+- [$SDC Day 2 ✌️ - Another PERFECT day! [Tech Analysis] 🔥, see Friday chart below.](https://www.reddit.com/r/wallstreetbets/comments/q47lzb/sdc_day_2_another_perfect_day_tech_analysis_see/)
+- [F*** you Aunt Cathie](https://www.reddit.com/r/wallstreetbets/comments/q45uvj/f_you_aunt_cathie/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
