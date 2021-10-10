@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Warren Buffet joins WSB](https://www.reddit.com/r/wallstreetbets/comments/q49krm/warren_buffet_joins_wsb/)
-- [$SDC 75k shares! No YOLO move! Confidently holding! I am a Dentist, and work with SDC and understand the business! German partner offices ARE Fully booked!!!](https://www.reddit.com/r/wallstreetbets/comments/q49iv7/sdc_75k_shares_no_yolo_move_confidently_holding_i/)
-- [U.S. crude oil price tops $80 a barrel, the highest since 2014](https://www.reddit.com/r/wallstreetbets/comments/q48wq9/us_crude_oil_price_tops_80_a_barrel_the_highest/)
-- [$SDC Day 2 ✌️ - Another PERFECT day! [Tech Analysis] 🔥, see Friday chart below.](https://www.reddit.com/r/wallstreetbets/comments/q47lzb/sdc_day_2_another_perfect_day_tech_analysis_see/)
-- [F*** you Aunt Cathie](https://www.reddit.com/r/wallstreetbets/comments/q45uvj/f_you_aunt_cathie/)
+- [brits didn't have that 1000x gains babyyyy](https://www.reddit.com/r/wallstreetbets/comments/q4x55e/brits_didnt_have_that_1000x_gains_babyyyy/)
+- [Reminder that if your friends still enjoy hanging out with you, you’re not talking about $TSLA enough](https://www.reddit.com/r/wallstreetbets/comments/q4vnrp/reminder_that_if_your_friends_still_enjoy_hanging/)
+- [Nothing to see here 👀](https://www.reddit.com/r/wallstreetbets/comments/q4tpec/nothing_to_see_here/)
+- [Are we a fake-business: Yes or yes?](https://www.reddit.com/r/wallstreetbets/comments/q4t3l9/are_we_a_fakebusiness_yes_or_yes/)
+- [My entire life savings is riding on this play. Stay tuned for the loss porn.](https://www.reddit.com/r/wallstreetbets/comments/q4t2xn/my_entire_life_savings_is_riding_on_this_play/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
