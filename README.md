@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [brits didn't have that 1000x gains babyyyy](https://www.reddit.com/r/wallstreetbets/comments/q4x55e/brits_didnt_have_that_1000x_gains_babyyyy/)
-- [Reminder that if your friends still enjoy hanging out with you, you’re not talking about $TSLA enough](https://www.reddit.com/r/wallstreetbets/comments/q4vnrp/reminder_that_if_your_friends_still_enjoy_hanging/)
-- [Nothing to see here 👀](https://www.reddit.com/r/wallstreetbets/comments/q4tpec/nothing_to_see_here/)
-- [Are we a fake-business: Yes or yes?](https://www.reddit.com/r/wallstreetbets/comments/q4t3l9/are_we_a_fakebusiness_yes_or_yes/)
-- [My entire life savings is riding on this play. Stay tuned for the loss porn.](https://www.reddit.com/r/wallstreetbets/comments/q4t2xn/my_entire_life_savings_is_riding_on_this_play/)
+- [WSB Investing 101](https://www.reddit.com/r/wallstreetbets/comments/q5juck/wsb_investing_101/)
+- [16,200 share CLOV YOLO 🚀🚀 Tomorrow moon bound 🌖](https://www.reddit.com/r/wallstreetbets/comments/q5joru/16200_share_clov_yolo_tomorrow_moon_bound/)
+- [I Followed Some Idiot And Now I’m Down $17,000 On My Weekly CLOV CALLS Expiring This Week 10/15. God Help Me.](https://www.reddit.com/r/wallstreetbets/comments/q5j7q3/i_followed_some_idiot_and_now_im_down_17000_on_my/)
+- [Historical Post Earnings Moves MEGA Compilation (Q3 Week 1) - $JPM, $WFC, $BAC, $C, $GS, $MS, $TSM, and More](https://www.reddit.com/r/wallstreetbets/comments/q5i4pd/historical_post_earnings_moves_mega_compilation/)
+- [$SDC YOLO update 🔥🚀 — Oct 8 2021 - Up $40k+ in just 1 week 🤯](https://www.reddit.com/r/wallstreetbets/comments/q5i1wm/sdc_yolo_update_oct_8_2021_up_40k_in_just_1_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
