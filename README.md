@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WSB Investing 101](https://www.reddit.com/r/wallstreetbets/comments/q5juck/wsb_investing_101/)
-- [16,200 share CLOV YOLO 🚀🚀 Tomorrow moon bound 🌖](https://www.reddit.com/r/wallstreetbets/comments/q5joru/16200_share_clov_yolo_tomorrow_moon_bound/)
-- [I Followed Some Idiot And Now I’m Down $17,000 On My Weekly CLOV CALLS Expiring This Week 10/15. God Help Me.](https://www.reddit.com/r/wallstreetbets/comments/q5j7q3/i_followed_some_idiot_and_now_im_down_17000_on_my/)
-- [Historical Post Earnings Moves MEGA Compilation (Q3 Week 1) - $JPM, $WFC, $BAC, $C, $GS, $MS, $TSM, and More](https://www.reddit.com/r/wallstreetbets/comments/q5i4pd/historical_post_earnings_moves_mega_compilation/)
-- [$SDC YOLO update 🔥🚀 — Oct 8 2021 - Up $40k+ in just 1 week 🤯](https://www.reddit.com/r/wallstreetbets/comments/q5i1wm/sdc_yolo_update_oct_8_2021_up_40k_in_just_1_week/)
+- [All 4,000 GameStop stores will be opening on Thanksgiving Day.](https://www.reddit.com/r/wallstreetbets/comments/q663qd/all_4000_gamestop_stores_will_be_opening_on/)
+- [$CLOV $95K YOLO ☘️🍀☘️👀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/q64rwu/clov_95k_yolo/)
+- [What Are Your Moves Tomorrow, October 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/q64csq/what_are_your_moves_tomorrow_october_12_2021/)
+- [WSB discussion so far today](https://www.reddit.com/r/wallstreetbets/comments/q643ov/wsb_discussion_so_far_today/)
+- [$GME Unbiased TA - Another Nice Setup In The Works](https://www.reddit.com/r/wallstreetbets/comments/q63x0d/gme_unbiased_ta_another_nice_setup_in_the_works/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
