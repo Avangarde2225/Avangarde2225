@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [All 4,000 GameStop stores will be opening on Thanksgiving Day.](https://www.reddit.com/r/wallstreetbets/comments/q663qd/all_4000_gamestop_stores_will_be_opening_on/)
-- [$CLOV $95K YOLO ☘️🍀☘️👀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/q64rwu/clov_95k_yolo/)
-- [What Are Your Moves Tomorrow, October 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/q64csq/what_are_your_moves_tomorrow_october_12_2021/)
-- [WSB discussion so far today](https://www.reddit.com/r/wallstreetbets/comments/q643ov/wsb_discussion_so_far_today/)
-- [$GME Unbiased TA - Another Nice Setup In The Works](https://www.reddit.com/r/wallstreetbets/comments/q63x0d/gme_unbiased_ta_another_nice_setup_in_the_works/)
+- [Jim Cramer can’t figure out where this market is going let alone what he’s doing on TV.](https://www.reddit.com/r/wallstreetbets/comments/q6ylgg/jim_cramer_cant_figure_out_where_this_market_is/)
+- [AcKtuaLLY... InFlaTion iS GoOd foR thE EcoNoMy](https://www.reddit.com/r/wallstreetbets/comments/q6wdvl/acktually_inflation_is_good_for_the_economy/)
+- [Sold t and vz shares for 10k lost still holding options. Never expected it drop that much.](https://www.reddit.com/r/wallstreetbets/comments/q6vz3n/sold_t_and_vz_shares_for_10k_lost_still_holding/)
+- [+181,000 GAIN on $SoFi. Going to the moon boys🚀💰❤️🔥](https://www.reddit.com/r/wallstreetbets/comments/q6vmhq/181000_gain_on_sofi_going_to_the_moon_boys/)
+- [CLOV $40K YODEL YOLO](https://www.reddit.com/r/wallstreetbets/comments/q6vkrc/clov_40k_yodel_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
