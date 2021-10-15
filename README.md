@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [An regular day for a WSB member](https://www.reddit.com/r/wallstreetbets/comments/q7n5m4/an_regular_day_for_a_wsb_member/)
-- [The McRib Rip: Lean Hog Prices Surge Every Time McDonald's Buys the Dip](https://www.reddit.com/r/wallstreetbets/comments/q7luuy/the_mcrib_rip_lean_hog_prices_surge_every_time/)
-- [Pain](https://www.reddit.com/r/wallstreetbets/comments/q7l9gi/pain/)
-- [Life savings into $SAVA - I’m 21 so I need to become a millionaire asap so I can get a hot girlfriend](https://www.reddit.com/r/wallstreetbets/comments/q7l1oa/life_savings_into_sava_im_21_so_i_need_to_become/)
-- [230k ALL IN ON CLF - STEEL AT IT](https://www.reddit.com/r/wallstreetbets/comments/q7kwmr/230k_all_in_on_clf_steel_at_it/)
+- [Never give up! calls printed 1DTE](https://www.reddit.com/r/wallstreetbets/comments/q8adpk/never_give_up_calls_printed_1dte/)
+- [Blackberry EV, IoT Design Wins Update Part II and BB Twitter Clue](https://www.reddit.com/r/wallstreetbets/comments/q8ac08/blackberry_ev_iot_design_wins_update_part_ii_and/)
+- [$WISH to $6](https://www.reddit.com/r/wallstreetbets/comments/q89fa3/wish_to_6/)
+- [What Are Your Moves Tomorrow, October 15, 2021](https://www.reddit.com/r/wallstreetbets/comments/q87iwg/what_are_your_moves_tomorrow_october_15_2021/)
+- [Never buying Chinese stocks again](https://www.reddit.com/r/wallstreetbets/comments/q875at/never_buying_chinese_stocks_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
