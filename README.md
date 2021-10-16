@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Never give up! calls printed 1DTE](https://www.reddit.com/r/wallstreetbets/comments/q8adpk/never_give_up_calls_printed_1dte/)
-- [Blackberry EV, IoT Design Wins Update Part II and BB Twitter Clue](https://www.reddit.com/r/wallstreetbets/comments/q8ac08/blackberry_ev_iot_design_wins_update_part_ii_and/)
-- [$WISH to $6](https://www.reddit.com/r/wallstreetbets/comments/q89fa3/wish_to_6/)
-- [What Are Your Moves Tomorrow, October 15, 2021](https://www.reddit.com/r/wallstreetbets/comments/q87iwg/what_are_your_moves_tomorrow_october_15_2021/)
-- [Never buying Chinese stocks again](https://www.reddit.com/r/wallstreetbets/comments/q875at/never_buying_chinese_stocks_again/)
+- [Todays Lotto Gainzzzz 🚀🚀🚀🔥](https://www.reddit.com/r/wallstreetbets/comments/q908y5/todays_lotto_gainzzzz/)
+- ['Big Short' investor Burry says he's no longer betting against Tesla - CNBC](https://www.reddit.com/r/wallstreetbets/comments/q8yyow/big_short_investor_burry_says_hes_no_longer/)
+- [CRISPR DD](https://www.reddit.com/r/wallstreetbets/comments/q8yrxn/crispr_dd/)
+- [Thanks Daddy](https://www.reddit.com/r/wallstreetbets/comments/q8yi73/thanks_daddy/)
+- [TSLA diamond hand flex. +12000%](https://www.reddit.com/r/wallstreetbets/comments/q8yen4/tsla_diamond_hand_flex_12000/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
