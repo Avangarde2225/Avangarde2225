@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Todays Lotto Gainzzzz 🚀🚀🚀🔥](https://www.reddit.com/r/wallstreetbets/comments/q908y5/todays_lotto_gainzzzz/)
-- ['Big Short' investor Burry says he's no longer betting against Tesla - CNBC](https://www.reddit.com/r/wallstreetbets/comments/q8yyow/big_short_investor_burry_says_hes_no_longer/)
-- [CRISPR DD](https://www.reddit.com/r/wallstreetbets/comments/q8yrxn/crispr_dd/)
-- [Thanks Daddy](https://www.reddit.com/r/wallstreetbets/comments/q8yi73/thanks_daddy/)
-- [TSLA diamond hand flex. +12000%](https://www.reddit.com/r/wallstreetbets/comments/q8yen4/tsla_diamond_hand_flex_12000/)
+- [Here’s to hoping the bottom is in for this.](https://www.reddit.com/r/wallstreetbets/comments/q9mbi4/heres_to_hoping_the_bottom_is_in_for_this/)
+- [Feeing Saturday Blues](https://www.reddit.com/r/wallstreetbets/comments/q9m0r5/feeing_saturday_blues/)
+- [The Bull Case for Tesla. $900, maybe $1K this week](https://www.reddit.com/r/wallstreetbets/comments/q9iynx/the_bull_case_for_tesla_900_maybe_1k_this_week/)
+- [Are You Not Entertained?](https://www.reddit.com/r/wallstreetbets/comments/q9ixx8/are_you_not_entertained/)
+- [I see u Mary Barra](https://www.reddit.com/r/wallstreetbets/comments/q9iep1/i_see_u_mary_barra/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
