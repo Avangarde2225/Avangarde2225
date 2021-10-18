@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Here’s to hoping the bottom is in for this.](https://www.reddit.com/r/wallstreetbets/comments/q9mbi4/heres_to_hoping_the_bottom_is_in_for_this/)
-- [Feeing Saturday Blues](https://www.reddit.com/r/wallstreetbets/comments/q9m0r5/feeing_saturday_blues/)
-- [The Bull Case for Tesla. $900, maybe $1K this week](https://www.reddit.com/r/wallstreetbets/comments/q9iynx/the_bull_case_for_tesla_900_maybe_1k_this_week/)
-- [Are You Not Entertained?](https://www.reddit.com/r/wallstreetbets/comments/q9ixx8/are_you_not_entertained/)
-- [I see u Mary Barra](https://www.reddit.com/r/wallstreetbets/comments/q9iep1/i_see_u_mary_barra/)
+- [Future Gneration](https://www.reddit.com/r/wallstreetbets/comments/qaazaj/future_gneration/)
+- [What I think you SDC and WISH bag holders look like in real life](https://www.reddit.com/r/wallstreetbets/comments/qaat7o/what_i_think_you_sdc_and_wish_bag_holders_look/)
+- [I’m a $DIS princess. Casual 4,900% 0dte Gainz](https://www.reddit.com/r/wallstreetbets/comments/qaarp8/im_a_dis_princess_casual_4900_0dte_gainz/)
+- [Historical Post Earnings Moves MEGA Compilation (Q3 Week 2) - $TSLA, $NFLX, $SNAP, $INTC, $CLF, $AAL, $VZ, $NUE and More](https://www.reddit.com/r/wallstreetbets/comments/qa9y04/historical_post_earnings_moves_mega_compilation/)
+- [Why I think CLF is bound to largely exceed expectations in Q3 and Q4](https://www.reddit.com/r/wallstreetbets/comments/qa7z7i/why_i_think_clf_is_bound_to_largely_exceed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
