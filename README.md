@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Future Gneration](https://www.reddit.com/r/wallstreetbets/comments/qaazaj/future_gneration/)
-- [What I think you SDC and WISH bag holders look like in real life](https://www.reddit.com/r/wallstreetbets/comments/qaat7o/what_i_think_you_sdc_and_wish_bag_holders_look/)
-- [I’m a $DIS princess. Casual 4,900% 0dte Gainz](https://www.reddit.com/r/wallstreetbets/comments/qaarp8/im_a_dis_princess_casual_4900_0dte_gainz/)
-- [Historical Post Earnings Moves MEGA Compilation (Q3 Week 2) - $TSLA, $NFLX, $SNAP, $INTC, $CLF, $AAL, $VZ, $NUE and More](https://www.reddit.com/r/wallstreetbets/comments/qa9y04/historical_post_earnings_moves_mega_compilation/)
-- [Why I think CLF is bound to largely exceed expectations in Q3 and Q4](https://www.reddit.com/r/wallstreetbets/comments/qa7z7i/why_i_think_clf_is_bound_to_largely_exceed/)
+- [Patrick Bateman: American Degenerate](https://www.reddit.com/r/wallstreetbets/comments/qay9s3/patrick_bateman_american_degenerate/)
+- [Yo $TSLA Gang 🔋🚀🚀👩🏼‍🚀🦍🦧](https://www.reddit.com/r/wallstreetbets/comments/qawygy/yo_tsla_gang/)
+- [Supply chain issues are ‘a cover for the inflation the Fed has created’: Opimas CEO](https://www.reddit.com/r/wallstreetbets/comments/qaw7ka/supply_chain_issues_are_a_cover_for_the_inflation/)
+- [The SEC Report is out and FUDtastic!](https://www.reddit.com/r/wallstreetbets/comments/qavka9/the_sec_report_is_out_and_fudtastic/)
+- [SEC says brokers enticed by payment for order flow are making trading into a game to lure investors](https://www.reddit.com/r/wallstreetbets/comments/qavg2t/sec_says_brokers_enticed_by_payment_for_order/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
