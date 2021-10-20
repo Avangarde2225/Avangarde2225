@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Patrick Bateman: American Degenerate](https://www.reddit.com/r/wallstreetbets/comments/qay9s3/patrick_bateman_american_degenerate/)
-- [Yo $TSLA Gang 🔋🚀🚀👩🏼‍🚀🦍🦧](https://www.reddit.com/r/wallstreetbets/comments/qawygy/yo_tsla_gang/)
-- [Supply chain issues are ‘a cover for the inflation the Fed has created’: Opimas CEO](https://www.reddit.com/r/wallstreetbets/comments/qaw7ka/supply_chain_issues_are_a_cover_for_the_inflation/)
-- [The SEC Report is out and FUDtastic!](https://www.reddit.com/r/wallstreetbets/comments/qavka9/the_sec_report_is_out_and_fudtastic/)
-- [SEC says brokers enticed by payment for order flow are making trading into a game to lure investors](https://www.reddit.com/r/wallstreetbets/comments/qavg2t/sec_says_brokers_enticed_by_payment_for_order/)
+- [+$420K in profits! 💸🍃🍃 ($500K into $BABA options) UPDATE 2 🔥🔥🔥](https://www.reddit.com/r/wallstreetbets/comments/qbmuxk/420k_in_profits_500k_into_baba_options_update_2/)
+- [Crammer declared oil is dead January 2021](https://www.reddit.com/r/wallstreetbets/comments/qbmm24/crammer_declared_oil_is_dead_january_2021/)
+- [$2k to $33k in 3 hours on TLRY weeklies.](https://www.reddit.com/r/wallstreetbets/comments/qbmjr2/2k_to_33k_in_3_hours_on_tlry_weeklies/)
+- [And one last thing..](https://www.reddit.com/r/wallstreetbets/comments/qblv3b/and_one_last_thing/)
+- [WISH squad. LFG!](https://www.reddit.com/r/wallstreetbets/comments/qbk9d7/wish_squad_lfg/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
