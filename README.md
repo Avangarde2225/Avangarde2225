@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [+$420K in profits! 💸🍃🍃 ($500K into $BABA options) UPDATE 2 🔥🔥🔥](https://www.reddit.com/r/wallstreetbets/comments/qbmuxk/420k_in_profits_500k_into_baba_options_update_2/)
-- [Crammer declared oil is dead January 2021](https://www.reddit.com/r/wallstreetbets/comments/qbmm24/crammer_declared_oil_is_dead_january_2021/)
-- [$2k to $33k in 3 hours on TLRY weeklies.](https://www.reddit.com/r/wallstreetbets/comments/qbmjr2/2k_to_33k_in_3_hours_on_tlry_weeklies/)
-- [And one last thing..](https://www.reddit.com/r/wallstreetbets/comments/qblv3b/and_one_last_thing/)
-- [WISH squad. LFG!](https://www.reddit.com/r/wallstreetbets/comments/qbk9d7/wish_squad_lfg/)
+- [$TLRY It may finally be time to SEND IT…. 🎃💎🤲🏼🚀🌖](https://www.reddit.com/r/wallstreetbets/comments/qcdos5/tlry_it_may_finally_be_time_to_send_it/)
+- [Everytime I buy options](https://www.reddit.com/r/wallstreetbets/comments/qcdfq7/everytime_i_buy_options/)
+- [Tesla breaks profit record at $1.6 Billion](https://www.reddit.com/r/wallstreetbets/comments/qcbh1d/tesla_breaks_profit_record_at_16_billion/)
+- [Trading AMZN until I become a millionaire. First post](https://www.reddit.com/r/wallstreetbets/comments/qca70q/trading_amzn_until_i_become_a_millionaire_first/)
+- [An Introduction to RocketLab $RKLB 10/20/2021](https://www.reddit.com/r/wallstreetbets/comments/qca5mn/an_introduction_to_rocketlab_rklb_10202021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
