@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$TLRY It may finally be time to SEND IT…. 🎃💎🤲🏼🚀🌖](https://www.reddit.com/r/wallstreetbets/comments/qcdos5/tlry_it_may_finally_be_time_to_send_it/)
-- [Everytime I buy options](https://www.reddit.com/r/wallstreetbets/comments/qcdfq7/everytime_i_buy_options/)
-- [Tesla breaks profit record at $1.6 Billion](https://www.reddit.com/r/wallstreetbets/comments/qcbh1d/tesla_breaks_profit_record_at_16_billion/)
-- [Trading AMZN until I become a millionaire. First post](https://www.reddit.com/r/wallstreetbets/comments/qca70q/trading_amzn_until_i_become_a_millionaire_first/)
-- [An Introduction to RocketLab $RKLB 10/20/2021](https://www.reddit.com/r/wallstreetbets/comments/qca5mn/an_introduction_to_rocketlab_rklb_10202021/)
+- [0DTE PayPal $235 calls](https://www.reddit.com/r/wallstreetbets/comments/qd2p7u/0dte_paypal_235_calls/)
+- [$Clov to the actual 🌝](https://www.reddit.com/r/wallstreetbets/comments/qd2lfk/clov_to_the_actual/)
+- [$TSLA q3 2021 earnings, visualized](https://www.reddit.com/r/wallstreetbets/comments/qd2bgo/tsla_q3_2021_earnings_visualized/)
+- [TSLA ATH close today! +$558,084.28 (+5,439.77%) Portfolio. Mostly TSLA Shares (since 2019) + options. Some FAANG and SPY. 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/qd2bcc/tsla_ath_close_today_55808428_543977_portfolio/)
+- [How it's going](https://www.reddit.com/r/wallstreetbets/comments/qd1o8q/how_its_going/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
