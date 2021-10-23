@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [0DTE PayPal $235 calls](https://www.reddit.com/r/wallstreetbets/comments/qd2p7u/0dte_paypal_235_calls/)
-- [$Clov to the actual 🌝](https://www.reddit.com/r/wallstreetbets/comments/qd2lfk/clov_to_the_actual/)
-- [$TSLA q3 2021 earnings, visualized](https://www.reddit.com/r/wallstreetbets/comments/qd2bgo/tsla_q3_2021_earnings_visualized/)
-- [TSLA ATH close today! +$558,084.28 (+5,439.77%) Portfolio. Mostly TSLA Shares (since 2019) + options. Some FAANG and SPY. 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/qd2bcc/tsla_ath_close_today_55808428_543977_portfolio/)
-- [How it's going](https://www.reddit.com/r/wallstreetbets/comments/qd1o8q/how_its_going/)
+- [Feels bad fr](https://www.reddit.com/r/wallstreetbets/comments/qdt1la/feels_bad_fr/)
+- [Bought some shares yesterday morning from the shitter $dwac](https://www.reddit.com/r/wallstreetbets/comments/qds3ea/bought_some_shares_yesterday_morning_from_the/)
+- [Diamond 💎 hand a tesla call for over a year now 🥴 retard mode](https://www.reddit.com/r/wallstreetbets/comments/qdr7ua/diamond_hand_a_tesla_call_for_over_a_year_now/)
+- [Retards today be like:](https://www.reddit.com/r/wallstreetbets/comments/qdqgct/retards_today_be_like/)
+- [$MVIS ROUND 2 , SI% near 20](https://www.reddit.com/r/wallstreetbets/comments/qdq3es/mvis_round_2_si_near_20/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
