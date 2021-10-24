@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Feels bad fr](https://www.reddit.com/r/wallstreetbets/comments/qdt1la/feels_bad_fr/)
-- [Bought some shares yesterday morning from the shitter $dwac](https://www.reddit.com/r/wallstreetbets/comments/qds3ea/bought_some_shares_yesterday_morning_from_the/)
-- [Diamond 💎 hand a tesla call for over a year now 🥴 retard mode](https://www.reddit.com/r/wallstreetbets/comments/qdr7ua/diamond_hand_a_tesla_call_for_over_a_year_now/)
-- [Retards today be like:](https://www.reddit.com/r/wallstreetbets/comments/qdqgct/retards_today_be_like/)
-- [$MVIS ROUND 2 , SI% near 20](https://www.reddit.com/r/wallstreetbets/comments/qdq3es/mvis_round_2_si_near_20/)
+- [My Wife doesn’t get my pumpkin](https://www.reddit.com/r/wallstreetbets/comments/qegiun/my_wife_doesnt_get_my_pumpkin/)
+- [Truth!](https://www.reddit.com/r/wallstreetbets/comments/qegaf5/truth/)
+- [SPY Spreads The Pullback will come any day now 🏳️‍🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/qefno7/spy_spreads_the_pullback_will_come_any_day_now/)
+- [DWAC 36-hour gains. Already cashed out my initial investment. Could have sold over $100, leaving my chips on the table into next week. Can't wait for the casino to open on Monday! 🎰🎲](https://www.reddit.com/r/wallstreetbets/comments/qef7wg/dwac_36hour_gains_already_cashed_out_my_initial/)
+- [It’s all the markets fault!](https://www.reddit.com/r/wallstreetbets/comments/qef704/its_all_the_markets_fault/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
