@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BP Energy train is just warming UP](https://www.reddit.com/r/wallstreetbets/comments/qf3tk9/bp_energy_train_is_just_warming_up/)
-- [Yellen says U.S. is not losing control of inflation 🤨](https://www.reddit.com/r/wallstreetbets/comments/qf3eyq/yellen_says_us_is_not_losing_control_of_inflation/)
-- [Historical Post Earnings Moves MEGA Compilation AND Analysis (Q3 Week 3) - $AAPL, $FB, $AMD, $MSFT, $SHOP, $AMZN, $GOOG and More](https://www.reddit.com/r/wallstreetbets/comments/qf3abj/historical_post_earnings_moves_mega_compilation/)
-- [Talk of the Town (10-24-2021)](https://www.reddit.com/r/wallstreetbets/comments/qf352d/talk_of_the_town_10242021/)
-- [Sometimes the money printer gives out $COINs](https://www.reddit.com/r/wallstreetbets/comments/qf34ec/sometimes_the_money_printer_gives_out_coins/)
+- [We did it!](https://www.reddit.com/r/wallstreetbets/comments/qfsnn8/we_did_it/)
+- [“🌈🧸: the more $TSLA ⬆️, the more it’s going to ⬇️” Remind me again, when is the right time to take profits on tech companies?](https://www.reddit.com/r/wallstreetbets/comments/qfrgoc/the_more_tsla_the_more_its_going_to_remind_me/)
+- [My Friday YOLO TSLA trade $100K - $1 Mil. 💸🚀💸🚀](https://www.reddit.com/r/wallstreetbets/comments/qfr49l/my_friday_yolo_tsla_trade_100k_1_mil/)
+- [$TSLA holders after today be flexing like](https://www.reddit.com/r/wallstreetbets/comments/qfqngt/tsla_holders_after_today_be_flexing_like/)
+- [Did I do this right? Are you proud of me? Tsla Puts](https://www.reddit.com/r/wallstreetbets/comments/qfqmot/did_i_do_this_right_are_you_proud_of_me_tsla_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
