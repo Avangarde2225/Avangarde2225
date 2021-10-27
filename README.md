@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We did it!](https://www.reddit.com/r/wallstreetbets/comments/qfsnn8/we_did_it/)
-- [“🌈🧸: the more $TSLA ⬆️, the more it’s going to ⬇️” Remind me again, when is the right time to take profits on tech companies?](https://www.reddit.com/r/wallstreetbets/comments/qfrgoc/the_more_tsla_the_more_its_going_to_remind_me/)
-- [My Friday YOLO TSLA trade $100K - $1 Mil. 💸🚀💸🚀](https://www.reddit.com/r/wallstreetbets/comments/qfr49l/my_friday_yolo_tsla_trade_100k_1_mil/)
-- [$TSLA holders after today be flexing like](https://www.reddit.com/r/wallstreetbets/comments/qfqngt/tsla_holders_after_today_be_flexing_like/)
-- [Did I do this right? Are you proud of me? Tsla Puts](https://www.reddit.com/r/wallstreetbets/comments/qfqmot/did_i_do_this_right_are_you_proud_of_me_tsla_puts/)
+- [$CRTX FML margin call incoming](https://www.reddit.com/r/wallstreetbets/comments/qgiaap/crtx_fml_margin_call_incoming/)
+- [Tell me the market isn’t broken, without telling me the market isn’t broken.](https://www.reddit.com/r/wallstreetbets/comments/qghbv3/tell_me_the_market_isnt_broken_without_telling_me/)
+- [Glory #tsla #nvda](https://www.reddit.com/r/wallstreetbets/comments/qgh49k/glory_tsla_nvda/)
+- [Found a fellow retard in lecture](https://www.reddit.com/r/wallstreetbets/comments/qgfgi0/found_a_fellow_retard_in_lecture/)
+- [HOOD Christmas….](https://www.reddit.com/r/wallstreetbets/comments/qgfg5p/hood_christmas/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
