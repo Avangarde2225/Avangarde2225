@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$CRTX FML margin call incoming](https://www.reddit.com/r/wallstreetbets/comments/qgiaap/crtx_fml_margin_call_incoming/)
-- [Tell me the market isn’t broken, without telling me the market isn’t broken.](https://www.reddit.com/r/wallstreetbets/comments/qghbv3/tell_me_the_market_isnt_broken_without_telling_me/)
-- [Glory #tsla #nvda](https://www.reddit.com/r/wallstreetbets/comments/qgh49k/glory_tsla_nvda/)
-- [Found a fellow retard in lecture](https://www.reddit.com/r/wallstreetbets/comments/qgfgi0/found_a_fellow_retard_in_lecture/)
-- [HOOD Christmas….](https://www.reddit.com/r/wallstreetbets/comments/qgfg5p/hood_christmas/)
+- [Tesla is Now More Profitable than GM and Ford](https://www.reddit.com/r/wallstreetbets/comments/qh8p1m/tesla_is_now_more_profitable_than_gm_and_ford/)
+- [What’re you carving over there?](https://www.reddit.com/r/wallstreetbets/comments/qh8nad/whatre_you_carving_over_there/)
+- [WISH I knew what to do now](https://www.reddit.com/r/wallstreetbets/comments/qh6zjx/wish_i_knew_what_to_do_now/)
+- [What it feels like to buy calls.](https://www.reddit.com/r/wallstreetbets/comments/qh6odo/what_it_feels_like_to_buy_calls/)
+- [A draw](https://www.reddit.com/r/wallstreetbets/comments/qh6mf2/a_draw/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
