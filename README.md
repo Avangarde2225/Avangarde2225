@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla is Now More Profitable than GM and Ford](https://www.reddit.com/r/wallstreetbets/comments/qh8p1m/tesla_is_now_more_profitable_than_gm_and_ford/)
-- [What’re you carving over there?](https://www.reddit.com/r/wallstreetbets/comments/qh8nad/whatre_you_carving_over_there/)
-- [WISH I knew what to do now](https://www.reddit.com/r/wallstreetbets/comments/qh6zjx/wish_i_knew_what_to_do_now/)
-- [What it feels like to buy calls.](https://www.reddit.com/r/wallstreetbets/comments/qh6odo/what_it_feels_like_to_buy_calls/)
-- [A draw](https://www.reddit.com/r/wallstreetbets/comments/qh6mf2/a_draw/)
+- [I am a good student](https://www.reddit.com/r/wallstreetbets/comments/qhz7op/i_am_a_good_student/)
+- [Senator Richard Burr and his brother-in-law spoke on the phone SHORTLY BEFORE both men sold off stocks, weeks ahead of national Covid lockdowns in March 2020, the SEC says in a court filing.](https://www.reddit.com/r/wallstreetbets/comments/qhvq40/senator_richard_burr_and_his_brotherinlaw_spoke/)
+- [Didn’t need much of a costume but still dressing up as a degenerate for Halloween [Tribute to u/1RONYMAN, blatant copy of u/merk33]](https://www.reddit.com/r/wallstreetbets/comments/qhvpgr/didnt_need_much_of_a_costume_but_still_dressing/)
+- [What Are Your Moves Tomorrow, October 29, 2021](https://www.reddit.com/r/wallstreetbets/comments/qhv990/what_are_your_moves_tomorrow_october_29_2021/)
+- [800% LCID gains REALIZED/locked in](https://www.reddit.com/r/wallstreetbets/comments/qhu4ys/800_lcid_gains_realizedlocked_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
