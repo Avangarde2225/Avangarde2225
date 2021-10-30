@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I am a good student](https://www.reddit.com/r/wallstreetbets/comments/qhz7op/i_am_a_good_student/)
-- [Senator Richard Burr and his brother-in-law spoke on the phone SHORTLY BEFORE both men sold off stocks, weeks ahead of national Covid lockdowns in March 2020, the SEC says in a court filing.](https://www.reddit.com/r/wallstreetbets/comments/qhvq40/senator_richard_burr_and_his_brotherinlaw_spoke/)
-- [Didn’t need much of a costume but still dressing up as a degenerate for Halloween [Tribute to u/1RONYMAN, blatant copy of u/merk33]](https://www.reddit.com/r/wallstreetbets/comments/qhvpgr/didnt_need_much_of_a_costume_but_still_dressing/)
-- [What Are Your Moves Tomorrow, October 29, 2021](https://www.reddit.com/r/wallstreetbets/comments/qhv990/what_are_your_moves_tomorrow_october_29_2021/)
-- [800% LCID gains REALIZED/locked in](https://www.reddit.com/r/wallstreetbets/comments/qhu4ys/800_lcid_gains_realizedlocked_in/)
+- [Simple](https://www.reddit.com/r/wallstreetbets/comments/qioyyr/simple/)
+- [Tesla making bears hibernate 🥶 Have a great weekend](https://www.reddit.com/r/wallstreetbets/comments/qinajf/tesla_making_bears_hibernate_have_a_great_weekend/)
+- [TSLA gains up almost 1000%, this is what it means to HODL. Account looking good.](https://www.reddit.com/r/wallstreetbets/comments/qin4af/tsla_gains_up_almost_1000_this_is_what_it_means/)
+- [Thank you, WSB and $TSLA! 🚀🚀🚀🦍🦧👩🏼‍🚀](https://www.reddit.com/r/wallstreetbets/comments/qimt2l/thank_you_wsb_and_tsla/)
+- [The current state of the shipping industry](https://www.reddit.com/r/wallstreetbets/comments/qimm2r/the_current_state_of_the_shipping_industry/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
