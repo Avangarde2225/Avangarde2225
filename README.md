@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Simple](https://www.reddit.com/r/wallstreetbets/comments/qioyyr/simple/)
-- [Tesla making bears hibernate 🥶 Have a great weekend](https://www.reddit.com/r/wallstreetbets/comments/qinajf/tesla_making_bears_hibernate_have_a_great_weekend/)
-- [TSLA gains up almost 1000%, this is what it means to HODL. Account looking good.](https://www.reddit.com/r/wallstreetbets/comments/qin4af/tsla_gains_up_almost_1000_this_is_what_it_means/)
-- [Thank you, WSB and $TSLA! 🚀🚀🚀🦍🦧👩🏼‍🚀](https://www.reddit.com/r/wallstreetbets/comments/qimt2l/thank_you_wsb_and_tsla/)
-- [The current state of the shipping industry](https://www.reddit.com/r/wallstreetbets/comments/qimm2r/the_current_state_of_the_shipping_industry/)
+- [Thanks Daddy Elon 🥂](https://www.reddit.com/r/wallstreetbets/comments/qjdk8q/thanks_daddy_elon/)
+- [*HUGE WIN* Turned $3K into $97K with $LCID options!](https://www.reddit.com/r/wallstreetbets/comments/qjcrxs/huge_win_turned_3k_into_97k_with_lcid_options/)
+- [Evolution of the trader.](https://www.reddit.com/r/wallstreetbets/comments/qjcqdx/evolution_of_the_trader/)
+- [Mark Juggenberg](https://www.reddit.com/r/wallstreetbets/comments/qjc6wy/mark_juggenberg/)
+- [$ASTS AST SpaceMobile Simplified Business Analysis](https://www.reddit.com/r/wallstreetbets/comments/qjc1qj/asts_ast_spacemobile_simplified_business_analysis/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
