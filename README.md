@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks Daddy Elon 🥂](https://www.reddit.com/r/wallstreetbets/comments/qjdk8q/thanks_daddy_elon/)
-- [*HUGE WIN* Turned $3K into $97K with $LCID options!](https://www.reddit.com/r/wallstreetbets/comments/qjcrxs/huge_win_turned_3k_into_97k_with_lcid_options/)
-- [Evolution of the trader.](https://www.reddit.com/r/wallstreetbets/comments/qjcqdx/evolution_of_the_trader/)
-- [Mark Juggenberg](https://www.reddit.com/r/wallstreetbets/comments/qjc6wy/mark_juggenberg/)
-- [$ASTS AST SpaceMobile Simplified Business Analysis](https://www.reddit.com/r/wallstreetbets/comments/qjc1qj/asts_ast_spacemobile_simplified_business_analysis/)
+- [My plan to make 1.6 Billion in 52 weeks with COST](https://www.reddit.com/r/wallstreetbets/comments/qk1umh/my_plan_to_make_16_billion_in_52_weeks_with_cost/)
+- [Tesla calls 🚀 to the 🌝. Hold or sell $1200 calls expire 11/26?](https://www.reddit.com/r/wallstreetbets/comments/qk10iu/tesla_calls_to_the_hold_or_sell_1200_calls_expire/)
+- [Had 30 calls, sold 27 for some profit, held 3 for “lol” 🥲](https://www.reddit.com/r/wallstreetbets/comments/qk07kv/had_30_calls_sold_27_for_some_profit_held_3_for/)
+- [Pumpkin carving with the wife and boyfriend, thanks for the ape advice here.](https://www.reddit.com/r/wallstreetbets/comments/qjzvx2/pumpkin_carving_with_the_wife_and_boyfriend/)
+- [Historical Post Earnings Moves MEGA Compilation AND Analysis (Q3 Week 4) - $AMC, $CRSR, $ROKU, $PINS, $SQ, $RKT, $FSLY and More](https://www.reddit.com/r/wallstreetbets/comments/qjyrik/historical_post_earnings_moves_mega_compilation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
