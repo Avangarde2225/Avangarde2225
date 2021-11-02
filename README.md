@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My plan to make 1.6 Billion in 52 weeks with COST](https://www.reddit.com/r/wallstreetbets/comments/qk1umh/my_plan_to_make_16_billion_in_52_weeks_with_cost/)
-- [Tesla calls 🚀 to the 🌝. Hold or sell $1200 calls expire 11/26?](https://www.reddit.com/r/wallstreetbets/comments/qk10iu/tesla_calls_to_the_hold_or_sell_1200_calls_expire/)
-- [Had 30 calls, sold 27 for some profit, held 3 for “lol” 🥲](https://www.reddit.com/r/wallstreetbets/comments/qk07kv/had_30_calls_sold_27_for_some_profit_held_3_for/)
-- [Pumpkin carving with the wife and boyfriend, thanks for the ape advice here.](https://www.reddit.com/r/wallstreetbets/comments/qjzvx2/pumpkin_carving_with_the_wife_and_boyfriend/)
-- [Historical Post Earnings Moves MEGA Compilation AND Analysis (Q3 Week 4) - $AMC, $CRSR, $ROKU, $PINS, $SQ, $RKT, $FSLY and More](https://www.reddit.com/r/wallstreetbets/comments/qjyrik/historical_post_earnings_moves_mega_compilation/)
+- [Just bought 200 shares of $GME (it’s not really a yolo because I also own a bunch of other stocks like $WISH, $CLOV, $NIO etc.). I only buy and hold. Thank you. 💎🙌🚀](https://www.reddit.com/r/wallstreetbets/comments/qkpc6p/just_bought_200_shares_of_gme_its_not_really_a/)
+- [RUN RETARD](https://www.reddit.com/r/wallstreetbets/comments/qkp67w/run_retard/)
+- [Classic](https://www.reddit.com/r/wallstreetbets/comments/qkofh5/classic/)
+- [Gotta get some liquidity to stop the squeeze.](https://www.reddit.com/r/wallstreetbets/comments/qko93f/gotta_get_some_liquidity_to_stop_the_squeeze/)
+- [Me watching Tesla's after hours today:](https://www.reddit.com/r/wallstreetbets/comments/qko3t7/me_watching_teslas_after_hours_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
