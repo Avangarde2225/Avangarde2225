@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Easy money 🤒](https://www.reddit.com/r/wallstreetbets/comments/qlhil7/easy_money/)
-- [I know you apes see this. GME back over $235 🚀](https://www.reddit.com/r/wallstreetbets/comments/qlfz50/i_know_you_apes_see_this_gme_back_over_235/)
-- [Katt Williams warns investors from crazy unrealistic DDs](https://www.reddit.com/r/wallstreetbets/comments/qlfm55/katt_williams_warns_investors_from_crazy/)
-- [When the meme stocks are mooning](https://www.reddit.com/r/wallstreetbets/comments/qlf6fm/when_the_meme_stocks_are_mooning/)
-- [Been a bag holder of BBBY since it crashed after the last earning, and today coincidentally decided to bet on 5 Dec17 $20 calls... Gain](https://www.reddit.com/r/wallstreetbets/comments/qleotw/been_a_bag_holder_of_bbby_since_it_crashed_after/)
+- [WSB in a nutshell](https://www.reddit.com/r/wallstreetbets/comments/qm61io/wsb_in_a_nutshell/)
+- [My thesis for entering GME now](https://www.reddit.com/r/wallstreetbets/comments/qm5tnp/my_thesis_for_entering_gme_now/)
+- [Meme stocks today be like.](https://www.reddit.com/r/wallstreetbets/comments/qm58f0/meme_stocks_today_be_like/)
+- [The market whenever JPow says anything](https://www.reddit.com/r/wallstreetbets/comments/qm45a6/the_market_whenever_jpow_says_anything/)
+- [Hard reality](https://www.reddit.com/r/wallstreetbets/comments/qm30jg/hard_reality/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
