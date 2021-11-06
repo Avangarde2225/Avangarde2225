@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVDA GAIN PORN in HSA Account 544 %+ over 4 years](https://www.reddit.com/r/wallstreetbets/comments/qmw801/nvda_gain_porn_in_hsa_account_544_over_4_years/)
-- [Barstool Sports Owner’s Stock Plunges Following ‘Violent’ Sex Allegations About President Dave Portnoy](https://www.reddit.com/r/wallstreetbets/comments/qmvbi2/barstool_sports_owners_stock_plunges_following/)
-- [I belong here](https://www.reddit.com/r/wallstreetbets/comments/qmvaek/i_belong_here/)
-- [PTON GUHHH](https://www.reddit.com/r/wallstreetbets/comments/qmulxy/pton_guhhh/)
-- [I did it! $10K to $100K YTD Brought to you (mostly) by the letters NVDA, GME, TSLA, COST, TLRY, & SPY](https://www.reddit.com/r/wallstreetbets/comments/qmtptf/i_did_it_10k_to_100k_ytd_brought_to_you_mostly_by/)
+- [You already know the profits are going straight into $GmE 🦍 DRS to computershare; rinse & repeat.](https://www.reddit.com/r/wallstreetbets/comments/qnncwk/you_already_know_the_profits_are_going_straight/)
+- [Rivian calculating their IPO price](https://www.reddit.com/r/wallstreetbets/comments/qnn8eh/rivian_calculating_their_ipo_price/)
+- [From 200k profit to 90k loss: Death by a thousand mistakes](https://www.reddit.com/r/wallstreetbets/comments/qnluw9/from_200k_profit_to_90k_loss_death_by_a_thousand/)
+- [Lucid time 🚀🚀 long hold](https://www.reddit.com/r/wallstreetbets/comments/qnk5i7/lucid_time_long_hold/)
+- [Weekend Discussion Thread for the Weekend of November 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/qnjay6/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
