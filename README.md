@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You already know the profits are going straight into $GmE 🦍 DRS to computershare; rinse & repeat.](https://www.reddit.com/r/wallstreetbets/comments/qnncwk/you_already_know_the_profits_are_going_straight/)
-- [Rivian calculating their IPO price](https://www.reddit.com/r/wallstreetbets/comments/qnn8eh/rivian_calculating_their_ipo_price/)
-- [From 200k profit to 90k loss: Death by a thousand mistakes](https://www.reddit.com/r/wallstreetbets/comments/qnluw9/from_200k_profit_to_90k_loss_death_by_a_thousand/)
-- [Lucid time 🚀🚀 long hold](https://www.reddit.com/r/wallstreetbets/comments/qnk5i7/lucid_time_long_hold/)
-- [Weekend Discussion Thread for the Weekend of November 05, 2021](https://www.reddit.com/r/wallstreetbets/comments/qnjay6/weekend_discussion_thread_for_the_weekend_of/)
+- [Elon Musk vs $TSLA Shareholders](https://www.reddit.com/r/wallstreetbets/comments/qoalfo/elon_musk_vs_tsla_shareholders/)
+- [Never go full Elon](https://www.reddit.com/r/wallstreetbets/comments/qoaf2x/never_go_full_elon/)
+- [Its like he's allergic to money](https://www.reddit.com/r/wallstreetbets/comments/qo9m7n/its_like_hes_allergic_to_money/)
+- [Lots of people keep saying we're in a massive bubble. It would only be fitting for the cesspool that is twitter to be the cause of it popping.](https://www.reddit.com/r/wallstreetbets/comments/qo8l4k/lots_of_people_keep_saying_were_in_a_massive/)
+- [Elon Musk will ditch over 20 Billion Dollars of Tesla Stock on Monday](https://www.reddit.com/r/wallstreetbets/comments/qo8kyk/elon_musk_will_ditch_over_20_billion_dollars_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
