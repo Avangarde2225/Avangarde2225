@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Elon Musk vs $TSLA Shareholders](https://www.reddit.com/r/wallstreetbets/comments/qoalfo/elon_musk_vs_tsla_shareholders/)
-- [Never go full Elon](https://www.reddit.com/r/wallstreetbets/comments/qoaf2x/never_go_full_elon/)
-- [Its like he's allergic to money](https://www.reddit.com/r/wallstreetbets/comments/qo9m7n/its_like_hes_allergic_to_money/)
-- [Lots of people keep saying we're in a massive bubble. It would only be fitting for the cesspool that is twitter to be the cause of it popping.](https://www.reddit.com/r/wallstreetbets/comments/qo8l4k/lots_of_people_keep_saying_were_in_a_massive/)
-- [Elon Musk will ditch over 20 Billion Dollars of Tesla Stock on Monday](https://www.reddit.com/r/wallstreetbets/comments/qo8kyk/elon_musk_will_ditch_over_20_billion_dollars_of/)
+- [TESLA : Elon Musk faces a $15 billion tax bill, which is likely the real reason he’s selling stock](https://www.reddit.com/r/wallstreetbets/comments/qp0yqx/tesla_elon_musk_faces_a_15_billion_tax_bill_which/)
+- [Can’t wait for Monday🥺](https://www.reddit.com/r/wallstreetbets/comments/qp0iuq/cant_wait_for_monday/)
+- [$TSLA.. At least they expire in 2022. Still love you Elon.](https://www.reddit.com/r/wallstreetbets/comments/qoz721/tsla_at_least_they_expire_in_2022_still_love_you/)
+- [Your face tomorrow when Tesla does not tank](https://www.reddit.com/r/wallstreetbets/comments/qoywbx/your_face_tomorrow_when_tesla_does_not_tank/)
+- [wsb retards on friday afternoon](https://www.reddit.com/r/wallstreetbets/comments/qoy834/wsb_retards_on_friday_afternoon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
