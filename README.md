@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TESLA : Elon Musk faces a $15 billion tax bill, which is likely the real reason he’s selling stock](https://www.reddit.com/r/wallstreetbets/comments/qp0yqx/tesla_elon_musk_faces_a_15_billion_tax_bill_which/)
-- [Can’t wait for Monday🥺](https://www.reddit.com/r/wallstreetbets/comments/qp0iuq/cant_wait_for_monday/)
-- [$TSLA.. At least they expire in 2022. Still love you Elon.](https://www.reddit.com/r/wallstreetbets/comments/qoz721/tsla_at_least_they_expire_in_2022_still_love_you/)
-- [Your face tomorrow when Tesla does not tank](https://www.reddit.com/r/wallstreetbets/comments/qoywbx/your_face_tomorrow_when_tesla_does_not_tank/)
-- [wsb retards on friday afternoon](https://www.reddit.com/r/wallstreetbets/comments/qoy834/wsb_retards_on_friday_afternoon/)
+- [I&#39;ve officially become a Bagholder](https://www.reddit.com/r/wallstreetbets/comments/qppebv/ive_officially_become_a_bagholder/)
+- [$RBLX HOLDERS BE LIKE](https://www.reddit.com/r/wallstreetbets/comments/qpo22u/rblx_holders_be_like/)
+- [What it&#39;s like investing in Tesla](https://www.reddit.com/r/wallstreetbets/comments/qpnq0v/what_its_like_investing_in_tesla/)
+- [Robinhood Announces Data Security Incident — Under the Hood](https://www.reddit.com/r/wallstreetbets/comments/qpnf4c/robinhood_announces_data_security_incident_under/)
+- [What Are Your Moves Tomorrow, November 09, 2021](https://www.reddit.com/r/wallstreetbets/comments/qpn2qq/what_are_your_moves_tomorrow_november_09_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
