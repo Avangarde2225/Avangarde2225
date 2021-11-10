@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;ve officially become a Bagholder](https://www.reddit.com/r/wallstreetbets/comments/qppebv/ive_officially_become_a_bagholder/)
-- [$RBLX HOLDERS BE LIKE](https://www.reddit.com/r/wallstreetbets/comments/qpo22u/rblx_holders_be_like/)
-- [What it&#39;s like investing in Tesla](https://www.reddit.com/r/wallstreetbets/comments/qpnq0v/what_its_like_investing_in_tesla/)
-- [Robinhood Announces Data Security Incident — Under the Hood](https://www.reddit.com/r/wallstreetbets/comments/qpnf4c/robinhood_announces_data_security_incident_under/)
-- [What Are Your Moves Tomorrow, November 09, 2021](https://www.reddit.com/r/wallstreetbets/comments/qpn2qq/what_are_your_moves_tomorrow_november_09_2021/)
+- [Sup, bears?](https://www.reddit.com/r/wallstreetbets/comments/qqg72g/sup_bears/)
+- [Bought some calls on Ford after listening to how hyped my Boomer Dad was to reserve an F150 Lightning a few weeks ago. Should I start following him around and report back?](https://www.reddit.com/r/wallstreetbets/comments/qqdrfv/bought_some_calls_on_ford_after_listening_to_how/)
+- [CAN I GET A F IN THE CHAT](https://www.reddit.com/r/wallstreetbets/comments/qqd6sy/can_i_get_a_f_in_the_chat/)
+- [What Are Your Moves Tomorrow, November 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/qqd61v/what_are_your_moves_tomorrow_november_10_2021/)
+- [NeVeR sHoRt TeSlA. 30k gain at the 🐂 slaughterhouse.](https://www.reddit.com/r/wallstreetbets/comments/qqcxan/never_short_tesla_30k_gain_at_the_slaughterhouse/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
