@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sup, bears?](https://www.reddit.com/r/wallstreetbets/comments/qqg72g/sup_bears/)
-- [Bought some calls on Ford after listening to how hyped my Boomer Dad was to reserve an F150 Lightning a few weeks ago. Should I start following him around and report back?](https://www.reddit.com/r/wallstreetbets/comments/qqdrfv/bought_some_calls_on_ford_after_listening_to_how/)
-- [CAN I GET A F IN THE CHAT](https://www.reddit.com/r/wallstreetbets/comments/qqd6sy/can_i_get_a_f_in_the_chat/)
-- [What Are Your Moves Tomorrow, November 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/qqd61v/what_are_your_moves_tomorrow_november_10_2021/)
-- [NeVeR sHoRt TeSlA. 30k gain at the 🐂 slaughterhouse.](https://www.reddit.com/r/wallstreetbets/comments/qqcxan/never_short_tesla_30k_gain_at_the_slaughterhouse/)
+- [Welp..resetting the counter](https://www.reddit.com/r/wallstreetbets/comments/qr5jeo/welpresetting_the_counter/)
+- [Made 2.8k on Tesla Puts then lost it all on NVDA and COIN 12 hours later 🤝🔥](https://www.reddit.com/r/wallstreetbets/comments/qr4wei/made_28k_on_tesla_puts_then_lost_it_all_on_nvda/)
+- [I DIDNT HEAR NO BELL!!! - doubled down on the SPY 11/19. Praying for green!](https://www.reddit.com/r/wallstreetbets/comments/qr431u/i_didnt_hear_no_bell_doubled_down_on_the_spy_1119/)
+- [What Are Your Moves Tomorrow, November 11, 2021](https://www.reddit.com/r/wallstreetbets/comments/qr41y7/what_are_your_moves_tomorrow_november_11_2021/)
+- [EPIC Loss Porn. -46k Today. 🍆 💦 Upvotes needed for moral support. 😭](https://www.reddit.com/r/wallstreetbets/comments/qr2zko/epic_loss_porn_46k_today_upvotes_needed_for_moral/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
