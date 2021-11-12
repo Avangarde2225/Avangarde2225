@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Welp..resetting the counter](https://www.reddit.com/r/wallstreetbets/comments/qr5jeo/welpresetting_the_counter/)
-- [Made 2.8k on Tesla Puts then lost it all on NVDA and COIN 12 hours later 🤝🔥](https://www.reddit.com/r/wallstreetbets/comments/qr4wei/made_28k_on_tesla_puts_then_lost_it_all_on_nvda/)
-- [I DIDNT HEAR NO BELL!!! - doubled down on the SPY 11/19. Praying for green!](https://www.reddit.com/r/wallstreetbets/comments/qr431u/i_didnt_hear_no_bell_doubled_down_on_the_spy_1119/)
-- [What Are Your Moves Tomorrow, November 11, 2021](https://www.reddit.com/r/wallstreetbets/comments/qr41y7/what_are_your_moves_tomorrow_november_11_2021/)
-- [EPIC Loss Porn. -46k Today. 🍆 💦 Upvotes needed for moral support. 😭](https://www.reddit.com/r/wallstreetbets/comments/qr2zko/epic_loss_porn_46k_today_upvotes_needed_for_moral/)
+- [Biden Will Visit $GM EV Factory Zero Grand Opening On Nov. 17 | $GM](https://www.reddit.com/r/wallstreetbets/comments/qrxzow/biden_will_visit_gm_ev_factory_zero_grand_opening/)
+- [What Are Your Moves Tomorrow, November 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/qruwj2/what_are_your_moves_tomorrow_november_12_2021/)
+- [It&#39;s ya boy, bundog. I&#39;m back with another YOLO. &lpar;WISH&rpar;](https://www.reddit.com/r/wallstreetbets/comments/qruurh/its_ya_boy_bundog_im_back_with_another_yolo_wish/)
+- [Calling All Apes: Understanding and Profiting from our Current Inflationary Environment](https://www.reddit.com/r/wallstreetbets/comments/qrtptv/calling_all_apes_understanding_and_profiting_from/)
+- [$GM to the moon 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥📈📈📈📈📈📈3,500+%](https://www.reddit.com/r/wallstreetbets/comments/qrtkgi/gm_to_the_moon_3500/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
