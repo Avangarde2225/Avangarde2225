@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Biden Will Visit $GM EV Factory Zero Grand Opening On Nov. 17 | $GM](https://www.reddit.com/r/wallstreetbets/comments/qrxzow/biden_will_visit_gm_ev_factory_zero_grand_opening/)
-- [What Are Your Moves Tomorrow, November 12, 2021](https://www.reddit.com/r/wallstreetbets/comments/qruwj2/what_are_your_moves_tomorrow_november_12_2021/)
-- [It&#39;s ya boy, bundog. I&#39;m back with another YOLO. &lpar;WISH&rpar;](https://www.reddit.com/r/wallstreetbets/comments/qruurh/its_ya_boy_bundog_im_back_with_another_yolo_wish/)
-- [Calling All Apes: Understanding and Profiting from our Current Inflationary Environment](https://www.reddit.com/r/wallstreetbets/comments/qrtptv/calling_all_apes_understanding_and_profiting_from/)
-- [$GM to the moon 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥📈📈📈📈📈📈3,500+%](https://www.reddit.com/r/wallstreetbets/comments/qrtkgi/gm_to_the_moon_3500/)
+- [PeeMartini knows his Italian food. He downed his own urine with such class. Pinkies up!](https://www.reddit.com/r/wallstreetbets/comments/qsntx8/peemartini_knows_his_italian_food_he_downed_his/)
+- [Spacehey](https://www.reddit.com/r/wallstreetbets/comments/qsnl2v/spacehey/)
+- [Is this a book about WSB?](https://www.reddit.com/r/wallstreetbets/comments/qsneek/is_this_a_book_about_wsb/)
+- [Gamestop / Loopring &lpar;LRC&rpar;](https://www.reddit.com/r/wallstreetbets/comments/qsn5yn/gamestop_loopring_lrc/)
+- [&gt;$50k in NVDA gains plus a picture with our favorite monument. Not a bad 4 days.](https://www.reddit.com/r/wallstreetbets/comments/qsmnhg/50k_in_nvda_gains_plus_a_picture_with_our/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
