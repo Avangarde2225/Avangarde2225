@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PeeMartini knows his Italian food. He downed his own urine with such class. Pinkies up!](https://www.reddit.com/r/wallstreetbets/comments/qsntx8/peemartini_knows_his_italian_food_he_downed_his/)
-- [Spacehey](https://www.reddit.com/r/wallstreetbets/comments/qsnl2v/spacehey/)
-- [Is this a book about WSB?](https://www.reddit.com/r/wallstreetbets/comments/qsneek/is_this_a_book_about_wsb/)
-- [Gamestop / Loopring &lpar;LRC&rpar;](https://www.reddit.com/r/wallstreetbets/comments/qsn5yn/gamestop_loopring_lrc/)
-- [&gt;$50k in NVDA gains plus a picture with our favorite monument. Not a bad 4 days.](https://www.reddit.com/r/wallstreetbets/comments/qsmnhg/50k_in_nvda_gains_plus_a_picture_with_our/)
+- [This guy&#39;s driving to the moon 🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/qtdcwr/this_guys_driving_to_the_moon/)
+- [EVERGRANDE is heading toward bankruptcy in &quot;days&quot;, anonymous sources saying payments were made &quot;wrong&quot;.](https://www.reddit.com/r/wallstreetbets/comments/qtcr3h/evergrande_is_heading_toward_bankruptcy_in_days/)
+- [Welcome to Costco. I love you](https://www.reddit.com/r/wallstreetbets/comments/qtbyjf/welcome_to_costco_i_love_you/)
+- [$137,000 profit on PLUG](https://www.reddit.com/r/wallstreetbets/comments/qtapw4/137000_profit_on_plug/)
+- [What’s da meta baby?](https://www.reddit.com/r/wallstreetbets/comments/qtakyk/whats_da_meta_baby/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
