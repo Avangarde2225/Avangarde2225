@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This guy&#39;s driving to the moon 🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/qtdcwr/this_guys_driving_to_the_moon/)
-- [EVERGRANDE is heading toward bankruptcy in &quot;days&quot;, anonymous sources saying payments were made &quot;wrong&quot;.](https://www.reddit.com/r/wallstreetbets/comments/qtcr3h/evergrande_is_heading_toward_bankruptcy_in_days/)
-- [Welcome to Costco. I love you](https://www.reddit.com/r/wallstreetbets/comments/qtbyjf/welcome_to_costco_i_love_you/)
-- [$137,000 profit on PLUG](https://www.reddit.com/r/wallstreetbets/comments/qtapw4/137000_profit_on_plug/)
-- [What’s da meta baby?](https://www.reddit.com/r/wallstreetbets/comments/qtakyk/whats_da_meta_baby/)
+- [Stonks-9800: Stock Market Simulator Launches On Nintendo Switch In 2022](https://www.reddit.com/r/wallstreetbets/comments/qu2mhj/stonks9800_stock_market_simulator_launches_on/)
+- [🌳ROOT🌳](https://www.reddit.com/r/wallstreetbets/comments/qu19ku/root/)
+- [Weed Could Run Next](https://www.reddit.com/r/wallstreetbets/comments/qu13sv/weed_could_run_next/)
+- [Did someone say $BB?](https://www.reddit.com/r/wallstreetbets/comments/qu0dd2/did_someone_say_bb/)
+- [Throw back to the good old days](https://www.reddit.com/r/wallstreetbets/comments/qtzno6/throw_back_to_the_good_old_days/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
