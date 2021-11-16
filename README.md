@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Stonks-9800: Stock Market Simulator Launches On Nintendo Switch In 2022](https://www.reddit.com/r/wallstreetbets/comments/qu2mhj/stonks9800_stock_market_simulator_launches_on/)
-- [🌳ROOT🌳](https://www.reddit.com/r/wallstreetbets/comments/qu19ku/root/)
-- [Weed Could Run Next](https://www.reddit.com/r/wallstreetbets/comments/qu13sv/weed_could_run_next/)
-- [Did someone say $BB?](https://www.reddit.com/r/wallstreetbets/comments/qu0dd2/did_someone_say_bb/)
-- [Throw back to the good old days](https://www.reddit.com/r/wallstreetbets/comments/qtzno6/throw_back_to_the_good_old_days/)
+- [How to Refund a Call Option?](https://www.reddit.com/r/wallstreetbets/comments/qutrul/how_to_refund_a_call_option/)
+- [Tesla Semi spotted charging at newly installed Giga Nevada Megacharger](https://www.reddit.com/r/wallstreetbets/comments/quskd7/tesla_semi_spotted_charging_at_newly_installed/)
+- [Investors Bought a Record 18% of the U.S. Homes That Sold in the Third Quarter](https://www.reddit.com/r/wallstreetbets/comments/qurrzp/investors_bought_a_record_18_of_the_us_homes_that/)
+- [How much is enough?!?](https://www.reddit.com/r/wallstreetbets/comments/qurk7o/how_much_is_enough/)
+- [MARA FD POOTS - 100K GAIN PORN](https://www.reddit.com/r/wallstreetbets/comments/qurcdk/mara_fd_poots_100k_gain_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
