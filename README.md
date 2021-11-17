@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How to Refund a Call Option?](https://www.reddit.com/r/wallstreetbets/comments/qutrul/how_to_refund_a_call_option/)
-- [Tesla Semi spotted charging at newly installed Giga Nevada Megacharger](https://www.reddit.com/r/wallstreetbets/comments/quskd7/tesla_semi_spotted_charging_at_newly_installed/)
-- [Investors Bought a Record 18% of the U.S. Homes That Sold in the Third Quarter](https://www.reddit.com/r/wallstreetbets/comments/qurrzp/investors_bought_a_record_18_of_the_us_homes_that/)
-- [How much is enough?!?](https://www.reddit.com/r/wallstreetbets/comments/qurk7o/how_much_is_enough/)
-- [MARA FD POOTS - 100K GAIN PORN](https://www.reddit.com/r/wallstreetbets/comments/qurcdk/mara_fd_poots_100k_gain_porn/)
+- [South Carolina Republican introduces bill to decriminalize marijuana at federal level](https://www.reddit.com/r/wallstreetbets/comments/qvk7d8/south_carolina_republican_introduces_bill_to/)
+- [Rivian has $0 in revenue and is now the third most valuable carmaker on the planet](https://www.reddit.com/r/wallstreetbets/comments/qvinva/rivian_has_0_in_revenue_and_is_now_the_third_most/)
+- [What Are Your Moves Tomorrow, November 17, 2021](https://www.reddit.com/r/wallstreetbets/comments/qvhzaa/what_are_your_moves_tomorrow_november_17_2021/)
+- [$LCID is hot AF! Lets get it boys! Almost 100% gains!](https://www.reddit.com/r/wallstreetbets/comments/qvguze/lcid_is_hot_af_lets_get_it_boys_almost_100_gains/)
+- [Fun fact: had $TSLA honored its contractual obligations to $JPM and reported the proper quarterly losses, it would not have been eligible to join the S&amp;P 500.](https://www.reddit.com/r/wallstreetbets/comments/qvgijn/fun_fact_had_tsla_honored_its_contractual/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
