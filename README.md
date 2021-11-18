@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [South Carolina Republican introduces bill to decriminalize marijuana at federal level](https://www.reddit.com/r/wallstreetbets/comments/qvk7d8/south_carolina_republican_introduces_bill_to/)
-- [Rivian has $0 in revenue and is now the third most valuable carmaker on the planet](https://www.reddit.com/r/wallstreetbets/comments/qvinva/rivian_has_0_in_revenue_and_is_now_the_third_most/)
-- [What Are Your Moves Tomorrow, November 17, 2021](https://www.reddit.com/r/wallstreetbets/comments/qvhzaa/what_are_your_moves_tomorrow_november_17_2021/)
-- [$LCID is hot AF! Lets get it boys! Almost 100% gains!](https://www.reddit.com/r/wallstreetbets/comments/qvguze/lcid_is_hot_af_lets_get_it_boys_almost_100_gains/)
-- [Fun fact: had $TSLA honored its contractual obligations to $JPM and reported the proper quarterly losses, it would not have been eligible to join the S&amp;P 500.](https://www.reddit.com/r/wallstreetbets/comments/qvgijn/fun_fact_had_tsla_honored_its_contractual/)
+- [TESLA GAINS bought the dip at 990 and put 200k on it.](https://www.reddit.com/r/wallstreetbets/comments/qwc4hp/tesla_gains_bought_the_dip_at_990_and_put_200k_on/)
+- [🍆💦 = 🐰🚀 -- $PLBY hitting an inflection point, and will challenge OnlyFans and Instagram in early December.](https://www.reddit.com/r/wallstreetbets/comments/qw9w1b/plby_hitting_an_inflection_point_and_will/)
+- [Nvda beats expectations](https://www.reddit.com/r/wallstreetbets/comments/qw9gu6/nvda_beats_expectations/)
+- [What Are Your Moves Tomorrow, November 18, 2021](https://www.reddit.com/r/wallstreetbets/comments/qw8udu/what_are_your_moves_tomorrow_november_18_2021/)
+- [BABA to 200 tomorrow. You heard it here first](https://www.reddit.com/r/wallstreetbets/comments/qw85a0/baba_to_200_tomorrow_you_heard_it_here_first/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
