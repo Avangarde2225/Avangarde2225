@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TESLA GAINS bought the dip at 990 and put 200k on it.](https://www.reddit.com/r/wallstreetbets/comments/qwc4hp/tesla_gains_bought_the_dip_at_990_and_put_200k_on/)
-- [🍆💦 = 🐰🚀 -- $PLBY hitting an inflection point, and will challenge OnlyFans and Instagram in early December.](https://www.reddit.com/r/wallstreetbets/comments/qw9w1b/plby_hitting_an_inflection_point_and_will/)
-- [Nvda beats expectations](https://www.reddit.com/r/wallstreetbets/comments/qw9gu6/nvda_beats_expectations/)
-- [What Are Your Moves Tomorrow, November 18, 2021](https://www.reddit.com/r/wallstreetbets/comments/qw8udu/what_are_your_moves_tomorrow_november_18_2021/)
-- [BABA to 200 tomorrow. You heard it here first](https://www.reddit.com/r/wallstreetbets/comments/qw85a0/baba_to_200_tomorrow_you_heard_it_here_first/)
+- [Germany will legalize weed and institutional investors shortened Tilray without knowing](https://www.reddit.com/r/wallstreetbets/comments/qx0o9r/germany_will_legalize_weed_and_institutional/)
+- [Except for the people who had puts☹️](https://www.reddit.com/r/wallstreetbets/comments/qx0azv/except_for_the_people_who_had_puts/)
+- [On Eve Of DC Marijuana Hearing, Congresswoman Is Optimistic That Federal Blockade Will Be Removed](https://www.reddit.com/r/wallstreetbets/comments/qwzmyb/on_eve_of_dc_marijuana_hearing_congresswoman_is/)
+- [Germany news: Cannabis likely to be legalised by Merkel successors in bid to boost economy](https://www.reddit.com/r/wallstreetbets/comments/qwzj29/germany_news_cannabis_likely_to_be_legalised_by/)
+- [What Are Your Moves Tomorrow, November 19, 2021](https://www.reddit.com/r/wallstreetbets/comments/qwzhgy/what_are_your_moves_tomorrow_november_19_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
