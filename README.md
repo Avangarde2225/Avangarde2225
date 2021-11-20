@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Germany will legalize weed and institutional investors shortened Tilray without knowing](https://www.reddit.com/r/wallstreetbets/comments/qx0o9r/germany_will_legalize_weed_and_institutional/)
-- [Except for the people who had puts☹️](https://www.reddit.com/r/wallstreetbets/comments/qx0azv/except_for_the_people_who_had_puts/)
-- [On Eve Of DC Marijuana Hearing, Congresswoman Is Optimistic That Federal Blockade Will Be Removed](https://www.reddit.com/r/wallstreetbets/comments/qwzmyb/on_eve_of_dc_marijuana_hearing_congresswoman_is/)
-- [Germany news: Cannabis likely to be legalised by Merkel successors in bid to boost economy](https://www.reddit.com/r/wallstreetbets/comments/qwzj29/germany_news_cannabis_likely_to_be_legalised_by/)
-- [What Are Your Moves Tomorrow, November 19, 2021](https://www.reddit.com/r/wallstreetbets/comments/qwzhgy/what_are_your_moves_tomorrow_november_19_2021/)
+- [Slowly blew $56K over this past year playing options like a dummy. Kept playing and with $1K left, turned it into $120K in the past month and a half. &lpar;Negative balance in pic is me withdrawing $18K&rpar;.](https://www.reddit.com/r/wallstreetbets/comments/qxsa7y/slowly_blew_56k_over_this_past_year_playing/)
+- [Just your average $GME enjoyer](https://www.reddit.com/r/wallstreetbets/comments/qxr2re/just_your_average_gme_enjoyer/)
+- [I hate those EV stocks !!!](https://www.reddit.com/r/wallstreetbets/comments/qxqogf/i_hate_those_ev_stocks/)
+- [100K in GME OPTIONS 7DTE](https://www.reddit.com/r/wallstreetbets/comments/qxqmax/100k_in_gme_options_7dte/)
+- [This is a tough decision](https://www.reddit.com/r/wallstreetbets/comments/qxqj1d/this_is_a_tough_decision/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
