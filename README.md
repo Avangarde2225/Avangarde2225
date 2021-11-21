@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Slowly blew $56K over this past year playing options like a dummy. Kept playing and with $1K left, turned it into $120K in the past month and a half. &lpar;Negative balance in pic is me withdrawing $18K&rpar;.](https://www.reddit.com/r/wallstreetbets/comments/qxsa7y/slowly_blew_56k_over_this_past_year_playing/)
-- [Just your average $GME enjoyer](https://www.reddit.com/r/wallstreetbets/comments/qxr2re/just_your_average_gme_enjoyer/)
-- [I hate those EV stocks !!!](https://www.reddit.com/r/wallstreetbets/comments/qxqogf/i_hate_those_ev_stocks/)
-- [100K in GME OPTIONS 7DTE](https://www.reddit.com/r/wallstreetbets/comments/qxqmax/100k_in_gme_options_7dte/)
-- [This is a tough decision](https://www.reddit.com/r/wallstreetbets/comments/qxqj1d/this_is_a_tough_decision/)
+- [Market bubble explained for dummies](https://www.reddit.com/r/wallstreetbets/comments/qyhjq0/market_bubble_explained_for_dummies/)
+- [Eel: Shall I sell more holdings? Musk: …](https://www.reddit.com/r/wallstreetbets/comments/qyhcn5/eel_shall_i_sell_more_holdings_musk/)
+- [Ford wants to produce 600,000 electric cars a year starting from 2023 | Is Ford a good bet ?](https://www.reddit.com/r/wallstreetbets/comments/qygxsj/ford_wants_to_produce_600000_electric_cars_a_year/)
+- [AMZN - When you try to be Pro..](https://www.reddit.com/r/wallstreetbets/comments/qyg009/amzn_when_you_try_to_be_pro/)
+- [Apple is severely undervalued](https://www.reddit.com/r/wallstreetbets/comments/qyftkl/apple_is_severely_undervalued/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
