@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market bubble explained for dummies](https://www.reddit.com/r/wallstreetbets/comments/qyhjq0/market_bubble_explained_for_dummies/)
-- [Eel: Shall I sell more holdings? Musk: …](https://www.reddit.com/r/wallstreetbets/comments/qyhcn5/eel_shall_i_sell_more_holdings_musk/)
-- [Ford wants to produce 600,000 electric cars a year starting from 2023 | Is Ford a good bet ?](https://www.reddit.com/r/wallstreetbets/comments/qygxsj/ford_wants_to_produce_600000_electric_cars_a_year/)
-- [AMZN - When you try to be Pro..](https://www.reddit.com/r/wallstreetbets/comments/qyg009/amzn_when_you_try_to_be_pro/)
-- [Apple is severely undervalued](https://www.reddit.com/r/wallstreetbets/comments/qyftkl/apple_is_severely_undervalued/)
+- [This is the way](https://www.reddit.com/r/wallstreetbets/comments/qz7ujt/this_is_the_way/)
+- [Me after buying the dip for the 69th time this year](https://www.reddit.com/r/wallstreetbets/comments/qz7n7g/me_after_buying_the_dip_for_the_69th_time_this/)
+- [Jerome Powell tomorrow](https://www.reddit.com/r/wallstreetbets/comments/qz76xr/jerome_powell_tomorrow/)
+- [Historical Post Earnings Moves MEGA Compilation AND Analysis &lpar;Q3 Week 7&rpar; - $ZM, $BBY, $DKS, $DLTR, $PDD, $XPEV, $DE, and More](https://www.reddit.com/r/wallstreetbets/comments/qz59jp/historical_post_earnings_moves_mega_compilation/)
+- [Tim Apple is confused why his wife is Banging dudes in Canoos](https://www.reddit.com/r/wallstreetbets/comments/qz50an/tim_apple_is_confused_why_his_wife_is_banging/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
