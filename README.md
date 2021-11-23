@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is the way](https://www.reddit.com/r/wallstreetbets/comments/qz7ujt/this_is_the_way/)
-- [Me after buying the dip for the 69th time this year](https://www.reddit.com/r/wallstreetbets/comments/qz7n7g/me_after_buying_the_dip_for_the_69th_time_this/)
-- [Jerome Powell tomorrow](https://www.reddit.com/r/wallstreetbets/comments/qz76xr/jerome_powell_tomorrow/)
-- [Historical Post Earnings Moves MEGA Compilation AND Analysis &lpar;Q3 Week 7&rpar; - $ZM, $BBY, $DKS, $DLTR, $PDD, $XPEV, $DE, and More](https://www.reddit.com/r/wallstreetbets/comments/qz59jp/historical_post_earnings_moves_mega_compilation/)
-- [Tim Apple is confused why his wife is Banging dudes in Canoos](https://www.reddit.com/r/wallstreetbets/comments/qz50an/tim_apple_is_confused_why_his_wife_is_banging/)
+- [I don&#39;t know if my portfolio can do this again...](https://www.reddit.com/r/wallstreetbets/comments/qzxm2j/i_dont_know_if_my_portfolio_can_do_this_again/)
+- [What Are Your Moves Tomorrow, November 23, 2021](https://www.reddit.com/r/wallstreetbets/comments/qzvoy4/what_are_your_moves_tomorrow_november_23_2021/)
+- [How Warren Protects His Pumps](https://www.reddit.com/r/wallstreetbets/comments/qzv30q/how_warren_protects_his_pumps/)
+- [WSB discussion so far today](https://www.reddit.com/r/wallstreetbets/comments/qzv0rx/wsb_discussion_so_far_today/)
+- [pp](https://www.reddit.com/r/wallstreetbets/comments/qzu7sx/pp/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
