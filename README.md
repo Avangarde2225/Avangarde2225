@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I don&#39;t know if my portfolio can do this again...](https://www.reddit.com/r/wallstreetbets/comments/qzxm2j/i_dont_know_if_my_portfolio_can_do_this_again/)
-- [What Are Your Moves Tomorrow, November 23, 2021](https://www.reddit.com/r/wallstreetbets/comments/qzvoy4/what_are_your_moves_tomorrow_november_23_2021/)
-- [How Warren Protects His Pumps](https://www.reddit.com/r/wallstreetbets/comments/qzv30q/how_warren_protects_his_pumps/)
-- [WSB discussion so far today](https://www.reddit.com/r/wallstreetbets/comments/qzv0rx/wsb_discussion_so_far_today/)
-- [pp](https://www.reddit.com/r/wallstreetbets/comments/qzu7sx/pp/)
+- [*Insert Ticker Symbol Here*](https://www.reddit.com/r/wallstreetbets/comments/r0qfx5/insert_ticker_symbol_here/)
+- [Here&#39;s to you, AMC](https://www.reddit.com/r/wallstreetbets/comments/r0qfha/heres_to_you_amc/)
+- [Buying PLTR at 24 after earnings because you thought it was the dip](https://www.reddit.com/r/wallstreetbets/comments/r0q3mz/buying_pltr_at_24_after_earnings_because_you/)
+- [The art of the YOLO](https://www.reddit.com/r/wallstreetbets/comments/r0ot28/the_art_of_the_yolo/)
+- [Ford: Can I copy your homework? Tesla: Yeah just change it up a bit so it doesn’t look obvious you copied Ford: Ok](https://www.reddit.com/r/wallstreetbets/comments/r0nz2s/ford_can_i_copy_your_homework_tesla_yeah_just/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
