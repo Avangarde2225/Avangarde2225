@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [*Insert Ticker Symbol Here*](https://www.reddit.com/r/wallstreetbets/comments/r0qfx5/insert_ticker_symbol_here/)
-- [Here&#39;s to you, AMC](https://www.reddit.com/r/wallstreetbets/comments/r0qfha/heres_to_you_amc/)
-- [Buying PLTR at 24 after earnings because you thought it was the dip](https://www.reddit.com/r/wallstreetbets/comments/r0q3mz/buying_pltr_at_24_after_earnings_because_you/)
-- [The art of the YOLO](https://www.reddit.com/r/wallstreetbets/comments/r0ot28/the_art_of_the_yolo/)
-- [Ford: Can I copy your homework? Tesla: Yeah just change it up a bit so it doesn’t look obvious you copied Ford: Ok](https://www.reddit.com/r/wallstreetbets/comments/r0nz2s/ford_can_i_copy_your_homework_tesla_yeah_just/)
+- [Hit me $BB 🍇 one more time! &lpar;Papa Chen about to close BlackBerry&#39;s billion dollar patent sale and launch Amazon IVY connected car&rpar;](https://www.reddit.com/r/wallstreetbets/comments/r1hc4x/hit_me_bb_one_more_time_papa_chen_about_to_close/)
+- [France is banning $Wish](https://www.reddit.com/r/wallstreetbets/comments/r1gypa/france_is_banning_wish/)
+- [6-figure loss achieved](https://www.reddit.com/r/wallstreetbets/comments/r1gtf1/6figure_loss_achieved/)
+- [What Are Your Recipes Tomorrow, November 25th, 2021](https://www.reddit.com/r/wallstreetbets/comments/r1f2zm/what_are_your_recipes_tomorrow_november_25th_2021/)
+- [My first video](https://www.reddit.com/r/wallstreetbets/comments/r1eukf/my_first_video/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
