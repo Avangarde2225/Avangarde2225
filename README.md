@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hit me $BB 🍇 one more time! &lpar;Papa Chen about to close BlackBerry&#39;s billion dollar patent sale and launch Amazon IVY connected car&rpar;](https://www.reddit.com/r/wallstreetbets/comments/r1hc4x/hit_me_bb_one_more_time_papa_chen_about_to_close/)
-- [France is banning $Wish](https://www.reddit.com/r/wallstreetbets/comments/r1gypa/france_is_banning_wish/)
-- [6-figure loss achieved](https://www.reddit.com/r/wallstreetbets/comments/r1gtf1/6figure_loss_achieved/)
-- [What Are Your Recipes Tomorrow, November 25th, 2021](https://www.reddit.com/r/wallstreetbets/comments/r1f2zm/what_are_your_recipes_tomorrow_november_25th_2021/)
-- [My first video](https://www.reddit.com/r/wallstreetbets/comments/r1eukf/my_first_video/)
+- [Half day half price!!!](https://www.reddit.com/r/wallstreetbets/comments/r295wz/half_day_half_price/)
+- [Aped into some $HTZ when they went bankrupt 🦍 some solid gain](https://www.reddit.com/r/wallstreetbets/comments/r28c4u/aped_into_some_htz_when_they_went_bankrupt_some/)
+- [About sums it up](https://www.reddit.com/r/wallstreetbets/comments/r280jm/about_sums_it_up/)
+- [Threw entire life savings at Dutch Bros](https://www.reddit.com/r/wallstreetbets/comments/r271z3/threw_entire_life_savings_at_dutch_bros/)
+- [New research - the top 5 most traded companies by retail traders/apes over the last week](https://www.reddit.com/r/wallstreetbets/comments/r271vu/new_research_the_top_5_most_traded_companies_by/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
