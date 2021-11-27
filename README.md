@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Half day half price!!!](https://www.reddit.com/r/wallstreetbets/comments/r295wz/half_day_half_price/)
-- [Aped into some $HTZ when they went bankrupt 🦍 some solid gain](https://www.reddit.com/r/wallstreetbets/comments/r28c4u/aped_into_some_htz_when_they_went_bankrupt_some/)
-- [About sums it up](https://www.reddit.com/r/wallstreetbets/comments/r280jm/about_sums_it_up/)
-- [Threw entire life savings at Dutch Bros](https://www.reddit.com/r/wallstreetbets/comments/r271z3/threw_entire_life_savings_at_dutch_bros/)
-- [New research - the top 5 most traded companies by retail traders/apes over the last week](https://www.reddit.com/r/wallstreetbets/comments/r271vu/new_research_the_top_5_most_traded_companies_by/)
+- [Canada taps into strategic maple syrup reserves to deal with shortages](https://www.reddit.com/r/wallstreetbets/comments/r2z4dn/canada_taps_into_strategic_maple_syrup_reserves/)
+- [How do you do fellow idiots?](https://www.reddit.com/r/wallstreetbets/comments/r2xi84/how_do_you_do_fellow_idiots/)
+- [The Stock Market Today Be Like](https://www.reddit.com/r/wallstreetbets/comments/r2xdc2/the_stock_market_today_be_like/)
+- [Porn on all Sides &lpar;Loss Porn to Gain Porn&rpar;](https://www.reddit.com/r/wallstreetbets/comments/r2x66z/porn_on_all_sides_loss_porn_to_gain_porn/)
+- [It’s Friday, but not quite a 0dte. 3,250% Gainz on $SPY.](https://www.reddit.com/r/wallstreetbets/comments/r2vn7t/its_friday_but_not_quite_a_0dte_3250_gainz_on_spy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
