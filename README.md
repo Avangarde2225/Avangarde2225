@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Canada taps into strategic maple syrup reserves to deal with shortages](https://www.reddit.com/r/wallstreetbets/comments/r2z4dn/canada_taps_into_strategic_maple_syrup_reserves/)
-- [How do you do fellow idiots?](https://www.reddit.com/r/wallstreetbets/comments/r2xi84/how_do_you_do_fellow_idiots/)
-- [The Stock Market Today Be Like](https://www.reddit.com/r/wallstreetbets/comments/r2xdc2/the_stock_market_today_be_like/)
-- [Porn on all Sides &lpar;Loss Porn to Gain Porn&rpar;](https://www.reddit.com/r/wallstreetbets/comments/r2x66z/porn_on_all_sides_loss_porn_to_gain_porn/)
-- [It’s Friday, but not quite a 0dte. 3,250% Gainz on $SPY.](https://www.reddit.com/r/wallstreetbets/comments/r2vn7t/its_friday_but_not_quite_a_0dte_3250_gainz_on_spy/)
+- [Money to be made from UFOs](https://www.reddit.com/r/wallstreetbets/comments/r3pkid/money_to_be_made_from_ufos/)
+- [UK, Germany and Italy detect Omicron variant cases](https://www.reddit.com/r/wallstreetbets/comments/r3p40t/uk_germany_and_italy_detect_omicron_variant_cases/)
+- [Sold few.. one last one ☝️](https://www.reddit.com/r/wallstreetbets/comments/r3nuxg/sold_few_one_last_one/)
+- [BioNTech expecting new data within 2 weeks to determine if vaccine can be reworked, estimates 100 days to produce new vaccine if necessary](https://www.reddit.com/r/wallstreetbets/comments/r3n6kp/biontech_expecting_new_data_within_2_weeks_to/)
+- [I hate weekends](https://www.reddit.com/r/wallstreetbets/comments/r3mbjf/i_hate_weekends/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
