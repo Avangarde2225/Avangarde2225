@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Money to be made from UFOs](https://www.reddit.com/r/wallstreetbets/comments/r3pkid/money_to_be_made_from_ufos/)
-- [UK, Germany and Italy detect Omicron variant cases](https://www.reddit.com/r/wallstreetbets/comments/r3p40t/uk_germany_and_italy_detect_omicron_variant_cases/)
-- [Sold few.. one last one ☝️](https://www.reddit.com/r/wallstreetbets/comments/r3nuxg/sold_few_one_last_one/)
-- [BioNTech expecting new data within 2 weeks to determine if vaccine can be reworked, estimates 100 days to produce new vaccine if necessary](https://www.reddit.com/r/wallstreetbets/comments/r3n6kp/biontech_expecting_new_data_within_2_weeks_to/)
-- [I hate weekends](https://www.reddit.com/r/wallstreetbets/comments/r3mbjf/i_hate_weekends/)
+- [The gorillas we donated to are on 60 minutes tonight](https://www.reddit.com/r/wallstreetbets/comments/r4hryh/the_gorillas_we_donated_to_are_on_60_minutes/)
+- [🌈🐻 when SPY drops 2%](https://www.reddit.com/r/wallstreetbets/comments/r4hd3s/when_spy_drops_2/)
+- [New Strategy - Short every company during earnings, no matter what](https://www.reddit.com/r/wallstreetbets/comments/r4ffk6/new_strategy_short_every_company_during_earnings/)
+- [What Are Your Moves Tomorrow, November 29, 2021](https://www.reddit.com/r/wallstreetbets/comments/r4e8p3/what_are_your_moves_tomorrow_november_29_2021/)
+- [Which of you losers needs a job? Your wife’s boyfriends brother is an assistant manager there and can hook you up.](https://www.reddit.com/r/wallstreetbets/comments/r4d59u/which_of_you_losers_needs_a_job_your_wifes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
