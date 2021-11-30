@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The gorillas we donated to are on 60 minutes tonight](https://www.reddit.com/r/wallstreetbets/comments/r4hryh/the_gorillas_we_donated_to_are_on_60_minutes/)
-- [🌈🐻 when SPY drops 2%](https://www.reddit.com/r/wallstreetbets/comments/r4hd3s/when_spy_drops_2/)
-- [New Strategy - Short every company during earnings, no matter what](https://www.reddit.com/r/wallstreetbets/comments/r4ffk6/new_strategy_short_every_company_during_earnings/)
-- [What Are Your Moves Tomorrow, November 29, 2021](https://www.reddit.com/r/wallstreetbets/comments/r4e8p3/what_are_your_moves_tomorrow_november_29_2021/)
-- [Which of you losers needs a job? Your wife’s boyfriends brother is an assistant manager there and can hook you up.](https://www.reddit.com/r/wallstreetbets/comments/r4d59u/which_of_you_losers_needs_a_job_your_wifes/)
+- [420.69 GameStop &lpar;GME&rpar; Shares 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/r56xmz/42069_gamestop_gme_shares/)
+- [Apes Together Strong! Special Thank you from the Good Dr. Stoinski to all us Apes](https://www.reddit.com/r/wallstreetbets/comments/r56koy/apes_together_strong_special_thank_you_from_the/)
+- [$60k GME YOLO, can&#39;t stop won&#39;t stop](https://www.reddit.com/r/wallstreetbets/comments/r56bii/60k_gme_yolo_cant_stop_wont_stop/)
+- [Don&#39;t tell anyone, but I found the WSB DD formula... insert ticker symbol, post.](https://www.reddit.com/r/wallstreetbets/comments/r569yf/dont_tell_anyone_but_i_found_the_wsb_dd_formula/)
+- [What Are Your Moves Tomorrow, November 30, 2021](https://www.reddit.com/r/wallstreetbets/comments/r55j9p/what_are_your_moves_tomorrow_november_30_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
