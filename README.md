@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [420.69 GameStop &lpar;GME&rpar; Shares 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/r56xmz/42069_gamestop_gme_shares/)
-- [Apes Together Strong! Special Thank you from the Good Dr. Stoinski to all us Apes](https://www.reddit.com/r/wallstreetbets/comments/r56koy/apes_together_strong_special_thank_you_from_the/)
-- [$60k GME YOLO, can&#39;t stop won&#39;t stop](https://www.reddit.com/r/wallstreetbets/comments/r56bii/60k_gme_yolo_cant_stop_wont_stop/)
-- [Don&#39;t tell anyone, but I found the WSB DD formula... insert ticker symbol, post.](https://www.reddit.com/r/wallstreetbets/comments/r569yf/dont_tell_anyone_but_i_found_the_wsb_dd_formula/)
-- [What Are Your Moves Tomorrow, November 30, 2021](https://www.reddit.com/r/wallstreetbets/comments/r55j9p/what_are_your_moves_tomorrow_november_30_2021/)
+- [rrrrrrrrb](https://www.reddit.com/r/wallstreetbets/comments/r604ig/rrrrrrrrb/)
+- [AAPL to the rescue today](https://www.reddit.com/r/wallstreetbets/comments/r5zs4c/aapl_to_the_rescue_today/)
+- [Turned 2K into 43k in a week!](https://www.reddit.com/r/wallstreetbets/comments/r5xnmc/turned_2k_into_43k_in_a_week/)
+- [What Are Your Moves Tomorrow, December 01, 2021](https://www.reddit.com/r/wallstreetbets/comments/r5xalp/what_are_your_moves_tomorrow_december_01_2021/)
+- [iNfLaTiOn iS tRaNsItOrY](https://www.reddit.com/r/wallstreetbets/comments/r5x0ef/inflation_is_transitory/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
