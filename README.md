@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me vs Robinhood](https://www.reddit.com/r/wallstreetbets/comments/r7juva/me_vs_robinhood/)
-- [It’s back! Name it whatever you want.](https://www.reddit.com/r/wallstreetbets/comments/r7jh6u/its_back_name_it_whatever_you_want/)
-- [UWMC short borrowing fee is up 9 times in the past 48 hours](https://www.reddit.com/r/wallstreetbets/comments/r7j298/uwmc_short_borrowing_fee_is_up_9_times_in_the/)
-- [What the hell do we do now?](https://www.reddit.com/r/wallstreetbets/comments/r7ibhe/what_the_hell_do_we_do_now/)
-- [I bought baba at June 25 finally,I cut lost today. My account, my sister account and, my wife account. 😥😥😥](https://www.reddit.com/r/wallstreetbets/comments/r7i15y/i_bought_baba_at_june_25_finallyi_cut_lost_today/)
+- [Cleaning up after the bears today](https://www.reddit.com/r/wallstreetbets/comments/r8bvmw/cleaning_up_after_the_bears_today/)
+- [Good thing I was already broke &lpar;with sound&rpar;](https://www.reddit.com/r/wallstreetbets/comments/r8b889/good_thing_i_was_already_broke_with_sound/)
+- [When I see someone post huge gain porn after I paper handed the same stock months ago](https://www.reddit.com/r/wallstreetbets/comments/r8ajvg/when_i_see_someone_post_huge_gain_porn_after_i/)
+- [Buy the dip they said](https://www.reddit.com/r/wallstreetbets/comments/r89bnf/buy_the_dip_they_said/)
+- [Update!](https://www.reddit.com/r/wallstreetbets/comments/r891jw/update/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
