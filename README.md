@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cleaning up after the bears today](https://www.reddit.com/r/wallstreetbets/comments/r8bvmw/cleaning_up_after_the_bears_today/)
-- [Good thing I was already broke &lpar;with sound&rpar;](https://www.reddit.com/r/wallstreetbets/comments/r8b889/good_thing_i_was_already_broke_with_sound/)
-- [When I see someone post huge gain porn after I paper handed the same stock months ago](https://www.reddit.com/r/wallstreetbets/comments/r8ajvg/when_i_see_someone_post_huge_gain_porn_after_i/)
-- [Buy the dip they said](https://www.reddit.com/r/wallstreetbets/comments/r89bnf/buy_the_dip_they_said/)
-- [Update!](https://www.reddit.com/r/wallstreetbets/comments/r891jw/update/)
+- [🕵️‍♂️ I SPY TA - Monday Dec. 6, 202](https://www.reddit.com/r/wallstreetbets/comments/r91vja/i_spy_ta_monday_dec_6_202/)
+- [My totally balanced portfolio](https://www.reddit.com/r/wallstreetbets/comments/r915t2/my_totally_balanced_portfolio/)
+- [175k Russian Troop Build up at Ukraine Border](https://www.reddit.com/r/wallstreetbets/comments/r90lda/175k_russian_troop_build_up_at_ukraine_border/)
+- [TSLA apes saw this, right? Elon Musk&#39;s big Tesla &lpar;TSLA&rpar; selloff is about 60% complete](https://www.reddit.com/r/wallstreetbets/comments/r90eih/tsla_apes_saw_this_right_elon_musks_big_tesla/)
+- [Lose 99% of my savings to $TSLA call](https://www.reddit.com/r/wallstreetbets/comments/r8zwn9/lose_99_of_my_savings_to_tsla_call/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
