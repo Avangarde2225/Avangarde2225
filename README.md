@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🕵️‍♂️ I SPY TA - Monday Dec. 6, 202](https://www.reddit.com/r/wallstreetbets/comments/r91vja/i_spy_ta_monday_dec_6_202/)
-- [My totally balanced portfolio](https://www.reddit.com/r/wallstreetbets/comments/r915t2/my_totally_balanced_portfolio/)
-- [175k Russian Troop Build up at Ukraine Border](https://www.reddit.com/r/wallstreetbets/comments/r90lda/175k_russian_troop_build_up_at_ukraine_border/)
-- [TSLA apes saw this, right? Elon Musk&#39;s big Tesla &lpar;TSLA&rpar; selloff is about 60% complete](https://www.reddit.com/r/wallstreetbets/comments/r90eih/tsla_apes_saw_this_right_elon_musks_big_tesla/)
-- [Lose 99% of my savings to $TSLA call](https://www.reddit.com/r/wallstreetbets/comments/r8zwn9/lose_99_of_my_savings_to_tsla_call/)
+- [What my Monday morning looks like](https://www.reddit.com/r/wallstreetbets/comments/r9srzb/what_my_monday_morning_looks_like/)
+- [The ViacomCBS -VIAC - Saga: Part III, Return of Hwang](https://www.reddit.com/r/wallstreetbets/comments/r9sd8r/the_viacomcbs_viac_saga_part_iii_return_of_hwang/)
+- [What Are Your Moves Tomorrow, December 06, 2021](https://www.reddit.com/r/wallstreetbets/comments/r9p9ti/what_are_your_moves_tomorrow_december_06_2021/)
+- [$440 SPY Put Options into next week?](https://www.reddit.com/r/wallstreetbets/comments/r9o1e5/440_spy_put_options_into_next_week/)
+- [Small-Cap Stocks Hit Hard by Covid-19 Omicron Variant](https://www.reddit.com/r/wallstreetbets/comments/r9kt14/smallcap_stocks_hit_hard_by_covid19_omicron/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
