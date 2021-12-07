@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What my Monday morning looks like](https://www.reddit.com/r/wallstreetbets/comments/r9srzb/what_my_monday_morning_looks_like/)
-- [The ViacomCBS -VIAC - Saga: Part III, Return of Hwang](https://www.reddit.com/r/wallstreetbets/comments/r9sd8r/the_viacomcbs_viac_saga_part_iii_return_of_hwang/)
-- [What Are Your Moves Tomorrow, December 06, 2021](https://www.reddit.com/r/wallstreetbets/comments/r9p9ti/what_are_your_moves_tomorrow_december_06_2021/)
-- [$440 SPY Put Options into next week?](https://www.reddit.com/r/wallstreetbets/comments/r9o1e5/440_spy_put_options_into_next_week/)
-- [Small-Cap Stocks Hit Hard by Covid-19 Omicron Variant](https://www.reddit.com/r/wallstreetbets/comments/r9kt14/smallcap_stocks_hit_hard_by_covid19_omicron/)
+- [The ultimate investment](https://www.reddit.com/r/wallstreetbets/comments/ralhn9/the_ultimate_investment/)
+- [Which one of yours&#39; DD was he following?](https://www.reddit.com/r/wallstreetbets/comments/ral4lg/which_one_of_yours_dd_was_he_following/)
+- [Dow Jones 2021](https://www.reddit.com/r/wallstreetbets/comments/rakrho/dow_jones_2021/)
+- [Rep. Devin Nunes to leave Congress to become Trump media company CEO](https://www.reddit.com/r/wallstreetbets/comments/rak75g/rep_devin_nunes_to_leave_congress_to_become_trump/)
+- [+$49k shorting VIX futures! 😎 🦧 Opened Sunday night and just closed the position. The margin requirement was about $185K](https://www.reddit.com/r/wallstreetbets/comments/raii95/49k_shorting_vix_futures_opened_sunday_night_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
