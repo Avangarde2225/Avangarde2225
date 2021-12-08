@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The ultimate investment](https://www.reddit.com/r/wallstreetbets/comments/ralhn9/the_ultimate_investment/)
-- [Which one of yours&#39; DD was he following?](https://www.reddit.com/r/wallstreetbets/comments/ral4lg/which_one_of_yours_dd_was_he_following/)
-- [Dow Jones 2021](https://www.reddit.com/r/wallstreetbets/comments/rakrho/dow_jones_2021/)
-- [Rep. Devin Nunes to leave Congress to become Trump media company CEO](https://www.reddit.com/r/wallstreetbets/comments/rak75g/rep_devin_nunes_to_leave_congress_to_become_trump/)
-- [+$49k shorting VIX futures! 😎 🦧 Opened Sunday night and just closed the position. The margin requirement was about $185K](https://www.reddit.com/r/wallstreetbets/comments/raii95/49k_shorting_vix_futures_opened_sunday_night_and/)
+- [You need to really consider what you are doing](https://www.reddit.com/r/wallstreetbets/comments/rbcjs9/you_need_to_really_consider_what_you_are_doing/)
+- [🍏420 forever🍏](https://www.reddit.com/r/wallstreetbets/comments/rbc7g2/420_forever/)
+- [Have held 5000 shares $tsla for... 4+ years? I dunno it&#39;s been so long I forget how long exactly. Used to own an extra 1000 but sold and lost through weeklies. 🤦 Holding now til $3000/share which seems crazy but anything seems possible since covid has started. 🤞](https://www.reddit.com/r/wallstreetbets/comments/rbakvo/have_held_5000_shares_tsla_for_4_years_i_dunno/)
+- [EV maker Lucid gets SEC subpoena on $24-bln blank-check deal](https://www.reddit.com/r/wallstreetbets/comments/rba7hf/ev_maker_lucid_gets_sec_subpoena_on_24bln/)
+- [Santa Claus is Coming to Town 🎅🚀](https://www.reddit.com/r/wallstreetbets/comments/rba0w2/santa_claus_is_coming_to_town/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
