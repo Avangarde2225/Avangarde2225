@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You need to really consider what you are doing](https://www.reddit.com/r/wallstreetbets/comments/rbcjs9/you_need_to_really_consider_what_you_are_doing/)
-- [🍏420 forever🍏](https://www.reddit.com/r/wallstreetbets/comments/rbc7g2/420_forever/)
-- [Have held 5000 shares $tsla for... 4+ years? I dunno it&#39;s been so long I forget how long exactly. Used to own an extra 1000 but sold and lost through weeklies. 🤦 Holding now til $3000/share which seems crazy but anything seems possible since covid has started. 🤞](https://www.reddit.com/r/wallstreetbets/comments/rbakvo/have_held_5000_shares_tsla_for_4_years_i_dunno/)
-- [EV maker Lucid gets SEC subpoena on $24-bln blank-check deal](https://www.reddit.com/r/wallstreetbets/comments/rba7hf/ev_maker_lucid_gets_sec_subpoena_on_24bln/)
-- [Santa Claus is Coming to Town 🎅🚀](https://www.reddit.com/r/wallstreetbets/comments/rba0w2/santa_claus_is_coming_to_town/)
+- [THEY TOLD ME IT WAS A STUPID REMOTE COMPANY](https://www.reddit.com/r/wallstreetbets/comments/rc38do/they_told_me_it_was_a_stupid_remote_company/)
+- [Tilray CEO says there&#39;s a potential to grow the business by infusing whiskey with cannabis](https://www.reddit.com/r/wallstreetbets/comments/rc2fq0/tilray_ceo_says_theres_a_potential_to_grow_the/)
+- [SEC investigating Elon Musk again !](https://www.reddit.com/r/wallstreetbets/comments/rc29cw/sec_investigating_elon_musk_again/)
+- [Investors bought $6.7 billion of stocks in last week&#39;s Omicron dip, the highest inflow in 4 years, according to Bank of America](https://www.reddit.com/r/wallstreetbets/comments/rc231m/investors_bought_67_billion_of_stocks_in_last/)
+- [The average chimp after GME earnings:](https://www.reddit.com/r/wallstreetbets/comments/rc1swq/the_average_chimp_after_gme_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
