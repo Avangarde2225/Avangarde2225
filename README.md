@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [THEY TOLD ME IT WAS A STUPID REMOTE COMPANY](https://www.reddit.com/r/wallstreetbets/comments/rc38do/they_told_me_it_was_a_stupid_remote_company/)
-- [Tilray CEO says there&#39;s a potential to grow the business by infusing whiskey with cannabis](https://www.reddit.com/r/wallstreetbets/comments/rc2fq0/tilray_ceo_says_theres_a_potential_to_grow_the/)
-- [SEC investigating Elon Musk again !](https://www.reddit.com/r/wallstreetbets/comments/rc29cw/sec_investigating_elon_musk_again/)
-- [Investors bought $6.7 billion of stocks in last week&#39;s Omicron dip, the highest inflow in 4 years, according to Bank of America](https://www.reddit.com/r/wallstreetbets/comments/rc231m/investors_bought_67_billion_of_stocks_in_last/)
-- [The average chimp after GME earnings:](https://www.reddit.com/r/wallstreetbets/comments/rc1swq/the_average_chimp_after_gme_earnings/)
+- [Evergrande has defaulted on its debt, Fitch Ratings says](https://www.reddit.com/r/wallstreetbets/comments/rctbay/evergrande_has_defaulted_on_its_debt_fitch/)
+- [There will be no bear market](https://www.reddit.com/r/wallstreetbets/comments/rcsuak/there_will_be_no_bear_market/)
+- [Eating potatoes for weeks](https://www.reddit.com/r/wallstreetbets/comments/rcssns/eating_potatoes_for_weeks/)
+- [The brutal truth behind trading shitty patterns](https://www.reddit.com/r/wallstreetbets/comments/rcs6bi/the_brutal_truth_behind_trading_shitty_patterns/)
+- [$1,620 to $49,000 on GOOG call 9/29/20-12/8/21](https://www.reddit.com/r/wallstreetbets/comments/rcrpjd/1620_to_49000_on_goog_call_9292012821/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
