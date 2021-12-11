@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Evergrande has defaulted on its debt, Fitch Ratings says](https://www.reddit.com/r/wallstreetbets/comments/rctbay/evergrande_has_defaulted_on_its_debt_fitch/)
-- [There will be no bear market](https://www.reddit.com/r/wallstreetbets/comments/rcsuak/there_will_be_no_bear_market/)
-- [Eating potatoes for weeks](https://www.reddit.com/r/wallstreetbets/comments/rcssns/eating_potatoes_for_weeks/)
-- [The brutal truth behind trading shitty patterns](https://www.reddit.com/r/wallstreetbets/comments/rcs6bi/the_brutal_truth_behind_trading_shitty_patterns/)
-- [$1,620 to $49,000 on GOOG call 9/29/20-12/8/21](https://www.reddit.com/r/wallstreetbets/comments/rcrpjd/1620_to_49000_on_goog_call_9292012821/)
+- [when you long $TSLA $FB $AAPL](https://www.reddit.com/r/wallstreetbets/comments/rdkynp/when_you_long_tsla_fb_aapl/)
+- [Is there any GME and AMC retards left alive?](https://www.reddit.com/r/wallstreetbets/comments/rdjvl9/is_there_any_gme_and_amc_retards_left_alive/)
+- [Today&#39;s market action summed up](https://www.reddit.com/r/wallstreetbets/comments/rdim5v/todays_market_action_summed_up/)
+- [Weekend Discussion Thread for the Weekend of December 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/rdii5m/weekend_discussion_thread_for_the_weekend_of/)
+- [Hold onto your tits](https://www.reddit.com/r/wallstreetbets/comments/rdhtm5/hold_onto_your_tits/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
