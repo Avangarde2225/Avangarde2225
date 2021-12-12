@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [when you long $TSLA $FB $AAPL](https://www.reddit.com/r/wallstreetbets/comments/rdkynp/when_you_long_tsla_fb_aapl/)
-- [Is there any GME and AMC retards left alive?](https://www.reddit.com/r/wallstreetbets/comments/rdjvl9/is_there_any_gme_and_amc_retards_left_alive/)
-- [Today&#39;s market action summed up](https://www.reddit.com/r/wallstreetbets/comments/rdim5v/todays_market_action_summed_up/)
-- [Weekend Discussion Thread for the Weekend of December 10, 2021](https://www.reddit.com/r/wallstreetbets/comments/rdii5m/weekend_discussion_thread_for_the_weekend_of/)
-- [Hold onto your tits](https://www.reddit.com/r/wallstreetbets/comments/rdhtm5/hold_onto_your_tits/)
+- [Merry Christmas from the Cramer family. We wish for a ❄️ Christmas](https://www.reddit.com/r/wallstreetbets/comments/rec0d4/merry_christmas_from_the_cramer_family_we_wish/)
+- [WSB the last couple of weeks](https://www.reddit.com/r/wallstreetbets/comments/reberu/wsb_the_last_couple_of_weeks/)
+- [Plenty of time left. Tweet something bullish Elon](https://www.reddit.com/r/wallstreetbets/comments/reb3oc/plenty_of_time_left_tweet_something_bullish_elon/)
+- [My Average Day as a Day Trader](https://www.reddit.com/r/wallstreetbets/comments/reazko/my_average_day_as_a_day_trader/)
+- [Ford Communications Director flaunting that if you bought $F a decade ago you’d have almost doubled your money… or you could have bought $SPY and almost quadrupled.](https://www.reddit.com/r/wallstreetbets/comments/re7t6w/ford_communications_director_flaunting_that_if/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
