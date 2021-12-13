@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Merry Christmas from the Cramer family. We wish for a ❄️ Christmas](https://www.reddit.com/r/wallstreetbets/comments/rec0d4/merry_christmas_from_the_cramer_family_we_wish/)
-- [WSB the last couple of weeks](https://www.reddit.com/r/wallstreetbets/comments/reberu/wsb_the_last_couple_of_weeks/)
-- [Plenty of time left. Tweet something bullish Elon](https://www.reddit.com/r/wallstreetbets/comments/reb3oc/plenty_of_time_left_tweet_something_bullish_elon/)
-- [My Average Day as a Day Trader](https://www.reddit.com/r/wallstreetbets/comments/reazko/my_average_day_as_a_day_trader/)
-- [Ford Communications Director flaunting that if you bought $F a decade ago you’d have almost doubled your money… or you could have bought $SPY and almost quadrupled.](https://www.reddit.com/r/wallstreetbets/comments/re7t6w/ford_communications_director_flaunting_that_if/)
+- [Elon Musk sells another $963.2 million in Tesla shares](https://www.reddit.com/r/wallstreetbets/comments/rf1ajw/elon_musk_sells_another_9632_million_in_tesla/)
+- [All in on $AMC](https://www.reddit.com/r/wallstreetbets/comments/rf0tuy/all_in_on_amc/)
+- [More WSB Stock Manipulation Caught on Camera! When Will These Criminals Be Held Accountable?](https://www.reddit.com/r/wallstreetbets/comments/rf0668/more_wsb_stock_manipulation_caught_on_camera_when/)
+- [America’s economic growth with and without inflation.](https://www.reddit.com/r/wallstreetbets/comments/rezku0/americas_economic_growth_with_and_without/)
+- [Cathie Wood defends her beaten-down portfolio and estimates Ark fund&#39;s returns will quadruple in the next 5 years.](https://www.reddit.com/r/wallstreetbets/comments/reys3c/cathie_wood_defends_her_beatendown_portfolio_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
