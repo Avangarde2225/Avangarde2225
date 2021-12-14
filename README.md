@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Elon Musk sells another $963.2 million in Tesla shares](https://www.reddit.com/r/wallstreetbets/comments/rf1ajw/elon_musk_sells_another_9632_million_in_tesla/)
-- [All in on $AMC](https://www.reddit.com/r/wallstreetbets/comments/rf0tuy/all_in_on_amc/)
-- [More WSB Stock Manipulation Caught on Camera! When Will These Criminals Be Held Accountable?](https://www.reddit.com/r/wallstreetbets/comments/rf0668/more_wsb_stock_manipulation_caught_on_camera_when/)
-- [America’s economic growth with and without inflation.](https://www.reddit.com/r/wallstreetbets/comments/rezku0/americas_economic_growth_with_and_without/)
-- [Cathie Wood defends her beaten-down portfolio and estimates Ark fund&#39;s returns will quadruple in the next 5 years.](https://www.reddit.com/r/wallstreetbets/comments/reys3c/cathie_wood_defends_her_beatendown_portfolio_and/)
+- [$773K TSLA calls bought just before close today](https://www.reddit.com/r/wallstreetbets/comments/rftmx4/773k_tsla_calls_bought_just_before_close_today/)
+- [Meanwhile in the Land of Retard](https://www.reddit.com/r/wallstreetbets/comments/rfsd33/meanwhile_in_the_land_of_retard/)
+- [It&#39;s all about perspective](https://www.reddit.com/r/wallstreetbets/comments/rfr9hq/its_all_about_perspective/)
+- [I will never financially recover from this :&lpar;](https://www.reddit.com/r/wallstreetbets/comments/rfqub3/i_will_never_financially_recover_from_this/)
+- [RIP](https://www.reddit.com/r/wallstreetbets/comments/rfqflj/rip/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
