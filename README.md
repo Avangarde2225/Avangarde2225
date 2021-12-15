@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$773K TSLA calls bought just before close today](https://www.reddit.com/r/wallstreetbets/comments/rftmx4/773k_tsla_calls_bought_just_before_close_today/)
-- [Meanwhile in the Land of Retard](https://www.reddit.com/r/wallstreetbets/comments/rfsd33/meanwhile_in_the_land_of_retard/)
-- [It&#39;s all about perspective](https://www.reddit.com/r/wallstreetbets/comments/rfr9hq/its_all_about_perspective/)
-- [I will never financially recover from this :&lpar;](https://www.reddit.com/r/wallstreetbets/comments/rfqub3/i_will_never_financially_recover_from_this/)
-- [RIP](https://www.reddit.com/r/wallstreetbets/comments/rfqflj/rip/)
+- [Did I do this right?](https://www.reddit.com/r/wallstreetbets/comments/rgie1b/did_i_do_this_right/)
+- [Make WSB great again](https://www.reddit.com/r/wallstreetbets/comments/rghyny/make_wsb_great_again/)
+- [Literally what it fees like rn.](https://www.reddit.com/r/wallstreetbets/comments/rgh7wp/literally_what_it_fees_like_rn/)
+- [What Are Your Moves Tomorrow, December 15, 2021](https://www.reddit.com/r/wallstreetbets/comments/rgh6l4/what_are_your_moves_tomorrow_december_15_2021/)
+- [Watching the market is a tough job.](https://www.reddit.com/r/wallstreetbets/comments/rgf7cf/watching_the_market_is_a_tough_job/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
