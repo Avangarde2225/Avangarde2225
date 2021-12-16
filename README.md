@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Did I do this right?](https://www.reddit.com/r/wallstreetbets/comments/rgie1b/did_i_do_this_right/)
-- [Make WSB great again](https://www.reddit.com/r/wallstreetbets/comments/rghyny/make_wsb_great_again/)
-- [Literally what it fees like rn.](https://www.reddit.com/r/wallstreetbets/comments/rgh7wp/literally_what_it_fees_like_rn/)
-- [What Are Your Moves Tomorrow, December 15, 2021](https://www.reddit.com/r/wallstreetbets/comments/rgh6l4/what_are_your_moves_tomorrow_december_15_2021/)
-- [Watching the market is a tough job.](https://www.reddit.com/r/wallstreetbets/comments/rgf7cf/watching_the_market_is_a_tough_job/)
+- [Business Insider Pelosi rejects stock-trading ban for members of Congress: Read &amp; support the bill at the end, if you want a fair stock market](https://www.reddit.com/r/wallstreetbets/comments/rhc9lx/business_insider_pelosi_rejects_stocktrading_ban/)
+- [So close to $69,420 in gains today lol](https://www.reddit.com/r/wallstreetbets/comments/rhbu7i/so_close_to_69420_in_gains_today_lol/)
+- [You didn’t even have to watch JPOW, you could just feel it](https://www.reddit.com/r/wallstreetbets/comments/rhbiul/you_didnt_even_have_to_watch_jpow_you_could_just/)
+- [Federal reserve policy update:](https://www.reddit.com/r/wallstreetbets/comments/rhb0xy/federal_reserve_policy_update/)
+- [How it feels like to be a 🌈🐻 today.](https://www.reddit.com/r/wallstreetbets/comments/rhaf8v/how_it_feels_like_to_be_a_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
