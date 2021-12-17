@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Business Insider Pelosi rejects stock-trading ban for members of Congress: Read &amp; support the bill at the end, if you want a fair stock market](https://www.reddit.com/r/wallstreetbets/comments/rhc9lx/business_insider_pelosi_rejects_stocktrading_ban/)
-- [So close to $69,420 in gains today lol](https://www.reddit.com/r/wallstreetbets/comments/rhbu7i/so_close_to_69420_in_gains_today_lol/)
-- [You didn’t even have to watch JPOW, you could just feel it](https://www.reddit.com/r/wallstreetbets/comments/rhbiul/you_didnt_even_have_to_watch_jpow_you_could_just/)
-- [Federal reserve policy update:](https://www.reddit.com/r/wallstreetbets/comments/rhb0xy/federal_reserve_policy_update/)
-- [How it feels like to be a 🌈🐻 today.](https://www.reddit.com/r/wallstreetbets/comments/rhaf8v/how_it_feels_like_to_be_a_today/)
+- [Looking at $TSLA today](https://www.reddit.com/r/wallstreetbets/comments/ri3rsz/looking_at_tsla_today/)
+- [I&#39;d be rich as fk if I inversed Cramer](https://www.reddit.com/r/wallstreetbets/comments/ri3khc/id_be_rich_as_fk_if_i_inversed_cramer/)
+- [Running out of cash. What u guys buying?](https://www.reddit.com/r/wallstreetbets/comments/ri2o3h/running_out_of_cash_what_u_guys_buying/)
+- [NVAX YOLO 17500 SHARES GAIN PORN](https://www.reddit.com/r/wallstreetbets/comments/ri28ki/nvax_yolo_17500_shares_gain_porn/)
+- [Robinhood widget gets right to the point now](https://www.reddit.com/r/wallstreetbets/comments/ri23iu/robinhood_widget_gets_right_to_the_point_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
