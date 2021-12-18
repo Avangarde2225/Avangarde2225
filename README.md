@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Looking at $TSLA today](https://www.reddit.com/r/wallstreetbets/comments/ri3rsz/looking_at_tsla_today/)
-- [I&#39;d be rich as fk if I inversed Cramer](https://www.reddit.com/r/wallstreetbets/comments/ri3khc/id_be_rich_as_fk_if_i_inversed_cramer/)
-- [Running out of cash. What u guys buying?](https://www.reddit.com/r/wallstreetbets/comments/ri2o3h/running_out_of_cash_what_u_guys_buying/)
-- [NVAX YOLO 17500 SHARES GAIN PORN](https://www.reddit.com/r/wallstreetbets/comments/ri28ki/nvax_yolo_17500_shares_gain_porn/)
-- [Robinhood widget gets right to the point now](https://www.reddit.com/r/wallstreetbets/comments/ri23iu/robinhood_widget_gets_right_to_the_point_now/)
+- [Walmart paying for Christmas this year](https://www.reddit.com/r/wallstreetbets/comments/rit0eu/walmart_paying_for_christmas_this_year/)
+- [Evergreen](https://www.reddit.com/r/wallstreetbets/comments/rirwwm/evergreen/)
+- [Is GME still a go?](https://www.reddit.com/r/wallstreetbets/comments/rirm5z/is_gme_still_a_go/)
+- [Time for a nose bump ❄️](https://www.reddit.com/r/wallstreetbets/comments/ririjr/time_for_a_nose_bump/)
+- [+$153,000 in 19 minutes &lpar;TSLA Calls 12/17 Expiry&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rirgm2/153000_in_19_minutes_tsla_calls_1217_expiry/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
