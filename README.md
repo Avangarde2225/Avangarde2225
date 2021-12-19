@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Walmart paying for Christmas this year](https://www.reddit.com/r/wallstreetbets/comments/rit0eu/walmart_paying_for_christmas_this_year/)
-- [Evergreen](https://www.reddit.com/r/wallstreetbets/comments/rirwwm/evergreen/)
-- [Is GME still a go?](https://www.reddit.com/r/wallstreetbets/comments/rirm5z/is_gme_still_a_go/)
-- [Time for a nose bump ❄️](https://www.reddit.com/r/wallstreetbets/comments/ririjr/time_for_a_nose_bump/)
-- [+$153,000 in 19 minutes &lpar;TSLA Calls 12/17 Expiry&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rirgm2/153000_in_19_minutes_tsla_calls_1217_expiry/)
+- [DDs on wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/rjjxt2/dds_on_wallstreetbets/)
+- [Yup...](https://www.reddit.com/r/wallstreetbets/comments/rjjkcx/yup/)
+- [We should buy Reddit.](https://www.reddit.com/r/wallstreetbets/comments/rjjecq/we_should_buy_reddit/)
+- [The returns do be crazy tho 💰🚀](https://www.reddit.com/r/wallstreetbets/comments/rjiut8/the_returns_do_be_crazy_tho/)
+- [Legit help needed….](https://www.reddit.com/r/wallstreetbets/comments/rji4yc/legit_help_needed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
