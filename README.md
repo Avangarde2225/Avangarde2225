@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DDs on wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/rjjxt2/dds_on_wallstreetbets/)
-- [Yup...](https://www.reddit.com/r/wallstreetbets/comments/rjjkcx/yup/)
-- [We should buy Reddit.](https://www.reddit.com/r/wallstreetbets/comments/rjjecq/we_should_buy_reddit/)
-- [The returns do be crazy tho 💰🚀](https://www.reddit.com/r/wallstreetbets/comments/rjiut8/the_returns_do_be_crazy_tho/)
-- [Legit help needed….](https://www.reddit.com/r/wallstreetbets/comments/rji4yc/legit_help_needed/)
+- [OCGN bagholders in 2035...](https://www.reddit.com/r/wallstreetbets/comments/rk7z5c/ocgn_bagholders_in_2035/)
+- [This will bring the study together nicely](https://www.reddit.com/r/wallstreetbets/comments/rk7n6d/this_will_bring_the_study_together_nicely/)
+- [My Holiday Message to Shorts, Put Holders of Meme Stocks:](https://www.reddit.com/r/wallstreetbets/comments/rk6qfi/my_holiday_message_to_shorts_put_holders_of_meme/)
+- [😱👍😂😭](https://www.reddit.com/r/wallstreetbets/comments/rk6qb3/_/)
+- [Sums up this week](https://www.reddit.com/r/wallstreetbets/comments/rk6ogf/sums_up_this_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
