@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [OCGN bagholders in 2035...](https://www.reddit.com/r/wallstreetbets/comments/rk7z5c/ocgn_bagholders_in_2035/)
-- [This will bring the study together nicely](https://www.reddit.com/r/wallstreetbets/comments/rk7n6d/this_will_bring_the_study_together_nicely/)
-- [My Holiday Message to Shorts, Put Holders of Meme Stocks:](https://www.reddit.com/r/wallstreetbets/comments/rk6qfi/my_holiday_message_to_shorts_put_holders_of_meme/)
-- [😱👍😂😭](https://www.reddit.com/r/wallstreetbets/comments/rk6qb3/_/)
-- [Sums up this week](https://www.reddit.com/r/wallstreetbets/comments/rk6ogf/sums_up_this_week/)
+- [You can&#39;t cancel Christmas](https://www.reddit.com/r/wallstreetbets/comments/rl0q8c/you_cant_cancel_christmas/)
+- [I discovered options](https://www.reddit.com/r/wallstreetbets/comments/rl03qy/i_discovered_options/)
+- [Market has been rough lately](https://www.reddit.com/r/wallstreetbets/comments/rkzhlu/market_has_been_rough_lately/)
+- [When you see it..](https://www.reddit.com/r/wallstreetbets/comments/rkzbkg/when_you_see_it/)
+- [Electric vehicle stocks tumble after Manchin rejects Biden’s climate and social plan](https://www.reddit.com/r/wallstreetbets/comments/rky1s4/electric_vehicle_stocks_tumble_after_manchin/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
