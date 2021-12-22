@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You can&#39;t cancel Christmas](https://www.reddit.com/r/wallstreetbets/comments/rl0q8c/you_cant_cancel_christmas/)
-- [I discovered options](https://www.reddit.com/r/wallstreetbets/comments/rl03qy/i_discovered_options/)
-- [Market has been rough lately](https://www.reddit.com/r/wallstreetbets/comments/rkzhlu/market_has_been_rough_lately/)
-- [When you see it..](https://www.reddit.com/r/wallstreetbets/comments/rkzbkg/when_you_see_it/)
-- [Electric vehicle stocks tumble after Manchin rejects Biden’s climate and social plan](https://www.reddit.com/r/wallstreetbets/comments/rky1s4/electric_vehicle_stocks_tumble_after_manchin/)
+- [BlackBerry Reports Third Quarter Fiscal Year 2022 Results](https://www.reddit.com/r/wallstreetbets/comments/rlqya8/blackberry_reports_third_quarter_fiscal_year_2022/)
+- [NVAX YOLO 11750 FINAL UPDATE](https://www.reddit.com/r/wallstreetbets/comments/rlotza/nvax_yolo_11750_final_update/)
+- [Holla At Ya GME YOLO. 800 Shares Tax Free!!](https://www.reddit.com/r/wallstreetbets/comments/rlohq9/holla_at_ya_gme_yolo_800_shares_tax_free/)
+- [What Are Your Moves Tomorrow, December 22, 2021](https://www.reddit.com/r/wallstreetbets/comments/rlo2v0/what_are_your_moves_tomorrow_december_22_2021/)
+- [China Omicron Bear Thesis...](https://www.reddit.com/r/wallstreetbets/comments/rln1wq/china_omicron_bear_thesis/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
