@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Mike Tyson Should Be an Honorary Member of WSB. Guh…](https://www.reddit.com/r/wallstreetbets/comments/rmi9hg/mike_tyson_should_be_an_honorary_member_of_wsb_guh/)
-- [So is this just a loss/gain porn sub now?? Where are my OG DD slum lords with the slippery FD with YUGE potential????](https://www.reddit.com/r/wallstreetbets/comments/rmhzzg/so_is_this_just_a_lossgain_porn_sub_now_where_are/)
-- [16 contracts $1080 calls $tsla yesterday at $0.17 sold this morning at $74 should’ve brought more. But I’m blessed 🙏🏻](https://www.reddit.com/r/wallstreetbets/comments/rmggve/16_contracts_1080_calls_tsla_yesterday_at_017/)
-- [Bull Market Incoming](https://www.reddit.com/r/wallstreetbets/comments/rmg9pr/bull_market_incoming/)
-- [What&#39;s her secret?](https://www.reddit.com/r/wallstreetbets/comments/rmfyjf/whats_her_secret/)
+- [Tax season is coming up](https://www.reddit.com/r/wallstreetbets/comments/rn78ex/tax_season_is_coming_up/)
+- [We ride at dawn, apes!!!](https://www.reddit.com/r/wallstreetbets/comments/rn77cr/we_ride_at_dawn_apes/)
+- [Tesla 2k -&gt; 4K -&gt; 17k](https://www.reddit.com/r/wallstreetbets/comments/rn6eho/tesla_2k_4k_17k/)
+- [You guys are my fuckin hero’s!!! Pulled me out of the fuckin hole!!! Two days ago I posted a 24k loss!!!!](https://www.reddit.com/r/wallstreetbets/comments/rn5hsd/you_guys_are_my_fuckin_heros_pulled_me_out_of_the/)
+- [So I woke up and chose Tesla 1040 calls. Sold for about 300% on first leg up. Then I FOMO’d into 1075 calls and lost all the gains I made from the first run up](https://www.reddit.com/r/wallstreetbets/comments/rn5fu3/so_i_woke_up_and_chose_tesla_1040_calls_sold_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
