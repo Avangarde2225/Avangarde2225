@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tax season is coming up](https://www.reddit.com/r/wallstreetbets/comments/rn78ex/tax_season_is_coming_up/)
-- [We ride at dawn, apes!!!](https://www.reddit.com/r/wallstreetbets/comments/rn77cr/we_ride_at_dawn_apes/)
-- [Tesla 2k -&gt; 4K -&gt; 17k](https://www.reddit.com/r/wallstreetbets/comments/rn6eho/tesla_2k_4k_17k/)
-- [You guys are my fuckin hero’s!!! Pulled me out of the fuckin hole!!! Two days ago I posted a 24k loss!!!!](https://www.reddit.com/r/wallstreetbets/comments/rn5hsd/you_guys_are_my_fuckin_heros_pulled_me_out_of_the/)
-- [So I woke up and chose Tesla 1040 calls. Sold for about 300% on first leg up. Then I FOMO’d into 1075 calls and lost all the gains I made from the first run up](https://www.reddit.com/r/wallstreetbets/comments/rn5fu3/so_i_woke_up_and_chose_tesla_1040_calls_sold_for/)
+- [China&#39;s Currency Trouble.](https://www.reddit.com/r/wallstreetbets/comments/rnw9a8/chinas_currency_trouble/)
+- [Merry Christmas to you too, TDA](https://www.reddit.com/r/wallstreetbets/comments/rnvpxm/merry_christmas_to_you_too_tda/)
+- [Me: Robinhood, where are my gains and losses? Robinhood: Fear not, here&#39;s a spreadsheet.](https://www.reddit.com/r/wallstreetbets/comments/rnvasf/me_robinhood_where_are_my_gains_and_losses/)
+- [Third type of porn other than Gain/loss porn.](https://www.reddit.com/r/wallstreetbets/comments/rnu1kg/third_type_of_porn_other_than_gainloss_porn/)
+- [I’ve Had an Epiphany &lpar;Or am I retarted? You tell me&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rnu049/ive_had_an_epiphany_or_am_i_retarted_you_tell_me/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
