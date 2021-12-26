@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [China&#39;s Currency Trouble.](https://www.reddit.com/r/wallstreetbets/comments/rnw9a8/chinas_currency_trouble/)
-- [Merry Christmas to you too, TDA](https://www.reddit.com/r/wallstreetbets/comments/rnvpxm/merry_christmas_to_you_too_tda/)
-- [Me: Robinhood, where are my gains and losses? Robinhood: Fear not, here&#39;s a spreadsheet.](https://www.reddit.com/r/wallstreetbets/comments/rnvasf/me_robinhood_where_are_my_gains_and_losses/)
-- [Third type of porn other than Gain/loss porn.](https://www.reddit.com/r/wallstreetbets/comments/rnu1kg/third_type_of_porn_other_than_gainloss_porn/)
-- [I’ve Had an Epiphany &lpar;Or am I retarted? You tell me&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rnu049/ive_had_an_epiphany_or_am_i_retarted_you_tell_me/)
+- [Hoping this is close/at the bottom for LCID... $350K worth of conviction 🥴 🤔If it dips I&#39;ll add more](https://www.reddit.com/r/wallstreetbets/comments/rokn7u/hoping_this_is_closeat_the_bottom_for_lcid_350k/)
+- [$600K SPY calls YOLO Bought &amp; sold Wed AM $120K gain but had I held overnight this would have been over a $1M return 😩 😭😤🤯🤬 Been burnt hard in the past when holding overnight so decided to play it safe but I&#39;m really pissed off now Does anyone else feel like this even if you profited?](https://www.reddit.com/r/wallstreetbets/comments/rokcsj/600k_spy_calls_yolo_bought_sold_wed_am_120k_gain/)
+- [Merry Christmas - from Las Vegas!](https://www.reddit.com/r/wallstreetbets/comments/rojnj5/merry_christmas_from_las_vegas/)
+- [45k TSM 6/17/22 125c YOLO](https://www.reddit.com/r/wallstreetbets/comments/rojm1n/45k_tsm_61722_125c_yolo/)
+- [I just know I’ll get fucked at open lol](https://www.reddit.com/r/wallstreetbets/comments/rojlt9/i_just_know_ill_get_fucked_at_open_lol/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
