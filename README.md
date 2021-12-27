@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hoping this is close/at the bottom for LCID... $350K worth of conviction 🥴 🤔If it dips I&#39;ll add more](https://www.reddit.com/r/wallstreetbets/comments/rokn7u/hoping_this_is_closeat_the_bottom_for_lcid_350k/)
-- [$600K SPY calls YOLO Bought &amp; sold Wed AM $120K gain but had I held overnight this would have been over a $1M return 😩 😭😤🤯🤬 Been burnt hard in the past when holding overnight so decided to play it safe but I&#39;m really pissed off now Does anyone else feel like this even if you profited?](https://www.reddit.com/r/wallstreetbets/comments/rokcsj/600k_spy_calls_yolo_bought_sold_wed_am_120k_gain/)
-- [Merry Christmas - from Las Vegas!](https://www.reddit.com/r/wallstreetbets/comments/rojnj5/merry_christmas_from_las_vegas/)
-- [45k TSM 6/17/22 125c YOLO](https://www.reddit.com/r/wallstreetbets/comments/rojm1n/45k_tsm_61722_125c_yolo/)
-- [I just know I’ll get fucked at open lol](https://www.reddit.com/r/wallstreetbets/comments/rojlt9/i_just_know_ill_get_fucked_at_open_lol/)
+- [Follow me for more recipes.](https://www.reddit.com/r/wallstreetbets/comments/rp9sqf/follow_me_for_more_recipes/)
+- [My wife when TSLA goes below $1000](https://www.reddit.com/r/wallstreetbets/comments/rp8pye/my_wife_when_tsla_goes_below_1000/)
+- [Terminated](https://www.reddit.com/r/wallstreetbets/comments/rp8mvp/terminated/)
+- [Where are we donating to this year?](https://www.reddit.com/r/wallstreetbets/comments/rp7pkt/where_are_we_donating_to_this_year/)
+- [Had to Buy some GME since Gas is so expensive this will take off faster!!!](https://www.reddit.com/r/wallstreetbets/comments/rp71y0/had_to_buy_some_gme_since_gas_is_so_expensive/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
