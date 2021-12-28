@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Follow me for more recipes.](https://www.reddit.com/r/wallstreetbets/comments/rp9sqf/follow_me_for_more_recipes/)
-- [My wife when TSLA goes below $1000](https://www.reddit.com/r/wallstreetbets/comments/rp8pye/my_wife_when_tsla_goes_below_1000/)
-- [Terminated](https://www.reddit.com/r/wallstreetbets/comments/rp8mvp/terminated/)
-- [Where are we donating to this year?](https://www.reddit.com/r/wallstreetbets/comments/rp7pkt/where_are_we_donating_to_this_year/)
-- [Had to Buy some GME since Gas is so expensive this will take off faster!!!](https://www.reddit.com/r/wallstreetbets/comments/rp71y0/had_to_buy_some_gme_since_gas_is_so_expensive/)
+- [Someone’s not going to college](https://www.reddit.com/r/wallstreetbets/comments/rq0ine/someones_not_going_to_college/)
+- [My Grandmoms Handmade Ornament Make Her Proud](https://www.reddit.com/r/wallstreetbets/comments/rpzvwx/my_grandmoms_handmade_ornament_make_her_proud/)
+- [That big bump in early 21 is $GME but ultimately quite fruitful year.](https://www.reddit.com/r/wallstreetbets/comments/rpzgvg/that_big_bump_in_early_21_is_gme_but_ultimately/)
+- [📉📈📉📈](https://www.reddit.com/r/wallstreetbets/comments/rpywmr/_/)
+- [Still waiting for the answer…](https://www.reddit.com/r/wallstreetbets/comments/rpywms/still_waiting_for_the_answer/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
