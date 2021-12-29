@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Someone’s not going to college](https://www.reddit.com/r/wallstreetbets/comments/rq0ine/someones_not_going_to_college/)
-- [My Grandmoms Handmade Ornament Make Her Proud](https://www.reddit.com/r/wallstreetbets/comments/rpzvwx/my_grandmoms_handmade_ornament_make_her_proud/)
-- [That big bump in early 21 is $GME but ultimately quite fruitful year.](https://www.reddit.com/r/wallstreetbets/comments/rpzgvg/that_big_bump_in_early_21_is_gme_but_ultimately/)
-- [📉📈📉📈](https://www.reddit.com/r/wallstreetbets/comments/rpywmr/_/)
-- [Still waiting for the answer…](https://www.reddit.com/r/wallstreetbets/comments/rpywms/still_waiting_for_the_answer/)
+- [Amazon YOLO gain](https://www.reddit.com/r/wallstreetbets/comments/rqsgws/amazon_yolo_gain/)
+- [Sell put option for dip buying](https://www.reddit.com/r/wallstreetbets/comments/rqqrid/sell_put_option_for_dip_buying/)
+- [Am I an eligible member now?](https://www.reddit.com/r/wallstreetbets/comments/rqq0r3/am_i_an_eligible_member_now/)
+- [BEARISH Market - SPY top holdings &lpar;and AMD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rqpswm/bearish_market_spy_top_holdings_and_amd/)
+- [What Are Your Moves Tomorrow, December 29, 2021](https://www.reddit.com/r/wallstreetbets/comments/rqpki7/what_are_your_moves_tomorrow_december_29_2021/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
