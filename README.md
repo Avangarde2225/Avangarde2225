@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Amazon YOLO gain](https://www.reddit.com/r/wallstreetbets/comments/rqsgws/amazon_yolo_gain/)
-- [Sell put option for dip buying](https://www.reddit.com/r/wallstreetbets/comments/rqqrid/sell_put_option_for_dip_buying/)
-- [Am I an eligible member now?](https://www.reddit.com/r/wallstreetbets/comments/rqq0r3/am_i_an_eligible_member_now/)
-- [BEARISH Market - SPY top holdings &lpar;and AMD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rqpswm/bearish_market_spy_top_holdings_and_amd/)
-- [What Are Your Moves Tomorrow, December 29, 2021](https://www.reddit.com/r/wallstreetbets/comments/rqpki7/what_are_your_moves_tomorrow_december_29_2021/)
+- [Ignorance turned out bliss for me](https://www.reddit.com/r/wallstreetbets/comments/rrn37i/ignorance_turned_out_bliss_for_me/)
+- [can’t wait to do it again next year](https://www.reddit.com/r/wallstreetbets/comments/rrmc4u/cant_wait_to_do_it_again_next_year/)
+- [Credit Suisse Reiterates NIO $83 Price Target and an Outperform Rating](https://www.reddit.com/r/wallstreetbets/comments/rrleqa/credit_suisse_reiterates_nio_83_price_target_and/)
+- [One of the Bogdanoffs dies and we have the lowest non-holiday trading volume since 2017. Coincidince? I think not.](https://www.reddit.com/r/wallstreetbets/comments/rrkgt9/one_of_the_bogdanoffs_dies_and_we_have_the_lowest/)
+- [US govt after Elon pays $11 billion in taxes](https://www.reddit.com/r/wallstreetbets/comments/rriw7s/us_govt_after_elon_pays_11_billion_in_taxes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
