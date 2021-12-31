@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ignorance turned out bliss for me](https://www.reddit.com/r/wallstreetbets/comments/rrn37i/ignorance_turned_out_bliss_for_me/)
-- [can’t wait to do it again next year](https://www.reddit.com/r/wallstreetbets/comments/rrmc4u/cant_wait_to_do_it_again_next_year/)
-- [Credit Suisse Reiterates NIO $83 Price Target and an Outperform Rating](https://www.reddit.com/r/wallstreetbets/comments/rrleqa/credit_suisse_reiterates_nio_83_price_target_and/)
-- [One of the Bogdanoffs dies and we have the lowest non-holiday trading volume since 2017. Coincidince? I think not.](https://www.reddit.com/r/wallstreetbets/comments/rrkgt9/one_of_the_bogdanoffs_dies_and_we_have_the_lowest/)
-- [US govt after Elon pays $11 billion in taxes](https://www.reddit.com/r/wallstreetbets/comments/rriw7s/us_govt_after_elon_pays_11_billion_in_taxes/)
+- [Melvin Capital rated &quot;The Worst Performing&quot; hedge fund of 2021](https://www.reddit.com/r/wallstreetbets/comments/rsg04w/melvin_capital_rated_the_worst_performing_hedge/)
+- [$BABA Baghodler](https://www.reddit.com/r/wallstreetbets/comments/rsf7ya/baba_baghodler/)
+- [2021 was a tough year](https://www.reddit.com/r/wallstreetbets/comments/rsf2m6/2021_was_a_tough_year/)
+- [Clovtards, Wishtards after todays “jump”](https://www.reddit.com/r/wallstreetbets/comments/rsewj3/clovtards_wishtards_after_todays_jump/)
+- [I bought Nio calls this morning](https://www.reddit.com/r/wallstreetbets/comments/rsd0mo/i_bought_nio_calls_this_morning/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
