@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Melvin Capital rated &quot;The Worst Performing&quot; hedge fund of 2021](https://www.reddit.com/r/wallstreetbets/comments/rsg04w/melvin_capital_rated_the_worst_performing_hedge/)
-- [$BABA Baghodler](https://www.reddit.com/r/wallstreetbets/comments/rsf7ya/baba_baghodler/)
-- [2021 was a tough year](https://www.reddit.com/r/wallstreetbets/comments/rsf2m6/2021_was_a_tough_year/)
-- [Clovtards, Wishtards after todays “jump”](https://www.reddit.com/r/wallstreetbets/comments/rsewj3/clovtards_wishtards_after_todays_jump/)
-- [I bought Nio calls this morning](https://www.reddit.com/r/wallstreetbets/comments/rsd0mo/i_bought_nio_calls_this_morning/)
+- [Meanwhile the S&amp;P did a 25+ return](https://www.reddit.com/r/wallstreetbets/comments/rt582o/meanwhile_the_sp_did_a_25_return/)
+- [Only 3 hedge funds outperformed the S&amp;P 500 in 2021](https://www.reddit.com/r/wallstreetbets/comments/rt4th9/only_3_hedge_funds_outperformed_the_sp_500_in_2021/)
+- [Loss Porn: Finally feel like I belong here.](https://www.reddit.com/r/wallstreetbets/comments/rt4813/loss_porn_finally_feel_like_i_belong_here/)
+- [HAPPY NEW YEAR WSB!! 🥂🥂](https://www.reddit.com/r/wallstreetbets/comments/rt3znr/happy_new_year_wsb/)
+- [My 2022 Resolution: no more gambling. Also me: how about one last 2021 $420,000 TSLA YOLO](https://www.reddit.com/r/wallstreetbets/comments/rt3za1/my_2022_resolution_no_more_gambling_also_me_how/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
