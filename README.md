@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Meanwhile the S&amp;P did a 25+ return](https://www.reddit.com/r/wallstreetbets/comments/rt582o/meanwhile_the_sp_did_a_25_return/)
-- [Only 3 hedge funds outperformed the S&amp;P 500 in 2021](https://www.reddit.com/r/wallstreetbets/comments/rt4th9/only_3_hedge_funds_outperformed_the_sp_500_in_2021/)
-- [Loss Porn: Finally feel like I belong here.](https://www.reddit.com/r/wallstreetbets/comments/rt4813/loss_porn_finally_feel_like_i_belong_here/)
-- [HAPPY NEW YEAR WSB!! 🥂🥂](https://www.reddit.com/r/wallstreetbets/comments/rt3znr/happy_new_year_wsb/)
-- [My 2022 Resolution: no more gambling. Also me: how about one last 2021 $420,000 TSLA YOLO](https://www.reddit.com/r/wallstreetbets/comments/rt3za1/my_2022_resolution_no_more_gambling_also_me_how/)
+- [2021 was a great year!](https://www.reddit.com/r/wallstreetbets/comments/rtua4i/2021_was_a_great_year/)
+- [I almost blew up my Roth IRA this year thanks to this sub. YOLO&#39;d it all into SPY puts last week to make it all back and ended the year up 146% tax free](https://www.reddit.com/r/wallstreetbets/comments/rtu78g/i_almost_blew_up_my_roth_ira_this_year_thanks_to/)
+- [Gentlemen, it’s with great pleasure I announce that..](https://www.reddit.com/r/wallstreetbets/comments/rtu1uh/gentlemen_its_with_great_pleasure_i_announce_that/)
+- [126% return in 2021! Starting from Oct. made around 20 trades and doubled over 3 months! Working on improving consistency and generally thankful to everyone in the group!](https://www.reddit.com/r/wallstreetbets/comments/rtsn9t/126_return_in_2021_starting_from_oct_made_around/)
+- [What’a you 2022 New Years Resolution? After loosing $98k in the market last year I plan to do the opposite this year.](https://www.reddit.com/r/wallstreetbets/comments/rtqibm/whata_you_2022_new_years_resolution_after_loosing/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
