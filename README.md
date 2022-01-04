@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [At least we never have to worry about taxes](https://www.reddit.com/r/wallstreetbets/comments/ruklf3/at_least_we_never_have_to_worry_about_taxes/)
-- [Taxes will always hunt you](https://www.reddit.com/r/wallstreetbets/comments/ruk3qx/taxes_will_always_hunt_you/)
-- [Whoever needs trading advice for 2022. Hmu for too professional assistance for FREE ❗️🙏🏽🤣](https://www.reddit.com/r/wallstreetbets/comments/rujz0e/whoever_needs_trading_advice_for_2022_hmu_for_too/)
-- [What Are Your Moves Tomorrow, January 03, 2022](https://www.reddit.com/r/wallstreetbets/comments/rujaim/what_are_your_moves_tomorrow_january_03_2022/)
-- [😂](https://www.reddit.com/r/wallstreetbets/comments/ruj871/_/)
+- [Average WSB conversation](https://www.reddit.com/r/wallstreetbets/comments/rvfbif/average_wsb_conversation/)
+- [Tesla Short Seller at first day of 2022](https://www.reddit.com/r/wallstreetbets/comments/rve53d/tesla_short_seller_at_first_day_of_2022/)
+- [$2.5M in daily gains to kick off the New Year. Plaid me Elon.](https://www.reddit.com/r/wallstreetbets/comments/rvc8w7/25m_in_daily_gains_to_kick_off_the_new_year_plaid/)
+- [TESLA GAINS!!! In musk we trust 🔋](https://www.reddit.com/r/wallstreetbets/comments/rvc83h/tesla_gains_in_musk_we_trust/)
+- [What Are Your Moves Tomorrow, January 04, 2022](https://www.reddit.com/r/wallstreetbets/comments/rvbwap/what_are_your_moves_tomorrow_january_04_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
