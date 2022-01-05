@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Average WSB conversation](https://www.reddit.com/r/wallstreetbets/comments/rvfbif/average_wsb_conversation/)
-- [Tesla Short Seller at first day of 2022](https://www.reddit.com/r/wallstreetbets/comments/rve53d/tesla_short_seller_at_first_day_of_2022/)
-- [$2.5M in daily gains to kick off the New Year. Plaid me Elon.](https://www.reddit.com/r/wallstreetbets/comments/rvc8w7/25m_in_daily_gains_to_kick_off_the_new_year_plaid/)
-- [TESLA GAINS!!! In musk we trust 🔋](https://www.reddit.com/r/wallstreetbets/comments/rvc83h/tesla_gains_in_musk_we_trust/)
-- [What Are Your Moves Tomorrow, January 04, 2022](https://www.reddit.com/r/wallstreetbets/comments/rvbwap/what_are_your_moves_tomorrow_january_04_2022/)
+- [&quot;Successfully joined wallstreetbets!&quot;](https://www.reddit.com/r/wallstreetbets/comments/rw5g8o/successfully_joined_wallstreetbets/)
+- [What Are Your Moves Tomorrow, January 05, 2022](https://www.reddit.com/r/wallstreetbets/comments/rw4lf0/what_are_your_moves_tomorrow_january_05_2022/)
+- [I traded over 28.6 million dollars in 2021](https://www.reddit.com/r/wallstreetbets/comments/rw3qgq/i_traded_over_286_million_dollars_in_2021/)
+- [&quot;This is a lovely view of....Alcatraz..&quot;](https://www.reddit.com/r/wallstreetbets/comments/rw30av/this_is_a_lovely_view_ofalcatraz/)
+- [For all those posting unrealized gains](https://www.reddit.com/r/wallstreetbets/comments/rw26mf/for_all_those_posting_unrealized_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
