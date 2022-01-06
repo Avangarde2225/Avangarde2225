@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;Successfully joined wallstreetbets!&quot;](https://www.reddit.com/r/wallstreetbets/comments/rw5g8o/successfully_joined_wallstreetbets/)
-- [What Are Your Moves Tomorrow, January 05, 2022](https://www.reddit.com/r/wallstreetbets/comments/rw4lf0/what_are_your_moves_tomorrow_january_05_2022/)
-- [I traded over 28.6 million dollars in 2021](https://www.reddit.com/r/wallstreetbets/comments/rw3qgq/i_traded_over_286_million_dollars_in_2021/)
-- [&quot;This is a lovely view of....Alcatraz..&quot;](https://www.reddit.com/r/wallstreetbets/comments/rw30av/this_is_a_lovely_view_ofalcatraz/)
-- [For all those posting unrealized gains](https://www.reddit.com/r/wallstreetbets/comments/rw26mf/for_all_those_posting_unrealized_gains/)
+- [What&#39;s an exit strategy? $583K loss in my favorite stock &lpar;wife&#39;s account so its ok&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rwz94g/whats_an_exit_strategy_583k_loss_in_my_favorite/)
+- [Bulls preparing dinner tonight - no ramen this time 😔](https://www.reddit.com/r/wallstreetbets/comments/rwxszj/bulls_preparing_dinner_tonight_no_ramen_this_time/)
+- [Loss and Loss](https://www.reddit.com/r/wallstreetbets/comments/rwxmz5/loss_and_loss/)
+- [FREE GUIDE - How to lose 300k and your spouse in 1 second](https://www.reddit.com/r/wallstreetbets/comments/rwxkz1/free_guide_how_to_lose_300k_and_your_spouse_in_1/)
+- [Supposed to go until $0 right? 🥲](https://www.reddit.com/r/wallstreetbets/comments/rwxgkr/supposed_to_go_until_0_right/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
