@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What&#39;s an exit strategy? $583K loss in my favorite stock &lpar;wife&#39;s account so its ok&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rwz94g/whats_an_exit_strategy_583k_loss_in_my_favorite/)
-- [Bulls preparing dinner tonight - no ramen this time 😔](https://www.reddit.com/r/wallstreetbets/comments/rwxszj/bulls_preparing_dinner_tonight_no_ramen_this_time/)
-- [Loss and Loss](https://www.reddit.com/r/wallstreetbets/comments/rwxmz5/loss_and_loss/)
-- [FREE GUIDE - How to lose 300k and your spouse in 1 second](https://www.reddit.com/r/wallstreetbets/comments/rwxkz1/free_guide_how_to_lose_300k_and_your_spouse_in_1/)
-- [Supposed to go until $0 right? 🥲](https://www.reddit.com/r/wallstreetbets/comments/rwxgkr/supposed_to_go_until_0_right/)
+- [In $GME we trust.](https://www.reddit.com/r/wallstreetbets/comments/rxrzl8/in_gme_we_trust/)
+- [30% AH, volatility is back boys](https://www.reddit.com/r/wallstreetbets/comments/rxrxkk/30_ah_volatility_is_back_boys/)
+- [A retard does not choose to trade. He is called to it and he is answered. Increased my position by 200 shares.](https://www.reddit.com/r/wallstreetbets/comments/rxrg8l/a_retard_does_not_choose_to_trade_he_is_called_to/)
+- [Gamestonk](https://www.reddit.com/r/wallstreetbets/comments/rxr9d6/gamestonk/)
+- [Tomorrow prediction](https://www.reddit.com/r/wallstreetbets/comments/rxqumz/tomorrow_prediction/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
