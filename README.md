@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [In $GME we trust.](https://www.reddit.com/r/wallstreetbets/comments/rxrzl8/in_gme_we_trust/)
-- [30% AH, volatility is back boys](https://www.reddit.com/r/wallstreetbets/comments/rxrxkk/30_ah_volatility_is_back_boys/)
-- [A retard does not choose to trade. He is called to it and he is answered. Increased my position by 200 shares.](https://www.reddit.com/r/wallstreetbets/comments/rxrg8l/a_retard_does_not_choose_to_trade_he_is_called_to/)
-- [Gamestonk](https://www.reddit.com/r/wallstreetbets/comments/rxr9d6/gamestonk/)
-- [Tomorrow prediction](https://www.reddit.com/r/wallstreetbets/comments/rxqumz/tomorrow_prediction/)
+- [Bears eating good this weekend](https://www.reddit.com/r/wallstreetbets/comments/ryl0vd/bears_eating_good_this_weekend/)
+- [For those with insane loss porn, how do you cope ?](https://www.reddit.com/r/wallstreetbets/comments/ryjnl5/for_those_with_insane_loss_porn_how_do_you_cope/)
+- [Never has 7% up felt so flat](https://www.reddit.com/r/wallstreetbets/comments/ryi545/never_has_7_up_felt_so_flat/)
+- [Weekend Discussion Thread for the Weekend of January 08, 2022](https://www.reddit.com/r/wallstreetbets/comments/ryi03m/weekend_discussion_thread_for_the_weekend_of/)
+- [GME Yolo 1/7/2022 🚀](https://www.reddit.com/r/wallstreetbets/comments/ryhxyh/gme_yolo_172022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
