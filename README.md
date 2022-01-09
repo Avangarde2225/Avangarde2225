@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bears eating good this weekend](https://www.reddit.com/r/wallstreetbets/comments/ryl0vd/bears_eating_good_this_weekend/)
-- [For those with insane loss porn, how do you cope ?](https://www.reddit.com/r/wallstreetbets/comments/ryjnl5/for_those_with_insane_loss_porn_how_do_you_cope/)
-- [Never has 7% up felt so flat](https://www.reddit.com/r/wallstreetbets/comments/ryi545/never_has_7_up_felt_so_flat/)
-- [Weekend Discussion Thread for the Weekend of January 08, 2022](https://www.reddit.com/r/wallstreetbets/comments/ryi03m/weekend_discussion_thread_for_the_weekend_of/)
-- [GME Yolo 1/7/2022 🚀](https://www.reddit.com/r/wallstreetbets/comments/ryhxyh/gme_yolo_172022/)
+- [Citadel, a U.S. Hedge Fund, Has Account Suspended in China in 2015. Does the CCP have better regulation that the SEC?](https://www.reddit.com/r/wallstreetbets/comments/rzdff8/citadel_a_us_hedge_fund_has_account_suspended_in/)
+- [Passive income revenue stream + investing = infinite money glitch](https://www.reddit.com/r/wallstreetbets/comments/rzbcvw/passive_income_revenue_stream_investing_infinite/)
+- [Sometimes it be like that](https://www.reddit.com/r/wallstreetbets/comments/rzbbb5/sometimes_it_be_like_that/)
+- [I found phase two of Bank Run guy’s Flawless Plan](https://www.reddit.com/r/wallstreetbets/comments/rzb99c/i_found_phase_two_of_bank_run_guys_flawless_plan/)
+- [Finally used my GME gains. Bought a 2018 M3 CS. Thanks WSB :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rz9te8/finally_used_my_gme_gains_bought_a_2018_m3_cs/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
