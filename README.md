@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Citadel, a U.S. Hedge Fund, Has Account Suspended in China in 2015. Does the CCP have better regulation that the SEC?](https://www.reddit.com/r/wallstreetbets/comments/rzdff8/citadel_a_us_hedge_fund_has_account_suspended_in/)
-- [Passive income revenue stream + investing = infinite money glitch](https://www.reddit.com/r/wallstreetbets/comments/rzbcvw/passive_income_revenue_stream_investing_infinite/)
-- [Sometimes it be like that](https://www.reddit.com/r/wallstreetbets/comments/rzbbb5/sometimes_it_be_like_that/)
-- [I found phase two of Bank Run guy’s Flawless Plan](https://www.reddit.com/r/wallstreetbets/comments/rzb99c/i_found_phase_two_of_bank_run_guys_flawless_plan/)
-- [Finally used my GME gains. Bought a 2018 M3 CS. Thanks WSB :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/rz9te8/finally_used_my_gme_gains_bought_a_2018_m3_cs/)
+- [Who did this to Vlad?](https://www.reddit.com/r/wallstreetbets/comments/s05k0b/who_did_this_to_vlad/)
+- [Still trying to figure out what John Deere has to do with space exploration](https://www.reddit.com/r/wallstreetbets/comments/s053v9/still_trying_to_figure_out_what_john_deere_has_to/)
+- [One of the greatest CEOs of our generation.](https://www.reddit.com/r/wallstreetbets/comments/s052qs/one_of_the_greatest_ceos_of_our_generation/)
+- [when my portfolio is down 50% and SEC still hasn&#39;t stepped in](https://www.reddit.com/r/wallstreetbets/comments/s030ks/when_my_portfolio_is_down_50_and_sec_still_hasnt/)
+- [Can I keep buying full insurance on a car, crash it, get another car with full insurance, and then short both the manufacturer and the insurance company as they will run out of cash?](https://www.reddit.com/r/wallstreetbets/comments/s02n57/can_i_keep_buying_full_insurance_on_a_car_crash/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
