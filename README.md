@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Who did this to Vlad?](https://www.reddit.com/r/wallstreetbets/comments/s05k0b/who_did_this_to_vlad/)
-- [Still trying to figure out what John Deere has to do with space exploration](https://www.reddit.com/r/wallstreetbets/comments/s053v9/still_trying_to_figure_out_what_john_deere_has_to/)
-- [One of the greatest CEOs of our generation.](https://www.reddit.com/r/wallstreetbets/comments/s052qs/one_of_the_greatest_ceos_of_our_generation/)
-- [when my portfolio is down 50% and SEC still hasn&#39;t stepped in](https://www.reddit.com/r/wallstreetbets/comments/s030ks/when_my_portfolio_is_down_50_and_sec_still_hasnt/)
-- [Can I keep buying full insurance on a car, crash it, get another car with full insurance, and then short both the manufacturer and the insurance company as they will run out of cash?](https://www.reddit.com/r/wallstreetbets/comments/s02n57/can_i_keep_buying_full_insurance_on_a_car_crash/)
+- [You’re goddamn right!](https://www.reddit.com/r/wallstreetbets/comments/s0xsm4/youre_goddamn_right/)
+- [Nancy Pelosi’s porfolio is directly correlated to the height of her eyebrows.](https://www.reddit.com/r/wallstreetbets/comments/s0xink/nancy_pelosis_porfolio_is_directly_correlated_to/)
+- [Super Bullish on this stock. #YOLO. #DD](https://www.reddit.com/r/wallstreetbets/comments/s0w85z/super_bullish_on_this_stock_yolo_dd/)
+- [Tale of two bears 🐻🐻](https://www.reddit.com/r/wallstreetbets/comments/s0uq5v/tale_of_two_bears/)
+- [GME YOLO 🚀 1/10/2022](https://www.reddit.com/r/wallstreetbets/comments/s0ujs8/gme_yolo_1102022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
