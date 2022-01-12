@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You’re goddamn right!](https://www.reddit.com/r/wallstreetbets/comments/s0xsm4/youre_goddamn_right/)
-- [Nancy Pelosi’s porfolio is directly correlated to the height of her eyebrows.](https://www.reddit.com/r/wallstreetbets/comments/s0xink/nancy_pelosis_porfolio_is_directly_correlated_to/)
-- [Super Bullish on this stock. #YOLO. #DD](https://www.reddit.com/r/wallstreetbets/comments/s0w85z/super_bullish_on_this_stock_yolo_dd/)
-- [Tale of two bears 🐻🐻](https://www.reddit.com/r/wallstreetbets/comments/s0uq5v/tale_of_two_bears/)
-- [GME YOLO 🚀 1/10/2022](https://www.reddit.com/r/wallstreetbets/comments/s0ujs8/gme_yolo_1102022/)
+- [We survived the 4 day bear market](https://www.reddit.com/r/wallstreetbets/comments/s1on2v/we_survived_the_4_day_bear_market/)
+- [Bears after thinking the bubble was finally bursting yesterday and then being broke today 🏳️‍🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/s1nw1p/bears_after_thinking_the_bubble_was_finally/)
+- [The struggle is real...](https://www.reddit.com/r/wallstreetbets/comments/s1nvfm/the_struggle_is_real/)
+- [Is it just me that goes straight to the charts to check it out?](https://www.reddit.com/r/wallstreetbets/comments/s1nsjw/is_it_just_me_that_goes_straight_to_the_charts_to/)
+- [Heard you guys like loss porn](https://www.reddit.com/r/wallstreetbets/comments/s1nket/heard_you_guys_like_loss_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
