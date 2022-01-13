@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We survived the 4 day bear market](https://www.reddit.com/r/wallstreetbets/comments/s1on2v/we_survived_the_4_day_bear_market/)
-- [Bears after thinking the bubble was finally bursting yesterday and then being broke today 🏳️‍🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/s1nw1p/bears_after_thinking_the_bubble_was_finally/)
-- [The struggle is real...](https://www.reddit.com/r/wallstreetbets/comments/s1nvfm/the_struggle_is_real/)
-- [Is it just me that goes straight to the charts to check it out?](https://www.reddit.com/r/wallstreetbets/comments/s1nsjw/is_it_just_me_that_goes_straight_to_the_charts_to/)
-- [Heard you guys like loss porn](https://www.reddit.com/r/wallstreetbets/comments/s1nket/heard_you_guys_like_loss_porn/)
+- [The Wall St Mentality](https://www.reddit.com/r/wallstreetbets/comments/s2j75i/the_wall_st_mentality/)
+- [$AMC CEO Aron sells another 312,500 shares](https://www.reddit.com/r/wallstreetbets/comments/s2ilqv/amc_ceo_aron_sells_another_312500_shares/)
+- [Holding strong my GME](https://www.reddit.com/r/wallstreetbets/comments/s2hecj/holding_strong_my_gme/)
+- [Friendly reminder](https://www.reddit.com/r/wallstreetbets/comments/s2h9yd/friendly_reminder/)
+- [Just got this last night after deciding to 5x my GME position. It could be good...or very bad](https://www.reddit.com/r/wallstreetbets/comments/s2gstw/just_got_this_last_night_after_deciding_to_5x_my/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
