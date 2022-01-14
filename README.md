@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Wall St Mentality](https://www.reddit.com/r/wallstreetbets/comments/s2j75i/the_wall_st_mentality/)
-- [$AMC CEO Aron sells another 312,500 shares](https://www.reddit.com/r/wallstreetbets/comments/s2ilqv/amc_ceo_aron_sells_another_312500_shares/)
-- [Holding strong my GME](https://www.reddit.com/r/wallstreetbets/comments/s2hecj/holding_strong_my_gme/)
-- [Friendly reminder](https://www.reddit.com/r/wallstreetbets/comments/s2h9yd/friendly_reminder/)
-- [Just got this last night after deciding to 5x my GME position. It could be good...or very bad](https://www.reddit.com/r/wallstreetbets/comments/s2gstw/just_got_this_last_night_after_deciding_to_5x_my/)
+- [Cathie Wood says: thank you, come again](https://www.reddit.com/r/wallstreetbets/comments/s3cwct/cathie_wood_says_thank_you_come_again/)
+- [Max out all credit card balance transfer just to lose it all in one day, thanks to tesla call](https://www.reddit.com/r/wallstreetbets/comments/s3avd4/max_out_all_credit_card_balance_transfer_just_to/)
+- [POV: You are Ryan Cohen](https://www.reddit.com/r/wallstreetbets/comments/s3aje0/pov_you_are_ryan_cohen/)
+- [Revenge of the 🌈🐻s](https://www.reddit.com/r/wallstreetbets/comments/s3a9b2/revenge_of_the_s/)
+- [last time i swear](https://www.reddit.com/r/wallstreetbets/comments/s3a53r/last_time_i_swear/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
