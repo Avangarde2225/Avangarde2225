@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cathie Wood says: thank you, come again](https://www.reddit.com/r/wallstreetbets/comments/s3cwct/cathie_wood_says_thank_you_come_again/)
-- [Max out all credit card balance transfer just to lose it all in one day, thanks to tesla call](https://www.reddit.com/r/wallstreetbets/comments/s3avd4/max_out_all_credit_card_balance_transfer_just_to/)
-- [POV: You are Ryan Cohen](https://www.reddit.com/r/wallstreetbets/comments/s3aje0/pov_you_are_ryan_cohen/)
-- [Revenge of the 🌈🐻s](https://www.reddit.com/r/wallstreetbets/comments/s3a9b2/revenge_of_the_s/)
-- [last time i swear](https://www.reddit.com/r/wallstreetbets/comments/s3a53r/last_time_i_swear/)
+- [OH BOY HERE WE GO AGAIN](https://www.reddit.com/r/wallstreetbets/comments/s45z0m/oh_boy_here_we_go_again/)
+- [True Story](https://www.reddit.com/r/wallstreetbets/comments/s45m5i/true_story/)
+- [GME YOLO 🚀 1/14/2022](https://www.reddit.com/r/wallstreetbets/comments/s44ukg/gme_yolo_1142022/)
+- [Remember when we thought this guy would do something to make the markets more fair?](https://www.reddit.com/r/wallstreetbets/comments/s43hng/remember_when_we_thought_this_guy_would_do/)
+- [Weekend Discussion Thread for the Weekend of January 15, 2022](https://www.reddit.com/r/wallstreetbets/comments/s42gw0/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
