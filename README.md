@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [OH BOY HERE WE GO AGAIN](https://www.reddit.com/r/wallstreetbets/comments/s45z0m/oh_boy_here_we_go_again/)
-- [True Story](https://www.reddit.com/r/wallstreetbets/comments/s45m5i/true_story/)
-- [GME YOLO 🚀 1/14/2022](https://www.reddit.com/r/wallstreetbets/comments/s44ukg/gme_yolo_1142022/)
-- [Remember when we thought this guy would do something to make the markets more fair?](https://www.reddit.com/r/wallstreetbets/comments/s43hng/remember_when_we_thought_this_guy_would_do/)
-- [Weekend Discussion Thread for the Weekend of January 15, 2022](https://www.reddit.com/r/wallstreetbets/comments/s42gw0/weekend_discussion_thread_for_the_weekend_of/)
+- [Only -11% more to go ladies and gentlemen :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/s4wq3j/only_11_more_to_go_ladies_and_gentlemen/)
+- [Did someone say housing bubble?](https://www.reddit.com/r/wallstreetbets/comments/s4w2cz/did_someone_say_housing_bubble/)
+- [Drove past a beautiful scene this morning…](https://www.reddit.com/r/wallstreetbets/comments/s4vjht/drove_past_a_beautiful_scene_this_morning/)
+- [Anyone else getting pre-approved for massive loans in the mail?](https://www.reddit.com/r/wallstreetbets/comments/s4td56/anyone_else_getting_preapproved_for_massive_loans/)
+- [Pepe Lynch says - &quot;buy $SARK&quot;](https://www.reddit.com/r/wallstreetbets/comments/s4t5p6/pepe_lynch_says_buy_sark/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
