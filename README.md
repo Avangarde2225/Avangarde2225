@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [😂😂😂](https://www.reddit.com/r/wallstreetbets/comments/s6i1ze/_/)
-- [The irony is lost on them...](https://www.reddit.com/r/wallstreetbets/comments/s6fnl2/the_irony_is_lost_on_them/)
-- [Make sure to wear before going into options](https://www.reddit.com/r/wallstreetbets/comments/s6fisd/make_sure_to_wear_before_going_into_options/)
-- [Just saying...](https://www.reddit.com/r/wallstreetbets/comments/s6eyft/just_saying/)
-- [Sexy is good but have you ever lost 3 years of your pay?](https://www.reddit.com/r/wallstreetbets/comments/s6etj2/sexy_is_good_but_have_you_ever_lost_3_years_of/)
+- [How it feels waiting for the dip to stop dipping](https://www.reddit.com/r/wallstreetbets/comments/s7b47v/how_it_feels_waiting_for_the_dip_to_stop_dipping/)
+- [I did not see that coming!](https://www.reddit.com/r/wallstreetbets/comments/s7ar56/i_did_not_see_that_coming/)
+- [C’mon $SONY, acquire something](https://www.reddit.com/r/wallstreetbets/comments/s79ej3/cmon_sony_acquire_something/)
+- [POPULAR OPINION: GME is going to 3x by mid Feb](https://www.reddit.com/r/wallstreetbets/comments/s78e5s/popular_opinion_gme_is_going_to_3x_by_mid_feb/)
+- [What Are Your Moves Tomorrow, January 19, 2022](https://www.reddit.com/r/wallstreetbets/comments/s77qrf/what_are_your_moves_tomorrow_january_19_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
