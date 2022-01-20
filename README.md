@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How it feels waiting for the dip to stop dipping](https://www.reddit.com/r/wallstreetbets/comments/s7b47v/how_it_feels_waiting_for_the_dip_to_stop_dipping/)
-- [I did not see that coming!](https://www.reddit.com/r/wallstreetbets/comments/s7ar56/i_did_not_see_that_coming/)
-- [C’mon $SONY, acquire something](https://www.reddit.com/r/wallstreetbets/comments/s79ej3/cmon_sony_acquire_something/)
-- [POPULAR OPINION: GME is going to 3x by mid Feb](https://www.reddit.com/r/wallstreetbets/comments/s78e5s/popular_opinion_gme_is_going_to_3x_by_mid_feb/)
-- [What Are Your Moves Tomorrow, January 19, 2022](https://www.reddit.com/r/wallstreetbets/comments/s77qrf/what_are_your_moves_tomorrow_january_19_2022/)
+- [I want that pen](https://www.reddit.com/r/wallstreetbets/comments/s83vrd/i_want_that_pen/)
+- [Market looking for the bottom.](https://www.reddit.com/r/wallstreetbets/comments/s81yvc/market_looking_for_the_bottom/)
+- [Buy the dip](https://www.reddit.com/r/wallstreetbets/comments/s81jpt/buy_the_dip/)
+- [Not my money...](https://www.reddit.com/r/wallstreetbets/comments/s81iw5/not_my_money/)
+- [Degenerate Autists vs Institution Retards: Who Will Win?](https://www.reddit.com/r/wallstreetbets/comments/s81c8n/degenerate_autists_vs_institution_retards_who/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
