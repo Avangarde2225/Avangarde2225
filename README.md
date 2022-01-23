@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This past week](https://www.reddit.com/r/wallstreetbets/comments/s9mhz9/this_past_week/)
-- [GME YOLO 🚀 1/21/2022 The Warpath Begins..](https://www.reddit.com/r/wallstreetbets/comments/s9l5w4/gme_yolo_1212022_the_warpath_begins/)
-- [Weekend Discussion Thread for the Weekend of January 22, 2022](https://www.reddit.com/r/wallstreetbets/comments/s9kt45/weekend_discussion_thread_for_the_weekend_of/)
-- [Congrats and fuck each and every one of you.](https://www.reddit.com/r/wallstreetbets/comments/s9ka2e/congrats_and_fuck_each_and_every_one_of_you/)
-- [Follow-up on the girl who exercised 10 call options and was down 50%](https://www.reddit.com/r/wallstreetbets/comments/s9jnhi/followup_on_the_girl_who_exercised_10_call/)
+- [🚀](https://www.reddit.com/r/wallstreetbets/comments/sae688/_/)
+- [You know what this means. LFG🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/sadzus/you_know_what_this_means_lfg/)
+- [I’d like to thank everyone here for all their stock advice. It has helped to make me the man I am today.](https://www.reddit.com/r/wallstreetbets/comments/sacfu4/id_like_to_thank_everyone_here_for_all_their/)
+- [What time is it bulls and bears ?](https://www.reddit.com/r/wallstreetbets/comments/sacf3h/what_time_is_it_bulls_and_bears/)
+- [Gonna be a wild earnings week. Whats your play?](https://www.reddit.com/r/wallstreetbets/comments/sabbx1/gonna_be_a_wild_earnings_week_whats_your_play/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
