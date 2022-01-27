@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You know at what time are FED results expected?](https://www.reddit.com/r/wallstreetbets/comments/scprvk/you_know_at_what_time_are_fed_results_expected/)
-- [I start on Friday guys](https://www.reddit.com/r/wallstreetbets/comments/scp3ls/i_start_on_friday_guys/)
-- [Yes sir I did](https://www.reddit.com/r/wallstreetbets/comments/scosc4/yes_sir_i_did/)
-- [Will we see an economic crisis that will dwarf 08’?](https://www.reddit.com/r/wallstreetbets/comments/scolzb/will_we_see_an_economic_crisis_that_will_dwarf_08/)
-- [Sounds about right](https://www.reddit.com/r/wallstreetbets/comments/scocxt/sounds_about_right/)
+- [I haven’t seen a meltdown like this since 2007](https://www.reddit.com/r/wallstreetbets/comments/sdivml/i_havent_seen_a_meltdown_like_this_since_2007/)
+- [Today was a hell of a year.](https://www.reddit.com/r/wallstreetbets/comments/sdh064/today_was_a_hell_of_a_year/)
+- [ARKK before vs ARKK now](https://www.reddit.com/r/wallstreetbets/comments/sdgxez/arkk_before_vs_arkk_now/)
+- [What Are Your Moves Tomorrow, January 27, 2022](https://www.reddit.com/r/wallstreetbets/comments/sdgahh/what_are_your_moves_tomorrow_january_27_2022/)
+- [Young Cathie Wood pictures are not priced into ARKK. Bullish!](https://www.reddit.com/r/wallstreetbets/comments/sdg7lm/young_cathie_wood_pictures_are_not_priced_into/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
