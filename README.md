@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I haven’t seen a meltdown like this since 2007](https://www.reddit.com/r/wallstreetbets/comments/sdivml/i_havent_seen_a_meltdown_like_this_since_2007/)
-- [Today was a hell of a year.](https://www.reddit.com/r/wallstreetbets/comments/sdh064/today_was_a_hell_of_a_year/)
-- [ARKK before vs ARKK now](https://www.reddit.com/r/wallstreetbets/comments/sdgxez/arkk_before_vs_arkk_now/)
-- [What Are Your Moves Tomorrow, January 27, 2022](https://www.reddit.com/r/wallstreetbets/comments/sdgahh/what_are_your_moves_tomorrow_january_27_2022/)
-- [Young Cathie Wood pictures are not priced into ARKK. Bullish!](https://www.reddit.com/r/wallstreetbets/comments/sdg7lm/young_cathie_wood_pictures_are_not_priced_into/)
+- [Oh Vlad, when will you learn 📉](https://www.reddit.com/r/wallstreetbets/comments/seaal2/oh_vlad_when_will_you_learn/)
+- [Hood tanks 15% on anniversary of removing buy button](https://www.reddit.com/r/wallstreetbets/comments/sea73h/hood_tanks_15_on_anniversary_of_removing_buy/)
+- [Breaking 🚨](https://www.reddit.com/r/wallstreetbets/comments/se9j48/breaking/)
+- [Im in danger](https://www.reddit.com/r/wallstreetbets/comments/se8v87/im_in_danger/)
+- [$Hood will take u back to the hood](https://www.reddit.com/r/wallstreetbets/comments/se8pbv/hood_will_take_u_back_to_the_hood/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
