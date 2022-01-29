@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Oh Vlad, when will you learn 📉](https://www.reddit.com/r/wallstreetbets/comments/seaal2/oh_vlad_when_will_you_learn/)
-- [Hood tanks 15% on anniversary of removing buy button](https://www.reddit.com/r/wallstreetbets/comments/sea73h/hood_tanks_15_on_anniversary_of_removing_buy/)
-- [Breaking 🚨](https://www.reddit.com/r/wallstreetbets/comments/se9j48/breaking/)
-- [Im in danger](https://www.reddit.com/r/wallstreetbets/comments/se8v87/im_in_danger/)
-- [$Hood will take u back to the hood](https://www.reddit.com/r/wallstreetbets/comments/se8pbv/hood_will_take_u_back_to_the_hood/)
+- [The market blessed us today](https://www.reddit.com/r/wallstreetbets/comments/sf2wbh/the_market_blessed_us_today/)
+- [My strategy right now](https://www.reddit.com/r/wallstreetbets/comments/sf2hso/my_strategy_right_now/)
+- [Happy Anniversary GME Gang!](https://www.reddit.com/r/wallstreetbets/comments/sf2h2x/happy_anniversary_gme_gang/)
+- [A strategy that never misses](https://www.reddit.com/r/wallstreetbets/comments/sf26ah/a_strategy_that_never_misses/)
+- [I called it. 🌈 🐻 Didn&#39;t believe in Tim Apple.](https://www.reddit.com/r/wallstreetbets/comments/sf2194/i_called_it_didnt_believe_in_tim_apple/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
