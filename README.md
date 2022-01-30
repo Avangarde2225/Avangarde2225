@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The market blessed us today](https://www.reddit.com/r/wallstreetbets/comments/sf2wbh/the_market_blessed_us_today/)
-- [My strategy right now](https://www.reddit.com/r/wallstreetbets/comments/sf2hso/my_strategy_right_now/)
-- [Happy Anniversary GME Gang!](https://www.reddit.com/r/wallstreetbets/comments/sf2h2x/happy_anniversary_gme_gang/)
-- [A strategy that never misses](https://www.reddit.com/r/wallstreetbets/comments/sf26ah/a_strategy_that_never_misses/)
-- [I called it. 🌈 🐻 Didn&#39;t believe in Tim Apple.](https://www.reddit.com/r/wallstreetbets/comments/sf2194/i_called_it_didnt_believe_in_tim_apple/)
+- [Retardation runs in my family](https://www.reddit.com/r/wallstreetbets/comments/sfszi2/retardation_runs_in_my_family/)
+- [How the average WSB trader actually pick their stock choices](https://www.reddit.com/r/wallstreetbets/comments/sfr936/how_the_average_wsb_trader_actually_pick_their/)
+- [FBI has just released updated files on Bigfoot](https://www.reddit.com/r/wallstreetbets/comments/sfqvla/fbi_has_just_released_updated_files_on_bigfoot/)
+- [Federal court dismisses lawsuit against Robinhood for restricting &#39;meme stock&#39; trades](https://www.reddit.com/r/wallstreetbets/comments/sfqulg/federal_court_dismisses_lawsuit_against_robinhood/)
+- [Ok thanks but no thanks](https://www.reddit.com/r/wallstreetbets/comments/sfqiw6/ok_thanks_but_no_thanks/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
