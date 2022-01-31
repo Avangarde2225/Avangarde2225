@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Retardation runs in my family](https://www.reddit.com/r/wallstreetbets/comments/sfszi2/retardation_runs_in_my_family/)
-- [How the average WSB trader actually pick their stock choices](https://www.reddit.com/r/wallstreetbets/comments/sfr936/how_the_average_wsb_trader_actually_pick_their/)
-- [FBI has just released updated files on Bigfoot](https://www.reddit.com/r/wallstreetbets/comments/sfqvla/fbi_has_just_released_updated_files_on_bigfoot/)
-- [Federal court dismisses lawsuit against Robinhood for restricting &#39;meme stock&#39; trades](https://www.reddit.com/r/wallstreetbets/comments/sfqulg/federal_court_dismisses_lawsuit_against_robinhood/)
-- [Ok thanks but no thanks](https://www.reddit.com/r/wallstreetbets/comments/sfqiw6/ok_thanks_but_no_thanks/)
+- [El clasico🤣](https://www.reddit.com/r/wallstreetbets/comments/sgmf0q/el_clasico/)
+- [Drip 💧](https://www.reddit.com/r/wallstreetbets/comments/sgku4h/drip/)
+- [Tesla accused of inflating sales numbers in Australia days after registration data released](https://www.reddit.com/r/wallstreetbets/comments/sgjhe2/tesla_accused_of_inflating_sales_numbers_in/)
+- [What Are Your Moves Tomorrow, January 31, 2022](https://www.reddit.com/r/wallstreetbets/comments/sgit7h/what_are_your_moves_tomorrow_january_31_2022/)
+- [Chad Money: Season 2, Episode 3](https://www.reddit.com/r/wallstreetbets/comments/sgimjr/chad_money_season_2_episode_3/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
