@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [El clasico🤣](https://www.reddit.com/r/wallstreetbets/comments/sgmf0q/el_clasico/)
-- [Drip 💧](https://www.reddit.com/r/wallstreetbets/comments/sgku4h/drip/)
-- [Tesla accused of inflating sales numbers in Australia days after registration data released](https://www.reddit.com/r/wallstreetbets/comments/sgjhe2/tesla_accused_of_inflating_sales_numbers_in/)
-- [What Are Your Moves Tomorrow, January 31, 2022](https://www.reddit.com/r/wallstreetbets/comments/sgit7h/what_are_your_moves_tomorrow_january_31_2022/)
-- [Chad Money: Season 2, Episode 3](https://www.reddit.com/r/wallstreetbets/comments/sgimjr/chad_money_season_2_episode_3/)
+- [January 31, 2022](https://www.reddit.com/r/wallstreetbets/comments/shgng8/january_31_2022/)
+- [GME is about to pop 40% at least. Here’s why it literally can’t go tits up.](https://www.reddit.com/r/wallstreetbets/comments/shf4sz/gme_is_about_to_pop_40_at_least_heres_why_it/)
+- [Warren Buffett with the heat](https://www.reddit.com/r/wallstreetbets/comments/she5cc/warren_buffett_with_the_heat/)
+- [Launching a free inverse Jim Cramer tracker](https://www.reddit.com/r/wallstreetbets/comments/shdz9z/launching_a_free_inverse_jim_cramer_tracker/)
+- [The Space Force is decommissioning its &quot;Joint System Command&quot; platform and is starting an agile development software program called Space C2, that relies on a commercial data analytics platform named Warp Core, provided by Palantir.](https://www.reddit.com/r/wallstreetbets/comments/shdsck/the_space_force_is_decommissioning_its_joint/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
