@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [January 31, 2022](https://www.reddit.com/r/wallstreetbets/comments/shgng8/january_31_2022/)
-- [GME is about to pop 40% at least. Here’s why it literally can’t go tits up.](https://www.reddit.com/r/wallstreetbets/comments/shf4sz/gme_is_about_to_pop_40_at_least_heres_why_it/)
-- [Warren Buffett with the heat](https://www.reddit.com/r/wallstreetbets/comments/she5cc/warren_buffett_with_the_heat/)
-- [Launching a free inverse Jim Cramer tracker](https://www.reddit.com/r/wallstreetbets/comments/shdz9z/launching_a_free_inverse_jim_cramer_tracker/)
-- [The Space Force is decommissioning its &quot;Joint System Command&quot; platform and is starting an agile development software program called Space C2, that relies on a commercial data analytics platform named Warp Core, provided by Palantir.](https://www.reddit.com/r/wallstreetbets/comments/shdsck/the_space_force_is_decommissioning_its_joint/)
+- [Buy reddit, save reddit](https://www.reddit.com/r/wallstreetbets/comments/si9mu1/buy_reddit_save_reddit/)
+- [Infinite money glitch &lpar;real&rpar;](https://www.reddit.com/r/wallstreetbets/comments/si9c9s/infinite_money_glitch_real/)
+- [Congratulations to Nancy Pelosi who bought a ton of call options on Google at the end of last year 🚀🚀🚀😎](https://www.reddit.com/r/wallstreetbets/comments/si90fb/congratulations_to_nancy_pelosi_who_bought_a_ton/)
+- [AMD YOLO - Threw $580k into call options today. AMD up 10% AH on solid ER.](https://www.reddit.com/r/wallstreetbets/comments/si8sa6/amd_yolo_threw_580k_into_call_options_today_amd/)
+- [OOPS!!! PayPal stock plunges on weak earnings guidance](https://www.reddit.com/r/wallstreetbets/comments/si7h9n/oops_paypal_stock_plunges_on_weak_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
