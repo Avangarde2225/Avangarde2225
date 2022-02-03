@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Buy reddit, save reddit](https://www.reddit.com/r/wallstreetbets/comments/si9mu1/buy_reddit_save_reddit/)
-- [Infinite money glitch &lpar;real&rpar;](https://www.reddit.com/r/wallstreetbets/comments/si9c9s/infinite_money_glitch_real/)
-- [Congratulations to Nancy Pelosi who bought a ton of call options on Google at the end of last year 🚀🚀🚀😎](https://www.reddit.com/r/wallstreetbets/comments/si90fb/congratulations_to_nancy_pelosi_who_bought_a_ton/)
-- [AMD YOLO - Threw $580k into call options today. AMD up 10% AH on solid ER.](https://www.reddit.com/r/wallstreetbets/comments/si8sa6/amd_yolo_threw_580k_into_call_options_today_amd/)
-- [OOPS!!! PayPal stock plunges on weak earnings guidance](https://www.reddit.com/r/wallstreetbets/comments/si7h9n/oops_paypal_stock_plunges_on_weak_earnings/)
+- [AMD $8K -&gt; $20K on earnings](https://www.reddit.com/r/wallstreetbets/comments/sj2eu7/amd_8k_20k_on_earnings/)
+- [Amazon Insiders Selling, After FB I&#39;d expect a mediocre Amazon Earnings Report Thurs](https://www.reddit.com/r/wallstreetbets/comments/sj22ej/amazon_insiders_selling_after_fb_id_expect_a/)
+- [Anyone else digging the new text-only WSB?](https://www.reddit.com/r/wallstreetbets/comments/sj210e/anyone_else_digging_the_new_textonly_wsb/)
+- [Paging Mark Zuckerberg: we know you’re out there. Post your loss porn.](https://www.reddit.com/r/wallstreetbets/comments/sj1pby/paging_mark_zuckerberg_we_know_youre_out_there/)
+- [Meta Dip Worth Buying?](https://www.reddit.com/r/wallstreetbets/comments/sj0w0s/meta_dip_worth_buying/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
