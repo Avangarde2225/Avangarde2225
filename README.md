@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMD $8K -&gt; $20K on earnings](https://www.reddit.com/r/wallstreetbets/comments/sj2eu7/amd_8k_20k_on_earnings/)
-- [Amazon Insiders Selling, After FB I&#39;d expect a mediocre Amazon Earnings Report Thurs](https://www.reddit.com/r/wallstreetbets/comments/sj22ej/amazon_insiders_selling_after_fb_id_expect_a/)
-- [Anyone else digging the new text-only WSB?](https://www.reddit.com/r/wallstreetbets/comments/sj210e/anyone_else_digging_the_new_textonly_wsb/)
-- [Paging Mark Zuckerberg: we know you’re out there. Post your loss porn.](https://www.reddit.com/r/wallstreetbets/comments/sj1pby/paging_mark_zuckerberg_we_know_youre_out_there/)
-- [Meta Dip Worth Buying?](https://www.reddit.com/r/wallstreetbets/comments/sj0w0s/meta_dip_worth_buying/)
+- [Big thank you to the mods.](https://www.reddit.com/r/wallstreetbets/comments/sjyn3q/big_thank_you_to_the_mods/)
+- [FB - Please realize that one of the major reasons FB stonk fell soo far is because they won&#39;t be able to make as much money off of you due to new Apple privacy measures... just think about that.](https://www.reddit.com/r/wallstreetbets/comments/sjxclk/fb_please_realize_that_one_of_the_major_reasons/)
+- [Zuckerberg cries after earnings](https://www.reddit.com/r/wallstreetbets/comments/sjw4xt/zuckerberg_cries_after_earnings/)
+- [2/3 SPY: did Amazon just played the reverse card?](https://www.reddit.com/r/wallstreetbets/comments/sjv7xk/23_spy_did_amazon_just_played_the_reverse_card/)
+- [Snap shows first-ever quarterly net profit, stock pops 39%](https://www.reddit.com/r/wallstreetbets/comments/sjuqp9/snap_shows_firstever_quarterly_net_profit_stock/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
