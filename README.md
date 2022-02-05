@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Big thank you to the mods.](https://www.reddit.com/r/wallstreetbets/comments/sjyn3q/big_thank_you_to_the_mods/)
-- [FB - Please realize that one of the major reasons FB stonk fell soo far is because they won&#39;t be able to make as much money off of you due to new Apple privacy measures... just think about that.](https://www.reddit.com/r/wallstreetbets/comments/sjxclk/fb_please_realize_that_one_of_the_major_reasons/)
-- [Zuckerberg cries after earnings](https://www.reddit.com/r/wallstreetbets/comments/sjw4xt/zuckerberg_cries_after_earnings/)
-- [2/3 SPY: did Amazon just played the reverse card?](https://www.reddit.com/r/wallstreetbets/comments/sjv7xk/23_spy_did_amazon_just_played_the_reverse_card/)
-- [Snap shows first-ever quarterly net profit, stock pops 39%](https://www.reddit.com/r/wallstreetbets/comments/sjuqp9/snap_shows_firstever_quarterly_net_profit_stock/)
+- [This guy gets it](https://www.reddit.com/r/wallstreetbets/comments/skrvm1/this_guy_gets_it/)
+- [🐂](https://www.reddit.com/r/wallstreetbets/comments/skrt5m/_/)
+- [He just likes the stock!](https://www.reddit.com/r/wallstreetbets/comments/skqu7t/he_just_likes_the_stock/)
+- [When my accountant is doing my taxes and asks how I lost money trading in the bull market that was 2021](https://www.reddit.com/r/wallstreetbets/comments/skqadd/when_my_accountant_is_doing_my_taxes_and_asks_how/)
+- [Ape in the Wild &lpar;Seen in NYC-Mods stop removing my OC&rpar;](https://www.reddit.com/r/wallstreetbets/comments/skpz23/ape_in_the_wild_seen_in_nycmods_stop_removing_my/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
