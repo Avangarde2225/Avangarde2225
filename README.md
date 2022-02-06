@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This guy gets it](https://www.reddit.com/r/wallstreetbets/comments/skrvm1/this_guy_gets_it/)
-- [🐂](https://www.reddit.com/r/wallstreetbets/comments/skrt5m/_/)
-- [He just likes the stock!](https://www.reddit.com/r/wallstreetbets/comments/skqu7t/he_just_likes_the_stock/)
-- [When my accountant is doing my taxes and asks how I lost money trading in the bull market that was 2021](https://www.reddit.com/r/wallstreetbets/comments/skqadd/when_my_accountant_is_doing_my_taxes_and_asks_how/)
-- [Ape in the Wild &lpar;Seen in NYC-Mods stop removing my OC&rpar;](https://www.reddit.com/r/wallstreetbets/comments/skpz23/ape_in_the_wild_seen_in_nycmods_stop_removing_my/)
+- [The four horsemen of “sell that stock immediately”](https://www.reddit.com/r/wallstreetbets/comments/slj3si/the_four_horsemen_of_sell_that_stock_immediately/)
+- [CALLS ON CHICKEN CONFIRMED](https://www.reddit.com/r/wallstreetbets/comments/slhx1n/calls_on_chicken_confirmed/)
+- [Bears flexing on their start to 2022](https://www.reddit.com/r/wallstreetbets/comments/slgkra/bears_flexing_on_their_start_to_2022/)
+- [Elon is meme God](https://www.reddit.com/r/wallstreetbets/comments/slgiup/elon_is_meme_god/)
+- [This thread when everyone starts buying Puts](https://www.reddit.com/r/wallstreetbets/comments/slfu4k/this_thread_when_everyone_starts_buying_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
