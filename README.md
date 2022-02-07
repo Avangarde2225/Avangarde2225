@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The four horsemen of “sell that stock immediately”](https://www.reddit.com/r/wallstreetbets/comments/slj3si/the_four_horsemen_of_sell_that_stock_immediately/)
-- [CALLS ON CHICKEN CONFIRMED](https://www.reddit.com/r/wallstreetbets/comments/slhx1n/calls_on_chicken_confirmed/)
-- [Bears flexing on their start to 2022](https://www.reddit.com/r/wallstreetbets/comments/slgkra/bears_flexing_on_their_start_to_2022/)
-- [Elon is meme God](https://www.reddit.com/r/wallstreetbets/comments/slgiup/elon_is_meme_god/)
-- [This thread when everyone starts buying Puts](https://www.reddit.com/r/wallstreetbets/comments/slfu4k/this_thread_when_everyone_starts_buying_puts/)
+- [Wall Street wrote a book to say that Wall Street won 👏🏼🤡](https://www.reddit.com/r/wallstreetbets/comments/sm9ejc/wall_street_wrote_a_book_to_say_that_wall_street/)
+- [Week 5 Earnings Plays Analysis and Historical Post Earnings Moves Compilation - $DIS, $PTON, $CHGG, $CLF, $UBER, $AFRM, $TWTR, and More](https://www.reddit.com/r/wallstreetbets/comments/sm8n0r/week_5_earnings_plays_analysis_and_historical/)
+- [CRISPR DD that&#39;s not only lazy, but also manages to stack a few levels of uncertainly, meaning only a fool would give this any credence...](https://www.reddit.com/r/wallstreetbets/comments/sm80rb/crispr_dd_thats_not_only_lazy_but_also_manages_to/)
+- [What Are Your Moves Tomorrow, February 07, 2022](https://www.reddit.com/r/wallstreetbets/comments/sm7eho/what_are_your_moves_tomorrow_february_07_2022/)
+- [Are weed stocks like TLRY a good investment &lpar;again&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/sm6m1e/are_weed_stocks_like_tlry_a_good_investment_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
