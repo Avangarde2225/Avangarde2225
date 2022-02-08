@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wall Street wrote a book to say that Wall Street won 👏🏼🤡](https://www.reddit.com/r/wallstreetbets/comments/sm9ejc/wall_street_wrote_a_book_to_say_that_wall_street/)
-- [Week 5 Earnings Plays Analysis and Historical Post Earnings Moves Compilation - $DIS, $PTON, $CHGG, $CLF, $UBER, $AFRM, $TWTR, and More](https://www.reddit.com/r/wallstreetbets/comments/sm8n0r/week_5_earnings_plays_analysis_and_historical/)
-- [CRISPR DD that&#39;s not only lazy, but also manages to stack a few levels of uncertainly, meaning only a fool would give this any credence...](https://www.reddit.com/r/wallstreetbets/comments/sm80rb/crispr_dd_thats_not_only_lazy_but_also_manages_to/)
-- [What Are Your Moves Tomorrow, February 07, 2022](https://www.reddit.com/r/wallstreetbets/comments/sm7eho/what_are_your_moves_tomorrow_february_07_2022/)
-- [Are weed stocks like TLRY a good investment &lpar;again&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/sm6m1e/are_weed_stocks_like_tlry_a_good_investment_again/)
+- [$8k FB loss… I feel like shit ngl](https://www.reddit.com/r/wallstreetbets/comments/sn4evs/8k_fb_loss_i_feel_like_shit_ngl/)
+- [With the influx of new members we&#39;re going to see I figured I&#39;d explain some of the basics for you.](https://www.reddit.com/r/wallstreetbets/comments/sn3vmo/with_the_influx_of_new_members_were_going_to_see/)
+- [House Approves SAFE Act to Allow Cannabis Businesses to Utilize Banking - Bullish on WeedStocks](https://www.reddit.com/r/wallstreetbets/comments/sn3i8s/house_approves_safe_act_to_allow_cannabis/)
+- [Deep dive into FB, I think their earnings will be bad when they report on 2/2/2022.](https://www.reddit.com/r/wallstreetbets/comments/sn30nj/deep_dive_into_fb_i_think_their_earnings_will_be/)
+- [You’ve heard of FAANG, but have you heard of LIGMA?](https://www.reddit.com/r/wallstreetbets/comments/sn2a5c/youve_heard_of_faang_but_have_you_heard_of_ligma/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
