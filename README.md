@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$8k FB loss… I feel like shit ngl](https://www.reddit.com/r/wallstreetbets/comments/sn4evs/8k_fb_loss_i_feel_like_shit_ngl/)
-- [With the influx of new members we&#39;re going to see I figured I&#39;d explain some of the basics for you.](https://www.reddit.com/r/wallstreetbets/comments/sn3vmo/with_the_influx_of_new_members_were_going_to_see/)
-- [House Approves SAFE Act to Allow Cannabis Businesses to Utilize Banking - Bullish on WeedStocks](https://www.reddit.com/r/wallstreetbets/comments/sn3i8s/house_approves_safe_act_to_allow_cannabis/)
-- [Deep dive into FB, I think their earnings will be bad when they report on 2/2/2022.](https://www.reddit.com/r/wallstreetbets/comments/sn30nj/deep_dive_into_fb_i_think_their_earnings_will_be/)
-- [You’ve heard of FAANG, but have you heard of LIGMA?](https://www.reddit.com/r/wallstreetbets/comments/sn2a5c/youve_heard_of_faang_but_have_you_heard_of_ligma/)
+- [Facebook&#39;s been fired from the FAANG group.](https://www.reddit.com/r/wallstreetbets/comments/sny145/facebooks_been_fired_from_the_faang_group/)
+- [Charlie Munger is doubling down on $BABA saying it’s a long term 5 year play. Bruh you’re 98 years old, there’s a high chance you’ll be dead this year…](https://www.reddit.com/r/wallstreetbets/comments/snx876/charlie_munger_is_doubling_down_on_baba_saying/)
+- [SPY 2/8... bullish or bearish? Yes...](https://www.reddit.com/r/wallstreetbets/comments/snwsih/spy_28_bullish_or_bearish_yes/)
+- [SEC: &quot;If you place a retail market order, 90-95% do not go to lit exchanges. They go to wholesalers&quot;](https://www.reddit.com/r/wallstreetbets/comments/snvclq/sec_if_you_place_a_retail_market_order_9095_do/)
+- [This $PTON price action is making zero sense to us dipshits](https://www.reddit.com/r/wallstreetbets/comments/snv5nk/this_pton_price_action_is_making_zero_sense_to_us/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
