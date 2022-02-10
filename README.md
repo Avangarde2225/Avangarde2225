@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Facebook&#39;s been fired from the FAANG group.](https://www.reddit.com/r/wallstreetbets/comments/sny145/facebooks_been_fired_from_the_faang_group/)
-- [Charlie Munger is doubling down on $BABA saying it’s a long term 5 year play. Bruh you’re 98 years old, there’s a high chance you’ll be dead this year…](https://www.reddit.com/r/wallstreetbets/comments/snx876/charlie_munger_is_doubling_down_on_baba_saying/)
-- [SPY 2/8... bullish or bearish? Yes...](https://www.reddit.com/r/wallstreetbets/comments/snwsih/spy_28_bullish_or_bearish_yes/)
-- [SEC: &quot;If you place a retail market order, 90-95% do not go to lit exchanges. They go to wholesalers&quot;](https://www.reddit.com/r/wallstreetbets/comments/snvclq/sec_if_you_place_a_retail_market_order_9095_do/)
-- [This $PTON price action is making zero sense to us dipshits](https://www.reddit.com/r/wallstreetbets/comments/snv5nk/this_pton_price_action_is_making_zero_sense_to_us/)
+- [Calling it now inflation tomorrow will be 6.9%, heres why.](https://www.reddit.com/r/wallstreetbets/comments/soqt4d/calling_it_now_inflation_tomorrow_will_be_69/)
+- [Roblox earnings is next week and Nancy Pelosi has calls on it](https://www.reddit.com/r/wallstreetbets/comments/soqns3/roblox_earnings_is_next_week_and_nancy_pelosi_has/)
+- [Meme free WSB -&gt; retards actually predict Disney win](https://www.reddit.com/r/wallstreetbets/comments/sooru8/meme_free_wsb_retards_actually_predict_disney_win/)
+- [$TWLO, $DIS and $IRBT Earnings Option WIN 💰💰](https://www.reddit.com/r/wallstreetbets/comments/sooicv/twlo_dis_and_irbt_earnings_option_win/)
+- [DISNEY EARNINGS $1.06 Diluted EPS, nearly double estimate!](https://www.reddit.com/r/wallstreetbets/comments/soodrx/disney_earnings_106_diluted_eps_nearly_double/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
