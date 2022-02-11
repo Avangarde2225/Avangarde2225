@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calling it now inflation tomorrow will be 6.9%, heres why.](https://www.reddit.com/r/wallstreetbets/comments/soqt4d/calling_it_now_inflation_tomorrow_will_be_69/)
-- [Roblox earnings is next week and Nancy Pelosi has calls on it](https://www.reddit.com/r/wallstreetbets/comments/soqns3/roblox_earnings_is_next_week_and_nancy_pelosi_has/)
-- [Meme free WSB -&gt; retards actually predict Disney win](https://www.reddit.com/r/wallstreetbets/comments/sooru8/meme_free_wsb_retards_actually_predict_disney_win/)
-- [$TWLO, $DIS and $IRBT Earnings Option WIN 💰💰](https://www.reddit.com/r/wallstreetbets/comments/sooicv/twlo_dis_and_irbt_earnings_option_win/)
-- [DISNEY EARNINGS $1.06 Diluted EPS, nearly double estimate!](https://www.reddit.com/r/wallstreetbets/comments/soodrx/disney_earnings_106_diluted_eps_nearly_double/)
+- [Melvin Loses Money Again](https://www.reddit.com/r/wallstreetbets/comments/spiu5m/melvin_loses_money_again/)
+- [Affirm Earnings Blunder - AFRM “Accidentally” Releases Earnings 2 Hrs Early with a Tweet](https://www.reddit.com/r/wallstreetbets/comments/spis3g/affirm_earnings_blunder_afrm_accidentally/)
+- [AFRM - got lucky and bought seconds before the halt](https://www.reddit.com/r/wallstreetbets/comments/spi2g9/afrm_got_lucky_and_bought_seconds_before_the_halt/)
+- [Tomorrow I achieve perfection](https://www.reddit.com/r/wallstreetbets/comments/sphurr/tomorrow_i_achieve_perfection/)
+- [$AFRM - with another banger!!](https://www.reddit.com/r/wallstreetbets/comments/sphi1f/afrm_with_another_banger/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
