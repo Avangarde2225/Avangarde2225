@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Melvin Loses Money Again](https://www.reddit.com/r/wallstreetbets/comments/spiu5m/melvin_loses_money_again/)
-- [Affirm Earnings Blunder - AFRM “Accidentally” Releases Earnings 2 Hrs Early with a Tweet](https://www.reddit.com/r/wallstreetbets/comments/spis3g/affirm_earnings_blunder_afrm_accidentally/)
-- [AFRM - got lucky and bought seconds before the halt](https://www.reddit.com/r/wallstreetbets/comments/spi2g9/afrm_got_lucky_and_bought_seconds_before_the_halt/)
-- [Tomorrow I achieve perfection](https://www.reddit.com/r/wallstreetbets/comments/sphurr/tomorrow_i_achieve_perfection/)
-- [$AFRM - with another banger!!](https://www.reddit.com/r/wallstreetbets/comments/sphi1f/afrm_with_another_banger/)
+- [YOLO- O dte SPY Puts $170,000+ Gain](https://www.reddit.com/r/wallstreetbets/comments/sqcpvj/yolo_o_dte_spy_puts_170000_gain/)
+- [Papa Putin is not going to invade Ukraine you bunch of clowns. He&#39;s the biggest fucking Russian Bear trap in history. Stop wasting your money on this trash.](https://www.reddit.com/r/wallstreetbets/comments/sqclkl/papa_putin_is_not_going_to_invade_ukraine_you/)
+- [Apple and Nike as potential buyers of Peloton remind me of when they were pumping AMC with &quot;Amazon circling the theater chain&quot;](https://www.reddit.com/r/wallstreetbets/comments/sqbise/apple_and_nike_as_potential_buyers_of_peloton/)
+- [Russia controls 90% of US semiconductor-grade neon. How do we invest in the other 10%?](https://www.reddit.com/r/wallstreetbets/comments/sqbfe1/russia_controls_90_of_us_semiconductorgrade_neon/)
+- [~8 Bagger Trading 0DTE TSLA Puts Today &lpar;$2.8k -&gt; $23k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/sqb94a/8_bagger_trading_0dte_tsla_puts_today_28k_23k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
