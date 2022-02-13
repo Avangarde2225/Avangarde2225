@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [YOLO- O dte SPY Puts $170,000+ Gain](https://www.reddit.com/r/wallstreetbets/comments/sqcpvj/yolo_o_dte_spy_puts_170000_gain/)
-- [Papa Putin is not going to invade Ukraine you bunch of clowns. He&#39;s the biggest fucking Russian Bear trap in history. Stop wasting your money on this trash.](https://www.reddit.com/r/wallstreetbets/comments/sqclkl/papa_putin_is_not_going_to_invade_ukraine_you/)
-- [Apple and Nike as potential buyers of Peloton remind me of when they were pumping AMC with &quot;Amazon circling the theater chain&quot;](https://www.reddit.com/r/wallstreetbets/comments/sqbise/apple_and_nike_as_potential_buyers_of_peloton/)
-- [Russia controls 90% of US semiconductor-grade neon. How do we invest in the other 10%?](https://www.reddit.com/r/wallstreetbets/comments/sqbfe1/russia_controls_90_of_us_semiconductorgrade_neon/)
-- [~8 Bagger Trading 0DTE TSLA Puts Today &lpar;$2.8k -&gt; $23k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/sqb94a/8_bagger_trading_0dte_tsla_puts_today_28k_23k/)
+- [So the Bears want to dance you say!!!!](https://www.reddit.com/r/wallstreetbets/comments/sr41sq/so_the_bears_want_to_dance_you_say/)
+- [Fuck WSB I QUIT!!!!!](https://www.reddit.com/r/wallstreetbets/comments/sr3rp2/fuck_wsb_i_quit/)
+- [WSJ](https://www.reddit.com/r/wallstreetbets/comments/sr389l/wsj/)
+- [FB will print, VR porn will carry the technology forward](https://www.reddit.com/r/wallstreetbets/comments/sr1wg2/fb_will_print_vr_porn_will_carry_the_technology/)
+- [World War 3 Has Started: Redux](https://www.reddit.com/r/wallstreetbets/comments/sr1w69/world_war_3_has_started_redux/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
