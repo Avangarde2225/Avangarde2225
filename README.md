@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [So the Bears want to dance you say!!!!](https://www.reddit.com/r/wallstreetbets/comments/sr41sq/so_the_bears_want_to_dance_you_say/)
-- [Fuck WSB I QUIT!!!!!](https://www.reddit.com/r/wallstreetbets/comments/sr3rp2/fuck_wsb_i_quit/)
-- [WSJ](https://www.reddit.com/r/wallstreetbets/comments/sr389l/wsj/)
-- [FB will print, VR porn will carry the technology forward](https://www.reddit.com/r/wallstreetbets/comments/sr1wg2/fb_will_print_vr_porn_will_carry_the_technology/)
-- [World War 3 Has Started: Redux](https://www.reddit.com/r/wallstreetbets/comments/sr1w69/world_war_3_has_started_redux/)
+- [The Super Bowl just had commercial making fun of WallStreetBets.](https://www.reddit.com/r/wallstreetbets/comments/srwm6o/the_super_bowl_just_had_commercial_making_fun_of/)
+- [Doctors accuse Elon Musk’s Neuralink of killing, causing ‘extreme suffering’ in monkeys during brain experiments](https://www.reddit.com/r/wallstreetbets/comments/srwc25/doctors_accuse_elon_musks_neuralink_of_killing/)
+- [I heard you guys like short squeezes. Even Putin and Xi are buying calls 🤤](https://www.reddit.com/r/wallstreetbets/comments/srwawt/i_heard_you_guys_like_short_squeezes_even_putin/)
+- [Moderna CEO Dumps Stock and Deletes Twitter Account](https://www.reddit.com/r/wallstreetbets/comments/sru1mw/moderna_ceo_dumps_stock_and_deletes_twitter/)
+- [What Are Your Moves Tomorrow, February 14, 2022](https://www.reddit.com/r/wallstreetbets/comments/srsu8q/what_are_your_moves_tomorrow_february_14_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
