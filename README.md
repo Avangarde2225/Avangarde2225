@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Super Bowl just had commercial making fun of WallStreetBets.](https://www.reddit.com/r/wallstreetbets/comments/srwm6o/the_super_bowl_just_had_commercial_making_fun_of/)
-- [Doctors accuse Elon Musk’s Neuralink of killing, causing ‘extreme suffering’ in monkeys during brain experiments](https://www.reddit.com/r/wallstreetbets/comments/srwc25/doctors_accuse_elon_musks_neuralink_of_killing/)
-- [I heard you guys like short squeezes. Even Putin and Xi are buying calls 🤤](https://www.reddit.com/r/wallstreetbets/comments/srwawt/i_heard_you_guys_like_short_squeezes_even_putin/)
-- [Moderna CEO Dumps Stock and Deletes Twitter Account](https://www.reddit.com/r/wallstreetbets/comments/sru1mw/moderna_ceo_dumps_stock_and_deletes_twitter/)
-- [What Are Your Moves Tomorrow, February 14, 2022](https://www.reddit.com/r/wallstreetbets/comments/srsu8q/what_are_your_moves_tomorrow_february_14_2022/)
+- [Is Warren Buffett the next Nancy Pelosi?](https://www.reddit.com/r/wallstreetbets/comments/sso33s/is_warren_buffett_the_next_nancy_pelosi/)
+- [Week 6 Earnings Plays Analysis and Historical Post Earnings Moves Compilation - $NVDA, $ROKU, $PLTR, $RBLX, $UPST, $DASH, $ABNB, and More](https://www.reddit.com/r/wallstreetbets/comments/ssnyso/week_6_earnings_plays_analysis_and_historical/)
+- [2/14: SPY the ole pumper and dumper](https://www.reddit.com/r/wallstreetbets/comments/ssmr1r/214_spy_the_ole_pumper_and_dumper/)
+- [Fed will continue to slow-play inflation, sit on rates](https://www.reddit.com/r/wallstreetbets/comments/ssm97j/fed_will_continue_to_slowplay_inflation_sit_on/)
+- [On the &quot;emergency&quot; Federal Reserve meeting you&#39;ve all been talking about](https://www.reddit.com/r/wallstreetbets/comments/ssm1fg/on_the_emergency_federal_reserve_meeting_youve/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
