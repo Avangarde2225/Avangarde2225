@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is Warren Buffett the next Nancy Pelosi?](https://www.reddit.com/r/wallstreetbets/comments/sso33s/is_warren_buffett_the_next_nancy_pelosi/)
-- [Week 6 Earnings Plays Analysis and Historical Post Earnings Moves Compilation - $NVDA, $ROKU, $PLTR, $RBLX, $UPST, $DASH, $ABNB, and More](https://www.reddit.com/r/wallstreetbets/comments/ssnyso/week_6_earnings_plays_analysis_and_historical/)
-- [2/14: SPY the ole pumper and dumper](https://www.reddit.com/r/wallstreetbets/comments/ssmr1r/214_spy_the_ole_pumper_and_dumper/)
-- [Fed will continue to slow-play inflation, sit on rates](https://www.reddit.com/r/wallstreetbets/comments/ssm97j/fed_will_continue_to_slowplay_inflation_sit_on/)
-- [On the &quot;emergency&quot; Federal Reserve meeting you&#39;ve all been talking about](https://www.reddit.com/r/wallstreetbets/comments/ssm1fg/on_the_emergency_federal_reserve_meeting_youve/)
+- [Two types of retards](https://www.reddit.com/r/wallstreetbets/comments/sth52r/two_types_of_retards/)
+- [RBLX earnings pain](https://www.reddit.com/r/wallstreetbets/comments/stg8xm/rblx_earnings_pain/)
+- [NVDA Calls or Puts Tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/stg18o/nvda_calls_or_puts_tomorrow/)
+- [Regulators Are Taking Morgan Stanley and Hedge Funds to Court](https://www.reddit.com/r/wallstreetbets/comments/stfd34/regulators_are_taking_morgan_stanley_and_hedge/)
+- [$SPCE $40k YOLO. SPCE to $20 EOW is not a meme! 21% Short Interest, great 3.66 days to cover, PT of $21-36.](https://www.reddit.com/r/wallstreetbets/comments/stf287/spce_40k_yolo_spce_to_20_eow_is_not_a_meme_21/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
