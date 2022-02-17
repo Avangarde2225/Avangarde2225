@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Two types of retards](https://www.reddit.com/r/wallstreetbets/comments/sth52r/two_types_of_retards/)
-- [RBLX earnings pain](https://www.reddit.com/r/wallstreetbets/comments/stg8xm/rblx_earnings_pain/)
-- [NVDA Calls or Puts Tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/stg18o/nvda_calls_or_puts_tomorrow/)
-- [Regulators Are Taking Morgan Stanley and Hedge Funds to Court](https://www.reddit.com/r/wallstreetbets/comments/stfd34/regulators_are_taking_morgan_stanley_and_hedge/)
-- [$SPCE $40k YOLO. SPCE to $20 EOW is not a meme! 21% Short Interest, great 3.66 days to cover, PT of $21-36.](https://www.reddit.com/r/wallstreetbets/comments/stf287/spce_40k_yolo_spce_to_20_eow_is_not_a_meme_21/)
+- [META is dead. Stop trying to revive it.](https://www.reddit.com/r/wallstreetbets/comments/sua8zv/meta_is_dead_stop_trying_to_revive_it/)
+- [My come back on one of my accounts 😂](https://www.reddit.com/r/wallstreetbets/comments/su9suu/my_come_back_on_one_of_my_accounts/)
+- [Bought 6.5k shares of PLTR using 50k margin](https://www.reddit.com/r/wallstreetbets/comments/su8jae/bought_65k_shares_of_pltr_using_50k_margin/)
+- [POV: Your company reports a small decline in growth](https://www.reddit.com/r/wallstreetbets/comments/su891v/pov_your_company_reports_a_small_decline_in_growth/)
+- [I’m stupid](https://www.reddit.com/r/wallstreetbets/comments/su71gl/im_stupid/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
