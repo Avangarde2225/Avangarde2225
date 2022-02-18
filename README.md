@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [META is dead. Stop trying to revive it.](https://www.reddit.com/r/wallstreetbets/comments/sua8zv/meta_is_dead_stop_trying_to_revive_it/)
-- [My come back on one of my accounts 😂](https://www.reddit.com/r/wallstreetbets/comments/su9suu/my_come_back_on_one_of_my_accounts/)
-- [Bought 6.5k shares of PLTR using 50k margin](https://www.reddit.com/r/wallstreetbets/comments/su8jae/bought_65k_shares_of_pltr_using_50k_margin/)
-- [POV: Your company reports a small decline in growth](https://www.reddit.com/r/wallstreetbets/comments/su891v/pov_your_company_reports_a_small_decline_in_growth/)
-- [I’m stupid](https://www.reddit.com/r/wallstreetbets/comments/su71gl/im_stupid/)
+- [Made almost $438 last year. Don&#39;t pay attention to the other number...](https://www.reddit.com/r/wallstreetbets/comments/sv2gg8/made_almost_438_last_year_dont_pay_attention_to/)
+- [Cathie Wood&#39;s fund holds $753M worth of $ZM. She uses the free version...](https://www.reddit.com/r/wallstreetbets/comments/sv1gzh/cathie_woods_fund_holds_753m_worth_of_zm_she_uses/)
+- [$10k Bet On a Rivian 1DTE](https://www.reddit.com/r/wallstreetbets/comments/suzt3x/10k_bet_on_a_rivian_1dte/)
+- [US Equities are Still Overvalued](https://www.reddit.com/r/wallstreetbets/comments/suznhx/us_equities_are_still_overvalued/)
+- [What Are Your Moves Tomorrow, February 18, 2022](https://www.reddit.com/r/wallstreetbets/comments/suz7eb/what_are_your_moves_tomorrow_february_18_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
