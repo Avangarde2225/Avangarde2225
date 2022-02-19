@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Made almost $438 last year. Don&#39;t pay attention to the other number...](https://www.reddit.com/r/wallstreetbets/comments/sv2gg8/made_almost_438_last_year_dont_pay_attention_to/)
-- [Cathie Wood&#39;s fund holds $753M worth of $ZM. She uses the free version...](https://www.reddit.com/r/wallstreetbets/comments/sv1gzh/cathie_woods_fund_holds_753m_worth_of_zm_she_uses/)
-- [$10k Bet On a Rivian 1DTE](https://www.reddit.com/r/wallstreetbets/comments/suzt3x/10k_bet_on_a_rivian_1dte/)
-- [US Equities are Still Overvalued](https://www.reddit.com/r/wallstreetbets/comments/suznhx/us_equities_are_still_overvalued/)
-- [What Are Your Moves Tomorrow, February 18, 2022](https://www.reddit.com/r/wallstreetbets/comments/suz7eb/what_are_your_moves_tomorrow_february_18_2022/)
+- [it was fun feeling like I had money for a little bit, but this just feels more right](https://www.reddit.com/r/wallstreetbets/comments/svvntw/it_was_fun_feeling_like_i_had_money_for_a_little/)
+- [Bye bye stock Market 📉](https://www.reddit.com/r/wallstreetbets/comments/svuj1f/bye_bye_stock_market/)
+- [My portfolio made a cat](https://www.reddit.com/r/wallstreetbets/comments/svuc4b/my_portfolio_made_a_cat/)
+- [202 pages of trades later… at least I can deduct 3k for the next 47 years. &lpar;Positions: $MVST shares and lots of expired calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/svts4u/202_pages_of_trades_later_at_least_i_can_deduct/)
+- [Skips college because its too expensive then proceeds to lose 20k trading options.](https://www.reddit.com/r/wallstreetbets/comments/svt8zh/skips_college_because_its_too_expensive_then/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
