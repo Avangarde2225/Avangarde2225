@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [it was fun feeling like I had money for a little bit, but this just feels more right](https://www.reddit.com/r/wallstreetbets/comments/svvntw/it_was_fun_feeling_like_i_had_money_for_a_little/)
-- [Bye bye stock Market 📉](https://www.reddit.com/r/wallstreetbets/comments/svuj1f/bye_bye_stock_market/)
-- [My portfolio made a cat](https://www.reddit.com/r/wallstreetbets/comments/svuc4b/my_portfolio_made_a_cat/)
-- [202 pages of trades later… at least I can deduct 3k for the next 47 years. &lpar;Positions: $MVST shares and lots of expired calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/svts4u/202_pages_of_trades_later_at_least_i_can_deduct/)
-- [Skips college because its too expensive then proceeds to lose 20k trading options.](https://www.reddit.com/r/wallstreetbets/comments/svt8zh/skips_college_because_its_too_expensive_then/)
+- [When you buy calls on FB thinking it&#39;s an easy rebound play](https://www.reddit.com/r/wallstreetbets/comments/swn35a/when_you_buy_calls_on_fb_thinking_its_an_easy/)
+- [Nobody Cucks the Zuck](https://www.reddit.com/r/wallstreetbets/comments/swlvz9/nobody_cucks_the_zuck/)
+- [WSB IQ Test what you got](https://www.reddit.com/r/wallstreetbets/comments/swlu1t/wsb_iq_test_what_you_got/)
+- [The current state of WSB.](https://www.reddit.com/r/wallstreetbets/comments/swlajp/the_current_state_of_wsb/)
+- [2023: &quot;So what happened in 2022?&quot;](https://www.reddit.com/r/wallstreetbets/comments/swkprp/2023_so_what_happened_in_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
