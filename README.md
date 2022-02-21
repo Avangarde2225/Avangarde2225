@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When you buy calls on FB thinking it&#39;s an easy rebound play](https://www.reddit.com/r/wallstreetbets/comments/swn35a/when_you_buy_calls_on_fb_thinking_its_an_easy/)
-- [Nobody Cucks the Zuck](https://www.reddit.com/r/wallstreetbets/comments/swlvz9/nobody_cucks_the_zuck/)
-- [WSB IQ Test what you got](https://www.reddit.com/r/wallstreetbets/comments/swlu1t/wsb_iq_test_what_you_got/)
-- [The current state of WSB.](https://www.reddit.com/r/wallstreetbets/comments/swlajp/the_current_state_of_wsb/)
-- [2023: &quot;So what happened in 2022?&quot;](https://www.reddit.com/r/wallstreetbets/comments/swkprp/2023_so_what_happened_in_2022/)
+- [Yup](https://www.reddit.com/r/wallstreetbets/comments/sxe6my/yup/)
+- [WSB vibes rn](https://www.reddit.com/r/wallstreetbets/comments/sxd7dl/wsb_vibes_rn/)
+- [Just in case 🤷🏼‍♂️](https://www.reddit.com/r/wallstreetbets/comments/sxcl8f/just_in_case/)
+- [Massive Credit Suisse leak reportedly reveals possible criminal ties among 18,000 accounts](https://www.reddit.com/r/wallstreetbets/comments/sxc8vv/massive_credit_suisse_leak_reportedly_reveals/)
+- [PICK YOUR TEAM](https://www.reddit.com/r/wallstreetbets/comments/sx97wh/pick_your_team/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
