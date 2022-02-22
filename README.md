@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Yup](https://www.reddit.com/r/wallstreetbets/comments/sxe6my/yup/)
-- [WSB vibes rn](https://www.reddit.com/r/wallstreetbets/comments/sxd7dl/wsb_vibes_rn/)
-- [Just in case 🤷🏼‍♂️](https://www.reddit.com/r/wallstreetbets/comments/sxcl8f/just_in_case/)
-- [Massive Credit Suisse leak reportedly reveals possible criminal ties among 18,000 accounts](https://www.reddit.com/r/wallstreetbets/comments/sxc8vv/massive_credit_suisse_leak_reportedly_reveals/)
-- [PICK YOUR TEAM](https://www.reddit.com/r/wallstreetbets/comments/sx97wh/pick_your_team/)
+- [Russian &quot;Peacekeeping Troops&quot; Going Into Ukraine](https://www.reddit.com/r/wallstreetbets/comments/sy57xg/russian_peacekeeping_troops_going_into_ukraine/)
+- [What Are Your Moves Tomorrow, February 22, 2022](https://www.reddit.com/r/wallstreetbets/comments/sy4adh/what_are_your_moves_tomorrow_february_22_2022/)
+- [Putin recognises self-declared republics of Donetsk and Luhansk in eastern Ukraine](https://www.reddit.com/r/wallstreetbets/comments/sy2ygl/putin_recognises_selfdeclared_republics_of/)
+- [Warren Buffett purchased 14,658,121 shares of Activision Blizzard, which was valued at $975,205,000 at the time of purchase.](https://www.reddit.com/r/wallstreetbets/comments/sy1vmf/warren_buffett_purchased_14658121_shares_of/)
+- [Any minute now](https://www.reddit.com/r/wallstreetbets/comments/sy1u4h/any_minute_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
