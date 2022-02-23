@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Russian &quot;Peacekeeping Troops&quot; Going Into Ukraine](https://www.reddit.com/r/wallstreetbets/comments/sy57xg/russian_peacekeeping_troops_going_into_ukraine/)
-- [What Are Your Moves Tomorrow, February 22, 2022](https://www.reddit.com/r/wallstreetbets/comments/sy4adh/what_are_your_moves_tomorrow_february_22_2022/)
-- [Putin recognises self-declared republics of Donetsk and Luhansk in eastern Ukraine](https://www.reddit.com/r/wallstreetbets/comments/sy2ygl/putin_recognises_selfdeclared_republics_of/)
-- [Warren Buffett purchased 14,658,121 shares of Activision Blizzard, which was valued at $975,205,000 at the time of purchase.](https://www.reddit.com/r/wallstreetbets/comments/sy1vmf/warren_buffett_purchased_14658121_shares_of/)
-- [Any minute now](https://www.reddit.com/r/wallstreetbets/comments/sy1u4h/any_minute_now/)
+- [You Must Realize That All Wall Street Analysts Are Probably More Retarded Than You Are](https://www.reddit.com/r/wallstreetbets/comments/sz2lut/you_must_realize_that_all_wall_street_analysts/)
+- [Sec. Blinken cancels meeting with Russia&#39;s Lavrov because the invasion has already begun.](https://www.reddit.com/r/wallstreetbets/comments/sz05yu/sec_blinken_cancels_meeting_with_russias_lavrov/)
+- [2/22/22 SPY Analysis and recap](https://www.reddit.com/r/wallstreetbets/comments/syz4u6/22222_spy_analysis_and_recap/)
+- [SPY Triple down with weeklies and 0dte puts. 30k gain](https://www.reddit.com/r/wallstreetbets/comments/syyh83/spy_triple_down_with_weeklies_and_0dte_puts_30k/)
+- [What Are Your Moves Tomorrow, February 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/syy6yh/what_are_your_moves_tomorrow_february_23_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
