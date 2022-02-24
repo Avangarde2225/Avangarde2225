@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You Must Realize That All Wall Street Analysts Are Probably More Retarded Than You Are](https://www.reddit.com/r/wallstreetbets/comments/sz2lut/you_must_realize_that_all_wall_street_analysts/)
-- [Sec. Blinken cancels meeting with Russia&#39;s Lavrov because the invasion has already begun.](https://www.reddit.com/r/wallstreetbets/comments/sz05yu/sec_blinken_cancels_meeting_with_russias_lavrov/)
-- [2/22/22 SPY Analysis and recap](https://www.reddit.com/r/wallstreetbets/comments/syz4u6/22222_spy_analysis_and_recap/)
-- [SPY Triple down with weeklies and 0dte puts. 30k gain](https://www.reddit.com/r/wallstreetbets/comments/syyh83/spy_triple_down_with_weeklies_and_0dte_puts_30k/)
-- [What Are Your Moves Tomorrow, February 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/syy6yh/what_are_your_moves_tomorrow_february_23_2022/)
+- [We already had a Metaverse since 1985 it&#39;s called Ikea](https://www.reddit.com/r/wallstreetbets/comments/szwacw/we_already_had_a_metaverse_since_1985_its_called/)
+- [Wall Street extends selloff on Ukraine worries](https://www.reddit.com/r/wallstreetbets/comments/szvjah/wall_street_extends_selloff_on_ukraine_worries/)
+- [We already had a metaverse since 2001, it’s called Runescape](https://www.reddit.com/r/wallstreetbets/comments/szul49/we_already_had_a_metaverse_since_2001_its_called/)
+- [Who&#39;s buying tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/szuh91/whos_buying_tomorrow/)
+- [Credit Suisse Operated With Criminal Accounts](https://www.reddit.com/r/wallstreetbets/comments/szuflh/credit_suisse_operated_with_criminal_accounts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
