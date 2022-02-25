@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We already had a Metaverse since 1985 it&#39;s called Ikea](https://www.reddit.com/r/wallstreetbets/comments/szwacw/we_already_had_a_metaverse_since_1985_its_called/)
-- [Wall Street extends selloff on Ukraine worries](https://www.reddit.com/r/wallstreetbets/comments/szvjah/wall_street_extends_selloff_on_ukraine_worries/)
-- [We already had a metaverse since 2001, it’s called Runescape](https://www.reddit.com/r/wallstreetbets/comments/szul49/we_already_had_a_metaverse_since_2001_its_called/)
-- [Who&#39;s buying tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/szuh91/whos_buying_tomorrow/)
-- [Credit Suisse Operated With Criminal Accounts](https://www.reddit.com/r/wallstreetbets/comments/szuflh/credit_suisse_operated_with_criminal_accounts/)
+- [The Russian Suck at Fighting, so I&#39;m Long Ukrainian Life. Short RSX](https://www.reddit.com/r/wallstreetbets/comments/t0om48/the_russian_suck_at_fighting_so_im_long_ukrainian/)
+- [Shut the fuck up with your stupid conspiracy theories](https://www.reddit.com/r/wallstreetbets/comments/t0nxx8/shut_the_fuck_up_with_your_stupid_conspiracy/)
+- [Funny how no one is talking about SQ soaring 25% after the earnings report](https://www.reddit.com/r/wallstreetbets/comments/t0nkaq/funny_how_no_one_is_talking_about_sq_soaring_25/)
+- [S&amp;P 500 and DOW are Green on the news of Russia Invading Ukraine](https://www.reddit.com/r/wallstreetbets/comments/t0lc5v/sp_500_and_dow_are_green_on_the_news_of_russia/)
+- [What Are Your Moves Tomorrow, February 25, 2022](https://www.reddit.com/r/wallstreetbets/comments/t0l9o5/what_are_your_moves_tomorrow_february_25_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
