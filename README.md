@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Russian Suck at Fighting, so I&#39;m Long Ukrainian Life. Short RSX](https://www.reddit.com/r/wallstreetbets/comments/t0om48/the_russian_suck_at_fighting_so_im_long_ukrainian/)
-- [Shut the fuck up with your stupid conspiracy theories](https://www.reddit.com/r/wallstreetbets/comments/t0nxx8/shut_the_fuck_up_with_your_stupid_conspiracy/)
-- [Funny how no one is talking about SQ soaring 25% after the earnings report](https://www.reddit.com/r/wallstreetbets/comments/t0nkaq/funny_how_no_one_is_talking_about_sq_soaring_25/)
-- [S&amp;P 500 and DOW are Green on the news of Russia Invading Ukraine](https://www.reddit.com/r/wallstreetbets/comments/t0lc5v/sp_500_and_dow_are_green_on_the_news_of_russia/)
-- [What Are Your Moves Tomorrow, February 25, 2022](https://www.reddit.com/r/wallstreetbets/comments/t0l9o5/what_are_your_moves_tomorrow_february_25_2022/)
+- [I posted couple weeks I lost everything, down to $7... After a couple of yolo SPY puts I&#39;m up nearly $11k... I&#39;m back 🤣](https://www.reddit.com/r/wallstreetbets/comments/t1iaff/i_posted_couple_weeks_i_lost_everything_down_to_7/)
+- [Bears On WSB This Week](https://www.reddit.com/r/wallstreetbets/comments/t1i3s1/bears_on_wsb_this_week/)
+- [Analysts vs stock market](https://www.reddit.com/r/wallstreetbets/comments/t1hsra/analysts_vs_stock_market/)
+- [DWAC to the Future: Thoughts on TruthSocial &amp; TTMG+](https://www.reddit.com/r/wallstreetbets/comments/t1gq4l/dwac_to_the_future_thoughts_on_truthsocial_ttmg/)
+- [2/25/22 SPY analysis and weekly recap](https://www.reddit.com/r/wallstreetbets/comments/t1gaac/22522_spy_analysis_and_weekly_recap/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
