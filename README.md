@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I posted couple weeks I lost everything, down to $7... After a couple of yolo SPY puts I&#39;m up nearly $11k... I&#39;m back 🤣](https://www.reddit.com/r/wallstreetbets/comments/t1iaff/i_posted_couple_weeks_i_lost_everything_down_to_7/)
-- [Bears On WSB This Week](https://www.reddit.com/r/wallstreetbets/comments/t1i3s1/bears_on_wsb_this_week/)
-- [Analysts vs stock market](https://www.reddit.com/r/wallstreetbets/comments/t1hsra/analysts_vs_stock_market/)
-- [DWAC to the Future: Thoughts on TruthSocial &amp; TTMG+](https://www.reddit.com/r/wallstreetbets/comments/t1gq4l/dwac_to_the_future_thoughts_on_truthsocial_ttmg/)
-- [2/25/22 SPY analysis and weekly recap](https://www.reddit.com/r/wallstreetbets/comments/t1gaac/22522_spy_analysis_and_weekly_recap/)
+- [CNBC: Russia to be removed from global SWIFT system.](https://www.reddit.com/r/wallstreetbets/comments/t28vb6/cnbc_russia_to_be_removed_from_global_swift_system/)
+- [Germany Just Announced they&#39;re on Board with Cutting Russia out of SWIFT - Reactions could be Wild](https://www.reddit.com/r/wallstreetbets/comments/t28t5g/germany_just_announced_theyre_on_board_with/)
+- [You probably don&#39;t know who you are](https://www.reddit.com/r/wallstreetbets/comments/t28awu/you_probably_dont_know_who_you_are/)
+- [POV: you enabled options trading 48 hours ago](https://www.reddit.com/r/wallstreetbets/comments/t26wfo/pov_you_enabled_options_trading_48_hours_ago/)
+- [Current state of FDs and Futures. I&#39;m just a WSB pig that was slaughtered](https://www.reddit.com/r/wallstreetbets/comments/t26e50/current_state_of_fds_and_futures_im_just_a_wsb/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
