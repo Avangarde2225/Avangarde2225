@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CNBC: Russia to be removed from global SWIFT system.](https://www.reddit.com/r/wallstreetbets/comments/t28vb6/cnbc_russia_to_be_removed_from_global_swift_system/)
-- [Germany Just Announced they&#39;re on Board with Cutting Russia out of SWIFT - Reactions could be Wild](https://www.reddit.com/r/wallstreetbets/comments/t28t5g/germany_just_announced_theyre_on_board_with/)
-- [You probably don&#39;t know who you are](https://www.reddit.com/r/wallstreetbets/comments/t28awu/you_probably_dont_know_who_you_are/)
-- [POV: you enabled options trading 48 hours ago](https://www.reddit.com/r/wallstreetbets/comments/t26wfo/pov_you_enabled_options_trading_48_hours_ago/)
-- [Current state of FDs and Futures. I&#39;m just a WSB pig that was slaughtered](https://www.reddit.com/r/wallstreetbets/comments/t26e50/current_state_of_fds_and_futures_im_just_a_wsb/)
+- [Let’s take a moment and realize how sad all of this is …](https://www.reddit.com/r/wallstreetbets/comments/t30lwh/lets_take_a_moment_and_realize_how_sad_all_of/)
+- [Russian central bank orders block on foreign clients&#39; bids to sell Russian securities](https://www.reddit.com/r/wallstreetbets/comments/t2zob8/russian_central_bank_orders_block_on_foreign/)
+- [The stock market in the MCU must be wild](https://www.reddit.com/r/wallstreetbets/comments/t2zbr8/the_stock_market_in_the_mcu_must_be_wild/)
+- [SWIFT Ban Means Another Potential Lehman Financial Crisis.](https://www.reddit.com/r/wallstreetbets/comments/t2ylv0/swift_ban_means_another_potential_lehman/)
+- [I&#39;m sure some of you retards are eyeing juicy arbitrage opportunities](https://www.reddit.com/r/wallstreetbets/comments/t2yd90/im_sure_some_of_you_retards_are_eyeing_juicy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
