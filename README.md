@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nike pulling products from Foot Locker](https://www.reddit.com/r/wallstreetbets/comments/t4lwvr/nike_pulling_products_from_foot_locker/)
-- [AMC 90% float owned by retail](https://www.reddit.com/r/wallstreetbets/comments/t4ljrd/amc_90_float_owned_by_retail/)
-- [Hey you, retard! Yeah you! Retail Owns 90%](https://www.reddit.com/r/wallstreetbets/comments/t4l4z7/hey_you_retard_yeah_you_retail_owns_90/)
-- [18k to 76k gain on Russia Puts](https://www.reddit.com/r/wallstreetbets/comments/t4kwok/18k_to_76k_gain_on_russia_puts/)
-- [3/1/22 SPY Recap and Analysis](https://www.reddit.com/r/wallstreetbets/comments/t4klx5/3122_spy_recap_and_analysis/)
+- [🕵️‍♂️ I SPY TA - Thursday March 03, 2022 &lpar;0DTE Scalpers Delight&rpar;](https://www.reddit.com/r/wallstreetbets/comments/t5d5dd/i_spy_ta_thursday_march_03_2022_0dte_scalpers/)
+- [SNOW YOLO saves my account from the pits of hell.](https://www.reddit.com/r/wallstreetbets/comments/t5cmqz/snow_yolo_saves_my_account_from_the_pits_of_hell/)
+- [Game Time YOLO](https://www.reddit.com/r/wallstreetbets/comments/t5cb52/game_time_yolo/)
+- [It&#39;s only a matter of time before the russian troll farms try to bait people to buy Russian stock for the mems](https://www.reddit.com/r/wallstreetbets/comments/t5c6t8/its_only_a_matter_of_time_before_the_russian/)
+- [Here is some loss porn for you degenerates. Enjoy.](https://www.reddit.com/r/wallstreetbets/comments/t5adp5/here_is_some_loss_porn_for_you_degenerates_enjoy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
