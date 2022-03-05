@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Light at the end of the PLTR tunnel](https://www.reddit.com/r/wallstreetbets/comments/t63zdz/light_at_the_end_of_the_pltr_tunnel/)
-- [Chinas Economy is Still Imploding](https://www.reddit.com/r/wallstreetbets/comments/t633lw/chinas_economy_is_still_imploding/)
-- [Wheat DD - Let&#39;s get this bread, WSB](https://www.reddit.com/r/wallstreetbets/comments/t62e78/wheat_dd_lets_get_this_bread_wsb/)
-- [3/3/22 SPY Recap and Analysis](https://www.reddit.com/r/wallstreetbets/comments/t629k6/3322_spy_recap_and_analysis/)
-- [In a Retarded Universe Much Like Ours: The United Nations take on Putin Puppet In Defense Council Session](https://www.reddit.com/r/wallstreetbets/comments/t629gu/in_a_retarded_universe_much_like_ours_the_united/)
+- [The Great Russian Bear, once again, takes down The Markets](https://www.reddit.com/r/wallstreetbets/comments/t6w86i/the_great_russian_bear_once_again_takes_down_the/)
+- [Financial advice](https://www.reddit.com/r/wallstreetbets/comments/t6vone/financial_advice/)
+- [dips keep dipping](https://www.reddit.com/r/wallstreetbets/comments/t6vhg6/dips_keep_dipping/)
+- [Pouring all my Rubles into John Deere calls](https://www.reddit.com/r/wallstreetbets/comments/t6upj5/pouring_all_my_rubles_into_john_deere_calls/)
+- [TFW Investment Advisor drinks to the crash of the economy in front of you](https://www.reddit.com/r/wallstreetbets/comments/t6uenc/tfw_investment_advisor_drinks_to_the_crash_of_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
