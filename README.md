@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Great Russian Bear, once again, takes down The Markets](https://www.reddit.com/r/wallstreetbets/comments/t6w86i/the_great_russian_bear_once_again_takes_down_the/)
-- [Financial advice](https://www.reddit.com/r/wallstreetbets/comments/t6vone/financial_advice/)
-- [dips keep dipping](https://www.reddit.com/r/wallstreetbets/comments/t6vhg6/dips_keep_dipping/)
-- [Pouring all my Rubles into John Deere calls](https://www.reddit.com/r/wallstreetbets/comments/t6upj5/pouring_all_my_rubles_into_john_deere_calls/)
-- [TFW Investment Advisor drinks to the crash of the economy in front of you](https://www.reddit.com/r/wallstreetbets/comments/t6uenc/tfw_investment_advisor_drinks_to_the_crash_of_the/)
+- [More ramen=more YOLOs. The hedgefund edition](https://www.reddit.com/r/wallstreetbets/comments/t7ld3u/more_ramenmore_yolos_the_hedgefund_edition/)
+- [The FUD exchange went flawlessly](https://www.reddit.com/r/wallstreetbets/comments/t7l2uz/the_fud_exchange_went_flawlessly/)
+- [Please save us, queen](https://www.reddit.com/r/wallstreetbets/comments/t7kqjz/please_save_us_queen/)
+- [The home of jackin it…](https://www.reddit.com/r/wallstreetbets/comments/t7k6tw/the_home_of_jackin_it/)
+- [When your Dad is a Wallstreetbet retard.](https://www.reddit.com/r/wallstreetbets/comments/t7jtqt/when_your_dad_is_a_wallstreetbet_retard/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
