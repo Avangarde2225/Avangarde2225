@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [More ramen=more YOLOs. The hedgefund edition](https://www.reddit.com/r/wallstreetbets/comments/t7ld3u/more_ramenmore_yolos_the_hedgefund_edition/)
-- [The FUD exchange went flawlessly](https://www.reddit.com/r/wallstreetbets/comments/t7l2uz/the_fud_exchange_went_flawlessly/)
-- [Please save us, queen](https://www.reddit.com/r/wallstreetbets/comments/t7kqjz/please_save_us_queen/)
-- [The home of jackin it…](https://www.reddit.com/r/wallstreetbets/comments/t7k6tw/the_home_of_jackin_it/)
-- [When your Dad is a Wallstreetbet retard.](https://www.reddit.com/r/wallstreetbets/comments/t7jtqt/when_your_dad_is_a_wallstreetbet_retard/)
+- [Putin And Russia Could Trigger ‘Nuclear Apocalypse’ And ‘Armageddon’ — But Investors Told To ‘Stay Bullish’](https://www.reddit.com/r/wallstreetbets/comments/t8axg2/putin_and_russia_could_trigger_nuclear_apocalypse/)
+- [Oil Gang Bitches](https://www.reddit.com/r/wallstreetbets/comments/t8ao8u/oil_gang_bitches/)
+- [With current pace, 50% of high-tech growth stocks will go to zero by end of this year](https://www.reddit.com/r/wallstreetbets/comments/t8ah3x/with_current_pace_50_of_hightech_growth_stocks/)
+- [Buy at the top and wait until it expires worthless. #NIO](https://www.reddit.com/r/wallstreetbets/comments/t89xsb/buy_at_the_top_and_wait_until_it_expires/)
+- [What Are Your Moves Tomorrow, March 07, 2022](https://www.reddit.com/r/wallstreetbets/comments/t889v1/what_are_your_moves_tomorrow_march_07_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
