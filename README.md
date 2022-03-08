@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Putin And Russia Could Trigger ‘Nuclear Apocalypse’ And ‘Armageddon’ — But Investors Told To ‘Stay Bullish’](https://www.reddit.com/r/wallstreetbets/comments/t8axg2/putin_and_russia_could_trigger_nuclear_apocalypse/)
-- [Oil Gang Bitches](https://www.reddit.com/r/wallstreetbets/comments/t8ao8u/oil_gang_bitches/)
-- [With current pace, 50% of high-tech growth stocks will go to zero by end of this year](https://www.reddit.com/r/wallstreetbets/comments/t8ah3x/with_current_pace_50_of_hightech_growth_stocks/)
-- [Buy at the top and wait until it expires worthless. #NIO](https://www.reddit.com/r/wallstreetbets/comments/t89xsb/buy_at_the_top_and_wait_until_it_expires/)
-- [What Are Your Moves Tomorrow, March 07, 2022](https://www.reddit.com/r/wallstreetbets/comments/t889v1/what_are_your_moves_tomorrow_march_07_2022/)
+- [Why would the Stock Market recover right now? There&#39;s going to be an absolutely awful inflation report in 3 days.](https://www.reddit.com/r/wallstreetbets/comments/t9323q/why_would_the_stock_market_recover_right_now/)
+- [Top 5 most well-timed stock purchases by US Congressmen so far in 2022](https://www.reddit.com/r/wallstreetbets/comments/t924sr/top_5_most_welltimed_stock_purchases_by_us/)
+- [I think Gary and the SEC just got my coffee delivery!!](https://www.reddit.com/r/wallstreetbets/comments/t91qf2/i_think_gary_and_the_sec_just_got_my_coffee/)
+- [Tomorrow we shall have an amazing rally, unlike one you’ve ever seen &lpar;since February 24th&rpar;](https://www.reddit.com/r/wallstreetbets/comments/t91ebv/tomorrow_we_shall_have_an_amazing_rally_unlike/)
+- [Dow Falls More Than 700 Points, Enters Correction Territory](https://www.reddit.com/r/wallstreetbets/comments/t9061v/dow_falls_more_than_700_points_enters_correction/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
