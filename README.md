@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why would the Stock Market recover right now? There&#39;s going to be an absolutely awful inflation report in 3 days.](https://www.reddit.com/r/wallstreetbets/comments/t9323q/why_would_the_stock_market_recover_right_now/)
-- [Top 5 most well-timed stock purchases by US Congressmen so far in 2022](https://www.reddit.com/r/wallstreetbets/comments/t924sr/top_5_most_welltimed_stock_purchases_by_us/)
-- [I think Gary and the SEC just got my coffee delivery!!](https://www.reddit.com/r/wallstreetbets/comments/t91qf2/i_think_gary_and_the_sec_just_got_my_coffee/)
-- [Tomorrow we shall have an amazing rally, unlike one you’ve ever seen &lpar;since February 24th&rpar;](https://www.reddit.com/r/wallstreetbets/comments/t91ebv/tomorrow_we_shall_have_an_amazing_rally_unlike/)
-- [Dow Falls More Than 700 Points, Enters Correction Territory](https://www.reddit.com/r/wallstreetbets/comments/t9061v/dow_falls_more_than_700_points_enters_correction/)
+- [I&#39;m down $31,000 in the last six months, 4 bd apt in my city raised by $170,000 in the same period. I earn 6 figures and will never own a house, we are all screwed.](https://www.reddit.com/r/wallstreetbets/comments/t9tra1/im_down_31000_in_the_last_six_months_4_bd_apt_in/)
+- [TIFU by talking to one of your wives.](https://www.reddit.com/r/wallstreetbets/comments/t9tpdo/tifu_by_talking_to_one_of_your_wives/)
+- [U.S. brands Coca-Cola, Pepsi and McDonald’s suspend business in RussiaCompany News](https://www.reddit.com/r/wallstreetbets/comments/t9tdth/us_brands_cocacola_pepsi_and_mcdonalds_suspend/)
+- [Dogs for Autists](https://www.reddit.com/r/wallstreetbets/comments/t9sqcj/dogs_for_autists/)
+- [What Are Your Moves Tomorrow, March 09, 2022](https://www.reddit.com/r/wallstreetbets/comments/t9qrz9/what_are_your_moves_tomorrow_march_09_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
