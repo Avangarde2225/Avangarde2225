@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m down $31,000 in the last six months, 4 bd apt in my city raised by $170,000 in the same period. I earn 6 figures and will never own a house, we are all screwed.](https://www.reddit.com/r/wallstreetbets/comments/t9tra1/im_down_31000_in_the_last_six_months_4_bd_apt_in/)
-- [TIFU by talking to one of your wives.](https://www.reddit.com/r/wallstreetbets/comments/t9tpdo/tifu_by_talking_to_one_of_your_wives/)
-- [U.S. brands Coca-Cola, Pepsi and McDonald’s suspend business in RussiaCompany News](https://www.reddit.com/r/wallstreetbets/comments/t9tdth/us_brands_cocacola_pepsi_and_mcdonalds_suspend/)
-- [Dogs for Autists](https://www.reddit.com/r/wallstreetbets/comments/t9sqcj/dogs_for_autists/)
-- [What Are Your Moves Tomorrow, March 09, 2022](https://www.reddit.com/r/wallstreetbets/comments/t9qrz9/what_are_your_moves_tomorrow_march_09_2022/)
+- [I have to be on the Truman show or something… this is just ridiculous](https://www.reddit.com/r/wallstreetbets/comments/taj0id/i_have_to_be_on_the_truman_show_or_something_this/)
+- [3/9/22 Daily TA](https://www.reddit.com/r/wallstreetbets/comments/taiso0/3922_daily_ta/)
+- [Amazon doing the splits 20-1](https://www.reddit.com/r/wallstreetbets/comments/taif1t/amazon_doing_the_splits_201/)
+- [What Are Your Moves Tomorrow, March 10, 2022](https://www.reddit.com/r/wallstreetbets/comments/tahh1n/what_are_your_moves_tomorrow_march_10_2022/)
+- [$ASTS AST SpaceMobile Announces Multi-Launch Agreement With SpaceX for Planned Direct-to-Cell Phone Connectivity](https://www.reddit.com/r/wallstreetbets/comments/tagyp3/asts_ast_spacemobile_announces_multilaunch/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
