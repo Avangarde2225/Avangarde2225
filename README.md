@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I have to be on the Truman show or something… this is just ridiculous](https://www.reddit.com/r/wallstreetbets/comments/taj0id/i_have_to_be_on_the_truman_show_or_something_this/)
-- [3/9/22 Daily TA](https://www.reddit.com/r/wallstreetbets/comments/taiso0/3922_daily_ta/)
-- [Amazon doing the splits 20-1](https://www.reddit.com/r/wallstreetbets/comments/taif1t/amazon_doing_the_splits_201/)
-- [What Are Your Moves Tomorrow, March 10, 2022](https://www.reddit.com/r/wallstreetbets/comments/tahh1n/what_are_your_moves_tomorrow_march_10_2022/)
-- [$ASTS AST SpaceMobile Announces Multi-Launch Agreement With SpaceX for Planned Direct-to-Cell Phone Connectivity](https://www.reddit.com/r/wallstreetbets/comments/tagyp3/asts_ast_spacemobile_announces_multilaunch/)
+- [Rivian stock falls on earnings report](https://www.reddit.com/r/wallstreetbets/comments/tbcfjy/rivian_stock_falls_on_earnings_report/)
+- [What happened to all the lossporn and gainsporn &lpar;and YOLOs&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/tbbx3f/what_happened_to_all_the_lossporn_and_gainsporn/)
+- [Deutsche Bank defends decision not to exit Russia: It&#39;s not &#39;practical&#39; right now](https://www.reddit.com/r/wallstreetbets/comments/tbboau/deutsche_bank_defends_decision_not_to_exit_russia/)
+- [Fighting for my life out here. Boeing Calls gain.](https://www.reddit.com/r/wallstreetbets/comments/tbbc3b/fighting_for_my_life_out_here_boeing_calls_gain/)
+- [Mentally handicapped man gets fucked hard not knowing it’s earnings&lpar;-20% in less than 5 seconds&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tbbbek/mentally_handicapped_man_gets_fucked_hard_not/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
