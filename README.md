@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Rivian stock falls on earnings report](https://www.reddit.com/r/wallstreetbets/comments/tbcfjy/rivian_stock_falls_on_earnings_report/)
-- [What happened to all the lossporn and gainsporn &lpar;and YOLOs&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/tbbx3f/what_happened_to_all_the_lossporn_and_gainsporn/)
-- [Deutsche Bank defends decision not to exit Russia: It&#39;s not &#39;practical&#39; right now](https://www.reddit.com/r/wallstreetbets/comments/tbboau/deutsche_bank_defends_decision_not_to_exit_russia/)
-- [Fighting for my life out here. Boeing Calls gain.](https://www.reddit.com/r/wallstreetbets/comments/tbbc3b/fighting_for_my_life_out_here_boeing_calls_gain/)
-- [Mentally handicapped man gets fucked hard not knowing it’s earnings&lpar;-20% in less than 5 seconds&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tbbbek/mentally_handicapped_man_gets_fucked_hard_not/)
+- [Calls on beer.](https://www.reddit.com/r/wallstreetbets/comments/tc2ry0/calls_on_beer/)
+- [-73% since](https://www.reddit.com/r/wallstreetbets/comments/tc2iw6/73_since/)
+- [Is this what you’ve all been waiting for?!](https://www.reddit.com/r/wallstreetbets/comments/tc105r/is_this_what_youve_all_been_waiting_for/)
+- [The Wolf of WallStreetBets](https://www.reddit.com/r/wallstreetbets/comments/tc0zja/the_wolf_of_wallstreetbets/)
+- [Weekend Discussion Thread for the Weekend of March 12, 2022](https://www.reddit.com/r/wallstreetbets/comments/tbzzo7/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
