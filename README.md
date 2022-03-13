@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calls on beer.](https://www.reddit.com/r/wallstreetbets/comments/tc2ry0/calls_on_beer/)
-- [-73% since](https://www.reddit.com/r/wallstreetbets/comments/tc2iw6/73_since/)
-- [Is this what you’ve all been waiting for?!](https://www.reddit.com/r/wallstreetbets/comments/tc105r/is_this_what_youve_all_been_waiting_for/)
-- [The Wolf of WallStreetBets](https://www.reddit.com/r/wallstreetbets/comments/tc0zja/the_wolf_of_wallstreetbets/)
-- [Weekend Discussion Thread for the Weekend of March 12, 2022](https://www.reddit.com/r/wallstreetbets/comments/tbzzo7/weekend_discussion_thread_for_the_weekend_of/)
+- [At wsb, we&#39;re all retards. Perfect timing scrolling through my feed.](https://www.reddit.com/r/wallstreetbets/comments/tctdlp/at_wsb_were_all_retards_perfect_timing_scrolling/)
+- [Why only Russian stock market closed?](https://www.reddit.com/r/wallstreetbets/comments/tcs8xz/why_only_russian_stock_market_closed/)
+- [Buy the dipski](https://www.reddit.com/r/wallstreetbets/comments/tcrzro/buy_the_dipski/)
+- [Last year went full ape and got kicked off Robinhood 🦍🙃💰](https://www.reddit.com/r/wallstreetbets/comments/tcrvz1/last_year_went_full_ape_and_got_kicked_off/)
+- [Down six figures and back in the five figure club. On margin call and doubled down. I ain&#39;t no bitch. Just a retard with a pocket full of dreams.](https://www.reddit.com/r/wallstreetbets/comments/tcrnsg/down_six_figures_and_back_in_the_five_figure_club/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
