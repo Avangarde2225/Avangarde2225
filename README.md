@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [At wsb, we&#39;re all retards. Perfect timing scrolling through my feed.](https://www.reddit.com/r/wallstreetbets/comments/tctdlp/at_wsb_were_all_retards_perfect_timing_scrolling/)
-- [Why only Russian stock market closed?](https://www.reddit.com/r/wallstreetbets/comments/tcs8xz/why_only_russian_stock_market_closed/)
-- [Buy the dipski](https://www.reddit.com/r/wallstreetbets/comments/tcrzro/buy_the_dipski/)
-- [Last year went full ape and got kicked off Robinhood 🦍🙃💰](https://www.reddit.com/r/wallstreetbets/comments/tcrvz1/last_year_went_full_ape_and_got_kicked_off/)
-- [Down six figures and back in the five figure club. On margin call and doubled down. I ain&#39;t no bitch. Just a retard with a pocket full of dreams.](https://www.reddit.com/r/wallstreetbets/comments/tcrnsg/down_six_figures_and_back_in_the_five_figure_club/)
+- [So….which of you was it?](https://www.reddit.com/r/wallstreetbets/comments/tdkers/sowhich_of_you_was_it/)
+- [One of you called it. Big Macs in Russia going for $30 USD](https://www.reddit.com/r/wallstreetbets/comments/tdj4wd/one_of_you_called_it_big_macs_in_russia_going_for/)
+- [CCIV 1 year remembrance.](https://www.reddit.com/r/wallstreetbets/comments/tdilb0/cciv_1_year_remembrance/)
+- [You guys wanna see something impressive? First pic was May 7th, 2021. Second pic is from today](https://www.reddit.com/r/wallstreetbets/comments/tdhnv1/you_guys_wanna_see_something_impressive_first_pic/)
+- [True inflation is around 17% &lpar;PRIME DD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tdgzjp/true_inflation_is_around_17_prime_dd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
