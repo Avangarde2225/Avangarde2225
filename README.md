@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [So….which of you was it?](https://www.reddit.com/r/wallstreetbets/comments/tdkers/sowhich_of_you_was_it/)
-- [One of you called it. Big Macs in Russia going for $30 USD](https://www.reddit.com/r/wallstreetbets/comments/tdj4wd/one_of_you_called_it_big_macs_in_russia_going_for/)
-- [CCIV 1 year remembrance.](https://www.reddit.com/r/wallstreetbets/comments/tdilb0/cciv_1_year_remembrance/)
-- [You guys wanna see something impressive? First pic was May 7th, 2021. Second pic is from today](https://www.reddit.com/r/wallstreetbets/comments/tdhnv1/you_guys_wanna_see_something_impressive_first_pic/)
-- [True inflation is around 17% &lpar;PRIME DD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tdgzjp/true_inflation_is_around_17_prime_dd/)
+- [1 week ~~&gt; +$57k](https://www.reddit.com/r/wallstreetbets/comments/tebdwk/1_week_57k/)
+- [current market analysis: If you hold it upside down I made money!](https://www.reddit.com/r/wallstreetbets/comments/teb79s/current_market_analysis_if_you_hold_it_upside/)
+- [Markets have been absolutely brutal to me](https://www.reddit.com/r/wallstreetbets/comments/tea5fb/markets_have_been_absolutely_brutal_to_me/)
+- [The S&amp;P 500 Just Hit a ‘Death Cross.’](https://www.reddit.com/r/wallstreetbets/comments/te7d82/the_sp_500_just_hit_a_death_cross/)
+- [US stock market has gone insane](https://www.reddit.com/r/wallstreetbets/comments/te6w8g/us_stock_market_has_gone_insane/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
