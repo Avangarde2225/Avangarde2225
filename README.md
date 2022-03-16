@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [1 week ~~&gt; +$57k](https://www.reddit.com/r/wallstreetbets/comments/tebdwk/1_week_57k/)
-- [current market analysis: If you hold it upside down I made money!](https://www.reddit.com/r/wallstreetbets/comments/teb79s/current_market_analysis_if_you_hold_it_upside/)
-- [Markets have been absolutely brutal to me](https://www.reddit.com/r/wallstreetbets/comments/tea5fb/markets_have_been_absolutely_brutal_to_me/)
-- [The S&amp;P 500 Just Hit a ‘Death Cross.’](https://www.reddit.com/r/wallstreetbets/comments/te7d82/the_sp_500_just_hit_a_death_cross/)
-- [US stock market has gone insane](https://www.reddit.com/r/wallstreetbets/comments/te6w8g/us_stock_market_has_gone_insane/)
+- [Pro Surfer Nathan Florence using a DFV mug!](https://www.reddit.com/r/wallstreetbets/comments/tf3xf7/pro_surfer_nathan_florence_using_a_dfv_mug/)
+- [🕵️‍♂️ I SPY TA - Wednesday March 16, 2022 &lpar;0dte Scalpers Delight&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tf20n6/i_spy_ta_wednesday_march_16_2022_0dte_scalpers/)
+- [Your Daily Fortune: Palantir will announce a huge partnership with ExxonMobil 🔮](https://www.reddit.com/r/wallstreetbets/comments/teyqyt/your_daily_fortune_palantir_will_announce_a_huge/)
+- [What Are Your Moves Tomorrow, March 16, 2022](https://www.reddit.com/r/wallstreetbets/comments/teyqnm/what_are_your_moves_tomorrow_march_16_2022/)
+- [101: How to Avoid Paying Taxes Legally](https://www.reddit.com/r/wallstreetbets/comments/tevhky/101_how_to_avoid_paying_taxes_legally/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
