@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I don&#39;t care what you say, this retard deserves recognition](https://www.reddit.com/r/wallstreetbets/comments/tfvgbd/i_dont_care_what_you_say_this_retard_deserves/)
-- [Damn I don’t know how my degenerate brain pulled this one off.](https://www.reddit.com/r/wallstreetbets/comments/tfuf1j/damn_i_dont_know_how_my_degenerate_brain_pulled/)
-- [“be greedy when others are fearful” Warren Buffet.](https://www.reddit.com/r/wallstreetbets/comments/tfub27/be_greedy_when_others_are_fearful_warren_buffet/)
-- [This subreddit never eva hits](https://www.reddit.com/r/wallstreetbets/comments/tftkmz/this_subreddit_never_eva_hits/)
-- [When You Yolo All Your Money In China Tech Because JPM Says Its Un-Investible and Make 85K in one day w/o options. Just a Dumb 🦍 who likes Chinese 🚀 stocks.](https://www.reddit.com/r/wallstreetbets/comments/tfszdh/when_you_yolo_all_your_money_in_china_tech/)
+- [Last year I started to focus on investing. Was up $450k now down $200k. In the years before I only held S&amp;P 500. Thank you for the tips guys!](https://www.reddit.com/r/wallstreetbets/comments/tgnupd/last_year_i_started_to_focus_on_investing_was_up/)
+- [Killed it](https://www.reddit.com/r/wallstreetbets/comments/tgm1j7/killed_it/)
+- [Taxes Done ✅](https://www.reddit.com/r/wallstreetbets/comments/tgk8po/taxes_done/)
+- [GME 2021 Q4](https://www.reddit.com/r/wallstreetbets/comments/tgjnms/gme_2021_q4/)
+- [Round 2](https://www.reddit.com/r/wallstreetbets/comments/tgj2hg/round_2/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
