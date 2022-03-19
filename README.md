@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Last year I started to focus on investing. Was up $450k now down $200k. In the years before I only held S&amp;P 500. Thank you for the tips guys!](https://www.reddit.com/r/wallstreetbets/comments/tgnupd/last_year_i_started_to_focus_on_investing_was_up/)
-- [Killed it](https://www.reddit.com/r/wallstreetbets/comments/tgm1j7/killed_it/)
-- [Taxes Done ✅](https://www.reddit.com/r/wallstreetbets/comments/tgk8po/taxes_done/)
-- [GME 2021 Q4](https://www.reddit.com/r/wallstreetbets/comments/tgjnms/gme_2021_q4/)
-- [Round 2](https://www.reddit.com/r/wallstreetbets/comments/tgj2hg/round_2/)
+- [I’m retarded, but at least I haven’t lost all my pandemic gains…yet &lpar;$3k &gt; $228k &gt; $108k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/thhsmq/im_retarded_but_at_least_i_havent_lost_all_my/)
+- [Every &quot;investor&quot; that started in 2020 be like:](https://www.reddit.com/r/wallstreetbets/comments/thhelm/every_investor_that_started_in_2020_be_like/)
+- [Bulls today](https://www.reddit.com/r/wallstreetbets/comments/thgoq6/bulls_today/)
+- [With all this loss porn, how do you boys feel about green?](https://www.reddit.com/r/wallstreetbets/comments/thgoop/with_all_this_loss_porn_how_do_you_boys_feel/)
+- [There&#39;s buying the dip, and there&#39;s licking the plate.](https://www.reddit.com/r/wallstreetbets/comments/thfmw0/theres_buying_the_dip_and_theres_licking_the_plate/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
