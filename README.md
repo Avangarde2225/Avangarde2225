@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I’m retarded, but at least I haven’t lost all my pandemic gains…yet &lpar;$3k &gt; $228k &gt; $108k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/thhsmq/im_retarded_but_at_least_i_havent_lost_all_my/)
-- [Every &quot;investor&quot; that started in 2020 be like:](https://www.reddit.com/r/wallstreetbets/comments/thhelm/every_investor_that_started_in_2020_be_like/)
-- [Bulls today](https://www.reddit.com/r/wallstreetbets/comments/thgoq6/bulls_today/)
-- [With all this loss porn, how do you boys feel about green?](https://www.reddit.com/r/wallstreetbets/comments/thgoop/with_all_this_loss_porn_how_do_you_boys_feel/)
-- [There&#39;s buying the dip, and there&#39;s licking the plate.](https://www.reddit.com/r/wallstreetbets/comments/thfmw0/theres_buying_the_dip_and_theres_licking_the_plate/)
+- [The road to 100k. $500&gt;$45,000 so far](https://www.reddit.com/r/wallstreetbets/comments/ti6cwe/the_road_to_100k_50045000_so_far/)
+- [-$303,000 on the year. Finna V bounce straight back to even. All in $FB calls](https://www.reddit.com/r/wallstreetbets/comments/ti5m3n/303000_on_the_year_finna_v_bounce_straight_back/)
+- [Found the wallstreetbets logo guy](https://www.reddit.com/r/wallstreetbets/comments/ti5jpe/found_the_wallstreetbets_logo_guy/)
+- [Me listening to an earnings call for a company that I own 1 share in.](https://www.reddit.com/r/wallstreetbets/comments/ti4ym7/me_listening_to_an_earnings_call_for_a_company/)
+- [Comic from 1980](https://www.reddit.com/r/wallstreetbets/comments/ti3z4y/comic_from_1980/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
