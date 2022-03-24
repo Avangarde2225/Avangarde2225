@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Let&#39;s take a moment and pay respect](https://www.reddit.com/r/wallstreetbets/comments/tkff34/lets_take_a_moment_and_pay_respect/)
-- [Ryan Cohen Buys 100k more shares of GME today! 🚀 YOLO](https://www.reddit.com/r/wallstreetbets/comments/tkf447/ryan_cohen_buys_100k_more_shares_of_gme_today_yolo/)
-- [50k -&gt; 234k today &lpar;GME Yolo&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tkf0p6/50k_234k_today_gme_yolo/)
-- [GME shorts tomorrow at open.](https://www.reddit.com/r/wallstreetbets/comments/tkeyxq/gme_shorts_tomorrow_at_open/)
-- [GME gains, up 67k in a day](https://www.reddit.com/r/wallstreetbets/comments/tketvq/gme_gains_up_67k_in_a_day/)
+- [600%+ overnight. Thnx GME 🦍](https://www.reddit.com/r/wallstreetbets/comments/tlgmb4/600_overnight_thnx_gme/)
+- [The only GME fundamental that matters](https://www.reddit.com/r/wallstreetbets/comments/tlgede/the_only_gme_fundamental_that_matters/)
+- [Guess who’s about to do something retarded with GME!](https://www.reddit.com/r/wallstreetbets/comments/tlfce7/guess_whos_about_to_do_something_retarded_with_gme/)
+- [Update: 50k -&gt; 234k -&gt; 535k &lpar;GME Yolo&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tlf4zg/update_50k_234k_535k_gme_yolo/)
+- [GME after the earnings dip](https://www.reddit.com/r/wallstreetbets/comments/tldlqk/gme_after_the_earnings_dip/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
