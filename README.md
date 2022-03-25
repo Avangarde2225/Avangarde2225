@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [600%+ overnight. Thnx GME 🦍](https://www.reddit.com/r/wallstreetbets/comments/tlgmb4/600_overnight_thnx_gme/)
-- [The only GME fundamental that matters](https://www.reddit.com/r/wallstreetbets/comments/tlgede/the_only_gme_fundamental_that_matters/)
-- [Guess who’s about to do something retarded with GME!](https://www.reddit.com/r/wallstreetbets/comments/tlfce7/guess_whos_about_to_do_something_retarded_with_gme/)
-- [Update: 50k -&gt; 234k -&gt; 535k &lpar;GME Yolo&rpar;](https://www.reddit.com/r/wallstreetbets/comments/tlf4zg/update_50k_234k_535k_gme_yolo/)
-- [GME after the earnings dip](https://www.reddit.com/r/wallstreetbets/comments/tldlqk/gme_after_the_earnings_dip/)
+- [FOMO incoming Part 2: LFG!](https://www.reddit.com/r/wallstreetbets/comments/tn899g/fomo_incoming_part_2_lfg/)
+- [I painted this ON NEW ISSUE DAY](https://www.reddit.com/r/wallstreetbets/comments/tn7oss/i_painted_this_on_new_issue_day/)
+- [The Great Duel of WSB vs Hedge Funds](https://www.reddit.com/r/wallstreetbets/comments/tn79w2/the_great_duel_of_wsb_vs_hedge_funds/)
+- [Click on the WSB menu and choose &quot;No GME Mode&quot; if you are sick of hearing about it. With that out of the way, this is the way.](https://www.reddit.com/r/wallstreetbets/comments/tn75ph/click_on_the_wsb_menu_and_choose_no_gme_mode_if/)
+- [$GME Borrow Fee is climbing fast.](https://www.reddit.com/r/wallstreetbets/comments/tn6uo5/gme_borrow_fee_is_climbing_fast/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
