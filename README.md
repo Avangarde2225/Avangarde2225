@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [FOMO incoming Part 2: LFG!](https://www.reddit.com/r/wallstreetbets/comments/tn899g/fomo_incoming_part_2_lfg/)
-- [I painted this ON NEW ISSUE DAY](https://www.reddit.com/r/wallstreetbets/comments/tn7oss/i_painted_this_on_new_issue_day/)
-- [The Great Duel of WSB vs Hedge Funds](https://www.reddit.com/r/wallstreetbets/comments/tn79w2/the_great_duel_of_wsb_vs_hedge_funds/)
-- [Click on the WSB menu and choose &quot;No GME Mode&quot; if you are sick of hearing about it. With that out of the way, this is the way.](https://www.reddit.com/r/wallstreetbets/comments/tn75ph/click_on_the_wsb_menu_and_choose_no_gme_mode_if/)
-- [$GME Borrow Fee is climbing fast.](https://www.reddit.com/r/wallstreetbets/comments/tn6uo5/gme_borrow_fee_is_climbing_fast/)
+- [Bloomberg is fed mouthpiece](https://www.reddit.com/r/wallstreetbets/comments/to706y/bloomberg_is_fed_mouthpiece/)
+- [After Cramer called it a nothing company, the market cap of GME is now greater than the market cap of Robinhood](https://www.reddit.com/r/wallstreetbets/comments/to5ucs/after_cramer_called_it_a_nothing_company_the/)
+- [Any day now, right guys?](https://www.reddit.com/r/wallstreetbets/comments/to4is4/any_day_now_right_guys/)
+- [1 GME 😼](https://www.reddit.com/r/wallstreetbets/comments/to4ay8/1_gme/)
+- [Bloomberg article on inflation be like.](https://www.reddit.com/r/wallstreetbets/comments/to48kk/bloomberg_article_on_inflation_be_like/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
