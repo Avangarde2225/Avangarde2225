@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bloomberg is fed mouthpiece](https://www.reddit.com/r/wallstreetbets/comments/to706y/bloomberg_is_fed_mouthpiece/)
-- [After Cramer called it a nothing company, the market cap of GME is now greater than the market cap of Robinhood](https://www.reddit.com/r/wallstreetbets/comments/to5ucs/after_cramer_called_it_a_nothing_company_the/)
-- [Any day now, right guys?](https://www.reddit.com/r/wallstreetbets/comments/to4is4/any_day_now_right_guys/)
-- [1 GME 😼](https://www.reddit.com/r/wallstreetbets/comments/to4ay8/1_gme/)
-- [Bloomberg article on inflation be like.](https://www.reddit.com/r/wallstreetbets/comments/to48kk/bloomberg_article_on_inflation_be_like/)
+- [Looking at gamma levels for the upcoming expirations for $GME](https://www.reddit.com/r/wallstreetbets/comments/tp6bb6/looking_at_gamma_levels_for_the_upcoming/)
+- [I request u/Dangerous_Inspector6 to deliver on their promise from 2 months ago and post the results](https://www.reddit.com/r/wallstreetbets/comments/tp4cnv/i_request_udangerous_inspector6_to_deliver_on/)
+- [THE FOMO WILL BE STRONG NEXT WEEK](https://www.reddit.com/r/wallstreetbets/comments/tp3wcs/the_fomo_will_be_strong_next_week/)
+- [Turned $1050 into 310 shares. What a fun week!](https://www.reddit.com/r/wallstreetbets/comments/tp3e0y/turned_1050_into_310_shares_what_a_fun_week/)
+- [How YouTube TA works](https://www.reddit.com/r/wallstreetbets/comments/tp1wsq/how_youtube_ta_works/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
