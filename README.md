@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Most meme investors tonight...](https://www.reddit.com/r/wallstreetbets/comments/tpvcc3/most_meme_investors_tonight/)
-- [Underwear Index looking strong](https://www.reddit.com/r/wallstreetbets/comments/tpud43/underwear_index_looking_strong/)
-- [It&#39;s time to admit the hard truth, Goodbye trading](https://www.reddit.com/r/wallstreetbets/comments/tpucqk/its_time_to_admit_the_hard_truth_goodbye_trading/)
-- [19 year old robinhood portfolio managers explaining their new hobby to grandma at dinner](https://www.reddit.com/r/wallstreetbets/comments/tptog5/19_year_old_robinhood_portfolio_managers/)
-- [Tis the season y&#39;all](https://www.reddit.com/r/wallstreetbets/comments/tpst50/tis_the_season_yall/)
+- [Stopped trading options for a few months. Put $500 in a WeBull account before GME earnings and 100x&#39;d to $50,000 in 10 days. Can&#39;t wait to DRS after exercising these contracts.](https://www.reddit.com/r/wallstreetbets/comments/tqlxre/stopped_trading_options_for_a_few_months_put_500/)
+- [My wife says Exercise to stay Fit.](https://www.reddit.com/r/wallstreetbets/comments/tqlphl/my_wife_says_exercise_to_stay_fit/)
+- [GME Yolo: 300k-&gt;1.35mil](https://www.reddit.com/r/wallstreetbets/comments/tql3zs/gme_yolo_300k135mil/)
+- [900 to 33k in 15 days. GME](https://www.reddit.com/r/wallstreetbets/comments/tqk2nz/900_to_33k_in_15_days_gme/)
+- [$GME calls. $500 to $20,000 in a week.](https://www.reddit.com/r/wallstreetbets/comments/tqk09e/gme_calls_500_to_20000_in_a_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
