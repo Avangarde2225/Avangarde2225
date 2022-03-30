@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Stopped trading options for a few months. Put $500 in a WeBull account before GME earnings and 100x&#39;d to $50,000 in 10 days. Can&#39;t wait to DRS after exercising these contracts.](https://www.reddit.com/r/wallstreetbets/comments/tqlxre/stopped_trading_options_for_a_few_months_put_500/)
-- [My wife says Exercise to stay Fit.](https://www.reddit.com/r/wallstreetbets/comments/tqlphl/my_wife_says_exercise_to_stay_fit/)
-- [GME Yolo: 300k-&gt;1.35mil](https://www.reddit.com/r/wallstreetbets/comments/tql3zs/gme_yolo_300k135mil/)
-- [900 to 33k in 15 days. GME](https://www.reddit.com/r/wallstreetbets/comments/tqk2nz/900_to_33k_in_15_days_gme/)
-- [$GME calls. $500 to $20,000 in a week.](https://www.reddit.com/r/wallstreetbets/comments/tqk09e/gme_calls_500_to_20000_in_a_week/)
+- [ᴛᴏᴍᴏʀʀᴏᴡ ᴡᴇ ʀɪᴅᴇ ᴏᴜᴛ ᴛᴏ ꜱᴍᴀꜱʜ ᴛʜᴇ ʀᴇꜱɪꜱᴛᴀɴᴄᴇ ᴀᴛ ᴛʜᴇ ᴄʀᴀᴄᴋ ᴏꜰ ᴅᴀᴡɴ](https://www.reddit.com/r/wallstreetbets/comments/trs1rj/ᴛᴏᴍᴏʀʀᴏᴡ_ᴡᴇ_ʀɪᴅᴇ_ᴏᴜᴛ_ᴛᴏ_ꜱᴍᴀꜱʜ_ᴛʜᴇ_ʀᴇꜱɪꜱᴛᴀɴᴄᴇ_ᴀᴛ/)
+- [Picking up $GME is like investing in a dot com startup in the 90s. Fundamentally growing by the day.. 🐂ish AF still.](https://www.reddit.com/r/wallstreetbets/comments/trrt3t/picking_up_gme_is_like_investing_in_a_dot_com/)
+- [So...GME going up tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/trq8cz/sogme_going_up_tomorrow/)
+- [i hope reality sets in soon..](https://www.reddit.com/r/wallstreetbets/comments/trncia/i_hope_reality_sets_in_soon/)
+- [Pain🥲](https://www.reddit.com/r/wallstreetbets/comments/trkxgf/pain/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
