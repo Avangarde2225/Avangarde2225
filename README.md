@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ᴛᴏᴍᴏʀʀᴏᴡ ᴡᴇ ʀɪᴅᴇ ᴏᴜᴛ ᴛᴏ ꜱᴍᴀꜱʜ ᴛʜᴇ ʀᴇꜱɪꜱᴛᴀɴᴄᴇ ᴀᴛ ᴛʜᴇ ᴄʀᴀᴄᴋ ᴏꜰ ᴅᴀᴡɴ](https://www.reddit.com/r/wallstreetbets/comments/trs1rj/ᴛᴏᴍᴏʀʀᴏᴡ_ᴡᴇ_ʀɪᴅᴇ_ᴏᴜᴛ_ᴛᴏ_ꜱᴍᴀꜱʜ_ᴛʜᴇ_ʀᴇꜱɪꜱᴛᴀɴᴄᴇ_ᴀᴛ/)
-- [Picking up $GME is like investing in a dot com startup in the 90s. Fundamentally growing by the day.. 🐂ish AF still.](https://www.reddit.com/r/wallstreetbets/comments/trrt3t/picking_up_gme_is_like_investing_in_a_dot_com/)
-- [So...GME going up tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/trq8cz/sogme_going_up_tomorrow/)
-- [i hope reality sets in soon..](https://www.reddit.com/r/wallstreetbets/comments/trncia/i_hope_reality_sets_in_soon/)
-- [Pain🥲](https://www.reddit.com/r/wallstreetbets/comments/trkxgf/pain/)
+- [Biggest return I’ve hit!](https://www.reddit.com/r/wallstreetbets/comments/tsmfcx/biggest_return_ive_hit/)
+- [I&#39;ve Finally Figured It Out](https://www.reddit.com/r/wallstreetbets/comments/tsm953/ive_finally_figured_it_out/)
+- [Same Cycle, Different Day.](https://www.reddit.com/r/wallstreetbets/comments/tslcs7/same_cycle_different_day/)
+- [MRW I’m doing my taxes, and I find out about the wash-sale rule](https://www.reddit.com/r/wallstreetbets/comments/tsl0nw/mrw_im_doing_my_taxes_and_i_find_out_about_the/)
+- [Who drinks cheap scotch and outraged him?](https://www.reddit.com/r/wallstreetbets/comments/tskmk8/who_drinks_cheap_scotch_and_outraged_him/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
