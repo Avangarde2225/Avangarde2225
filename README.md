@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Biggest return I’ve hit!](https://www.reddit.com/r/wallstreetbets/comments/tsmfcx/biggest_return_ive_hit/)
-- [I&#39;ve Finally Figured It Out](https://www.reddit.com/r/wallstreetbets/comments/tsm953/ive_finally_figured_it_out/)
-- [Same Cycle, Different Day.](https://www.reddit.com/r/wallstreetbets/comments/tslcs7/same_cycle_different_day/)
-- [MRW I’m doing my taxes, and I find out about the wash-sale rule](https://www.reddit.com/r/wallstreetbets/comments/tsl0nw/mrw_im_doing_my_taxes_and_i_find_out_about_the/)
-- [Who drinks cheap scotch and outraged him?](https://www.reddit.com/r/wallstreetbets/comments/tskmk8/who_drinks_cheap_scotch_and_outraged_him/)
+- [Some of you are actually worse at investing than a goldfish](https://www.reddit.com/r/wallstreetbets/comments/ttdicd/some_of_you_are_actually_worse_at_investing_than/)
+- [I Gave My Goldfish $50,000 to Trade Stocks](https://www.reddit.com/r/wallstreetbets/comments/ttdcc4/i_gave_my_goldfish_50000_to_trade_stocks/)
+- [We lost to a fish](https://www.reddit.com/r/wallstreetbets/comments/ttdc85/we_lost_to_a_fish/)
+- [Going BALLS DEEP on this split. 🐻 r fucked](https://www.reddit.com/r/wallstreetbets/comments/ttc4xd/going_balls_deep_on_this_split_r_fucked/)
+- [GME bears fighting all day only to loose in after hours! thx to papa Cohen!](https://www.reddit.com/r/wallstreetbets/comments/ttc24j/gme_bears_fighting_all_day_only_to_loose_in_after/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
