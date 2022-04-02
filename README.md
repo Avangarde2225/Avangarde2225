@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Some of you are actually worse at investing than a goldfish](https://www.reddit.com/r/wallstreetbets/comments/ttdicd/some_of_you_are_actually_worse_at_investing_than/)
-- [I Gave My Goldfish $50,000 to Trade Stocks](https://www.reddit.com/r/wallstreetbets/comments/ttdcc4/i_gave_my_goldfish_50000_to_trade_stocks/)
-- [We lost to a fish](https://www.reddit.com/r/wallstreetbets/comments/ttdc85/we_lost_to_a_fish/)
-- [Going BALLS DEEP on this split. 🐻 r fucked](https://www.reddit.com/r/wallstreetbets/comments/ttc4xd/going_balls_deep_on_this_split_r_fucked/)
-- [GME bears fighting all day only to loose in after hours! thx to papa Cohen!](https://www.reddit.com/r/wallstreetbets/comments/ttc24j/gme_bears_fighting_all_day_only_to_loose_in_after/)
+- [Resigning as Head Mod of r/WallStreetBets](https://www.reddit.com/r/wallstreetbets/comments/tu3p40/resigning_as_head_mod_of_rwallstreetbets/)
+- [Do you guys…](https://www.reddit.com/r/wallstreetbets/comments/tu2u6t/do_you_guys/)
+- [VICTORY IS AT HAND. NOW OSU IS MY BEST FRIEND](https://www.reddit.com/r/wallstreetbets/comments/tu2cr2/victory_is_at_hand_now_osu_is_my_best_friend/)
+- [Power to the Ape 🦍 🦧](https://www.reddit.com/r/wallstreetbets/comments/tu160t/power_to_the_ape/)
+- [BREAKING: THE INVASION OF LITHUANIA HAS BEGUN](https://www.reddit.com/r/wallstreetbets/comments/tu08at/breaking_the_invasion_of_lithuania_has_begun/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
