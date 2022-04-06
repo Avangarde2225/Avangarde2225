@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [State of Reddit /r/Place 2022](https://www.reddit.com/r/wallstreetbets/comments/twhpbv/state_of_reddit_rplace_2022/)
-- [The top is in boys.](https://www.reddit.com/r/wallstreetbets/comments/twgi9a/the_top_is_in_boys/)
-- [Loading… Fresh New Sanctions](https://www.reddit.com/r/wallstreetbets/comments/twfsmv/loading_fresh_new_sanctions/)
-- [Lost over 100 grand in a couple months on my dads IRA. But its comeback season boys.... Grab a coffee and buckle up](https://www.reddit.com/r/wallstreetbets/comments/twexv3/lost_over_100_grand_in_a_couple_months_on_my_dads/)
-- [How to boost user stats before IPO!](https://www.reddit.com/r/wallstreetbets/comments/twemi1/how_to_boost_user_stats_before_ipo/)
+- [When you and the boys invested in the same stock](https://www.reddit.com/r/wallstreetbets/comments/tx8fjk/when_you_and_the_boys_invested_in_the_same_stock/)
+- [The most liquid asset](https://www.reddit.com/r/wallstreetbets/comments/tx7t8n/the_most_liquid_asset/)
+- [Gamestop share record date April 8, 2022](https://www.reddit.com/r/wallstreetbets/comments/tx6je3/gamestop_share_record_date_april_8_2022/)
+- [Which one of you autist apes was I behind on my way home today?!?](https://www.reddit.com/r/wallstreetbets/comments/tx6h7g/which_one_of_you_autist_apes_was_i_behind_on_my/)
+- [Bers btfo 🐻](https://www.reddit.com/r/wallstreetbets/comments/tx5gi7/bers_btfo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
