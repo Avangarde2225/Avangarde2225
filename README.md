@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When you and the boys invested in the same stock](https://www.reddit.com/r/wallstreetbets/comments/tx8fjk/when_you_and_the_boys_invested_in_the_same_stock/)
-- [The most liquid asset](https://www.reddit.com/r/wallstreetbets/comments/tx7t8n/the_most_liquid_asset/)
-- [Gamestop share record date April 8, 2022](https://www.reddit.com/r/wallstreetbets/comments/tx6je3/gamestop_share_record_date_april_8_2022/)
-- [Which one of you autist apes was I behind on my way home today?!?](https://www.reddit.com/r/wallstreetbets/comments/tx6h7g/which_one_of_you_autist_apes_was_i_behind_on_my/)
-- [Bers btfo 🐻](https://www.reddit.com/r/wallstreetbets/comments/tx5gi7/bers_btfo/)
+- [One of us!](https://www.reddit.com/r/wallstreetbets/comments/txyydm/one_of_us/)
+- [accept my fucking art retards this took me 2 months](https://www.reddit.com/r/wallstreetbets/comments/txyxud/accept_my_fucking_art_retards_this_took_me_2/)
+- [🌈🧸🎈](https://www.reddit.com/r/wallstreetbets/comments/txyxeo/_/)
+- [Tomorrow is the last day before the share recount $GME…](https://www.reddit.com/r/wallstreetbets/comments/txyaf7/tomorrow_is_the_last_day_before_the_share_recount/)
+- [Ya&#39;ll bought so many HMHC lottery tickets, they&#39;re on to us.](https://www.reddit.com/r/wallstreetbets/comments/txy6bg/yall_bought_so_many_hmhc_lottery_tickets_theyre/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
