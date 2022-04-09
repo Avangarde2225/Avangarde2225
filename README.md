@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$600 &gt;93k &gt; 40k in a week on SST. Still holding.](https://www.reddit.com/r/wallstreetbets/comments/typmth/600_93k_40k_in_a_week_on_sst_still_holding/)
-- [More bullish news for TSLA and TWTR 🚀🚀🚀🌚🌚 Ready to penetrate the MOON!!](https://www.reddit.com/r/wallstreetbets/comments/typ6rw/more_bullish_news_for_tsla_and_twtr_ready_to/)
-- [44k Bet on APPL tomorrow..wish me luck](https://www.reddit.com/r/wallstreetbets/comments/tynzwo/44k_bet_on_appl_tomorrowwish_me_luck/)
-- [I think its official we are Tits Up.](https://www.reddit.com/r/wallstreetbets/comments/tym6qy/i_think_its_official_we_are_tits_up/)
-- [&quot;The Constitution is transitory&quot; 🤷‍♂️](https://www.reddit.com/r/wallstreetbets/comments/tylkv1/the_constitution_is_transitory/)
+- [Putting this on my port](https://www.reddit.com/r/wallstreetbets/comments/tzgili/putting_this_on_my_port/)
+- [When Markets close for the weekend](https://www.reddit.com/r/wallstreetbets/comments/tze4ad/when_markets_close_for_the_weekend/)
+- [My account after trades that literally cannot go tits up](https://www.reddit.com/r/wallstreetbets/comments/tzcwgw/my_account_after_trades_that_literally_cannot_go/)
+- [In case some of us forgot.](https://www.reddit.com/r/wallstreetbets/comments/tzcjah/in_case_some_of_us_forgot/)
+- [Bulls and Bears watching their options get fucked](https://www.reddit.com/r/wallstreetbets/comments/tzchoh/bulls_and_bears_watching_their_options_get_fucked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
