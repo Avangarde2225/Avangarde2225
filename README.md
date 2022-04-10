@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Putting this on my port](https://www.reddit.com/r/wallstreetbets/comments/tzgili/putting_this_on_my_port/)
-- [When Markets close for the weekend](https://www.reddit.com/r/wallstreetbets/comments/tze4ad/when_markets_close_for_the_weekend/)
-- [My account after trades that literally cannot go tits up](https://www.reddit.com/r/wallstreetbets/comments/tzcwgw/my_account_after_trades_that_literally_cannot_go/)
-- [In case some of us forgot.](https://www.reddit.com/r/wallstreetbets/comments/tzcjah/in_case_some_of_us_forgot/)
-- [Bulls and Bears watching their options get fucked](https://www.reddit.com/r/wallstreetbets/comments/tzchoh/bulls_and_bears_watching_their_options_get_fucked/)
+- [How it feels having sold SST for $12](https://www.reddit.com/r/wallstreetbets/comments/u05och/how_it_feels_having_sold_sst_for_12/)
+- [played Tesla options last week. 5k to 17k](https://www.reddit.com/r/wallstreetbets/comments/u04zf6/played_tesla_options_last_week_5k_to_17k/)
+- [Is the market beginning to get liquidated or is this just a dip?](https://www.reddit.com/r/wallstreetbets/comments/u04ex7/is_the_market_beginning_to_get_liquidated_or_is/)
+- [Soybean futures 😍](https://www.reddit.com/r/wallstreetbets/comments/u0471f/soybean_futures/)
+- [I’m going all in!](https://www.reddit.com/r/wallstreetbets/comments/u02enw/im_going_all_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
