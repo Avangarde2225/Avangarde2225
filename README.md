@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Perfect Negative Correlation](https://www.reddit.com/r/wallstreetbets/comments/u0uxec/perfect_negative_correlation/)
-- [Jeff bezos and Elon musk discussion about Twitter.](https://www.reddit.com/r/wallstreetbets/comments/u0u1io/jeff_bezos_and_elon_musk_discussion_about_twitter/)
-- [🆘 Can I refuse delivery on 50 tons of Egg futures? 🆘](https://www.reddit.com/r/wallstreetbets/comments/u0tvnj/can_i_refuse_delivery_on_50_tons_of_egg_futures/)
-- [Meme](https://www.reddit.com/r/wallstreetbets/comments/u0tuq8/meme/)
-- [Circle Of Life](https://www.reddit.com/r/wallstreetbets/comments/u0smjd/circle_of_life/)
+- [$100,000 in a bank account earns less than $100 per year, $100,000 invested in an S&amp;P 500 index fund can earn over $10,000 per year. You cannot save your way to wealth, you must invest. The wealthy understand this.](https://www.reddit.com/r/wallstreetbets/comments/u1k9ir/100000_in_a_bank_account_earns_less_than_100_per/)
+- [puts on everything, always inverse Cramer you know the rule](https://www.reddit.com/r/wallstreetbets/comments/u1hr2k/puts_on_everything_always_inverse_cramer_you_know/)
+- [Twitter be like…](https://www.reddit.com/r/wallstreetbets/comments/u1hb05/twitter_be_like/)
+- [Let get fucked. This is not how imagined 2022. I feel like shutting down the operation and just disappear for a year.](https://www.reddit.com/r/wallstreetbets/comments/u1gfrc/let_get_fucked_this_is_not_how_imagined_2022_i/)
+- [$990 to Infinity update](https://www.reddit.com/r/wallstreetbets/comments/u1gblz/990_to_infinity_update/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
