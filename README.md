@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$100,000 in a bank account earns less than $100 per year, $100,000 invested in an S&amp;P 500 index fund can earn over $10,000 per year. You cannot save your way to wealth, you must invest. The wealthy understand this.](https://www.reddit.com/r/wallstreetbets/comments/u1k9ir/100000_in_a_bank_account_earns_less_than_100_per/)
-- [puts on everything, always inverse Cramer you know the rule](https://www.reddit.com/r/wallstreetbets/comments/u1hr2k/puts_on_everything_always_inverse_cramer_you_know/)
-- [Twitter be like…](https://www.reddit.com/r/wallstreetbets/comments/u1hb05/twitter_be_like/)
-- [Let get fucked. This is not how imagined 2022. I feel like shutting down the operation and just disappear for a year.](https://www.reddit.com/r/wallstreetbets/comments/u1gfrc/let_get_fucked_this_is_not_how_imagined_2022_i/)
-- [$990 to Infinity update](https://www.reddit.com/r/wallstreetbets/comments/u1gblz/990_to_infinity_update/)
+- [The most expensive class you&#39;ll ever take](https://www.reddit.com/r/wallstreetbets/comments/u2cxec/the_most_expensive_class_youll_ever_take/)
+- [looks like NASDAQ soon.](https://www.reddit.com/r/wallstreetbets/comments/u2bvj8/looks_like_nasdaq_soon/)
+- [Babe wake up, new recession DLC just dropped](https://www.reddit.com/r/wallstreetbets/comments/u2azqa/babe_wake_up_new_recession_dlc_just_dropped/)
+- [Yo 🌈🐻, I didn’t hear no bell. Fuck you.](https://www.reddit.com/r/wallstreetbets/comments/u2ac5i/yo_i_didnt_hear_no_bell_fuck_you/)
+- [Cramer has started to inverse himself](https://www.reddit.com/r/wallstreetbets/comments/u29sqx/cramer_has_started_to_inverse_himself/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
