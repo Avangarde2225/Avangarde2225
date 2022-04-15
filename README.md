@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We are definitely not in a bubble](https://www.reddit.com/r/wallstreetbets/comments/u33mfi/we_are_definitely_not_in_a_bubble/)
-- [As per my technical analysis on the Weekly timeframe of the SP500. The Index can either go Up or Down.](https://www.reddit.com/r/wallstreetbets/comments/u339fi/as_per_my_technical_analysis_on_the_weekly/)
-- [&quot;Trust me on this one guys, look at everyone who agrees with my DD. This is an ez 10 bagger.&quot;](https://www.reddit.com/r/wallstreetbets/comments/u30haw/trust_me_on_this_one_guys_look_at_everyone_who/)
-- [Warren Icahn, best investor of all time](https://www.reddit.com/r/wallstreetbets/comments/u30f1i/warren_icahn_best_investor_of_all_time/)
-- [Taxes 😭😂](https://www.reddit.com/r/wallstreetbets/comments/u2znjg/taxes/)
+- [Better than being a billionaire I guess](https://www.reddit.com/r/wallstreetbets/comments/u3tttr/better_than_being_a_billionaire_i_guess/)
+- [Live Shot of Woke Twitter Employees at Twitter HQ This Morning](https://www.reddit.com/r/wallstreetbets/comments/u3rpsc/live_shot_of_woke_twitter_employees_at_twitter_hq/)
+- [Alexa, What Is A Hobby?](https://www.reddit.com/r/wallstreetbets/comments/u3r6i6/alexa_what_is_a_hobby/)
+- [Me this morning after buying two Twitter shares, waiting for Elon to make me an offer](https://www.reddit.com/r/wallstreetbets/comments/u3qy9m/me_this_morning_after_buying_two_twitter_shares/)
+- [Weekend Discussion Thread for the Weekend of April 15, 2022](https://www.reddit.com/r/wallstreetbets/comments/u3pyr3/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
