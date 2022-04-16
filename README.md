@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Better than being a billionaire I guess](https://www.reddit.com/r/wallstreetbets/comments/u3tttr/better_than_being_a_billionaire_i_guess/)
-- [Live Shot of Woke Twitter Employees at Twitter HQ This Morning](https://www.reddit.com/r/wallstreetbets/comments/u3rpsc/live_shot_of_woke_twitter_employees_at_twitter_hq/)
-- [Alexa, What Is A Hobby?](https://www.reddit.com/r/wallstreetbets/comments/u3r6i6/alexa_what_is_a_hobby/)
-- [Me this morning after buying two Twitter shares, waiting for Elon to make me an offer](https://www.reddit.com/r/wallstreetbets/comments/u3qy9m/me_this_morning_after_buying_two_twitter_shares/)
-- [Weekend Discussion Thread for the Weekend of April 15, 2022](https://www.reddit.com/r/wallstreetbets/comments/u3pyr3/weekend_discussion_thread_for_the_weekend_of/)
+- [....](https://www.reddit.com/r/wallstreetbets/comments/u4kqos/_/)
+- [Actual footage of Twitter board members](https://www.reddit.com/r/wallstreetbets/comments/u4kk2u/actual_footage_of_twitter_board_members/)
+- [Elon saving $54 billion dollars with this trick](https://www.reddit.com/r/wallstreetbets/comments/u4kck4/elon_saving_54_billion_dollars_with_this_trick/)
+- [Happy DFV Day - 1 Year Anniversary from Europe!](https://www.reddit.com/r/wallstreetbets/comments/u4k90e/happy_dfv_day_1_year_anniversary_from_europe/)
+- [Heard you guys like this stuff](https://www.reddit.com/r/wallstreetbets/comments/u4jjse/heard_you_guys_like_this_stuff/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
