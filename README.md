@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [....](https://www.reddit.com/r/wallstreetbets/comments/u4kqos/_/)
-- [Actual footage of Twitter board members](https://www.reddit.com/r/wallstreetbets/comments/u4kk2u/actual_footage_of_twitter_board_members/)
-- [Elon saving $54 billion dollars with this trick](https://www.reddit.com/r/wallstreetbets/comments/u4kck4/elon_saving_54_billion_dollars_with_this_trick/)
-- [Happy DFV Day - 1 Year Anniversary from Europe!](https://www.reddit.com/r/wallstreetbets/comments/u4k90e/happy_dfv_day_1_year_anniversary_from_europe/)
-- [Heard you guys like this stuff](https://www.reddit.com/r/wallstreetbets/comments/u4jjse/heard_you_guys_like_this_stuff/)
+- [This may explain why the board didn’t jump at Elon’s offer](https://www.reddit.com/r/wallstreetbets/comments/u5auoa/this_may_explain_why_the_board_didnt_jump_at/)
+- [Was OP right? Posted many moons ago](https://www.reddit.com/r/wallstreetbets/comments/u5a5p3/was_op_right_posted_many_moons_ago/)
+- [“I made an offer”](https://www.reddit.com/r/wallstreetbets/comments/u5a02r/i_made_an_offer/)
+- [Is Metaverse investment really a good choice?](https://www.reddit.com/r/wallstreetbets/comments/u591z2/is_metaverse_investment_really_a_good_choice/)
+- [He’ll tweet when he’s ready. 😂](https://www.reddit.com/r/wallstreetbets/comments/u590pn/hell_tweet_when_hes_ready/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
