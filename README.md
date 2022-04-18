@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This may explain why the board didn’t jump at Elon’s offer](https://www.reddit.com/r/wallstreetbets/comments/u5auoa/this_may_explain_why_the_board_didnt_jump_at/)
-- [Was OP right? Posted many moons ago](https://www.reddit.com/r/wallstreetbets/comments/u5a5p3/was_op_right_posted_many_moons_ago/)
-- [“I made an offer”](https://www.reddit.com/r/wallstreetbets/comments/u5a02r/i_made_an_offer/)
-- [Is Metaverse investment really a good choice?](https://www.reddit.com/r/wallstreetbets/comments/u591z2/is_metaverse_investment_really_a_good_choice/)
-- [He’ll tweet when he’s ready. 😂](https://www.reddit.com/r/wallstreetbets/comments/u590pn/hell_tweet_when_hes_ready/)
+- [Stonk Wars 2022](https://www.reddit.com/r/wallstreetbets/comments/u5yp16/stonk_wars_2022/)
+- [+1000%](https://www.reddit.com/r/wallstreetbets/comments/u5y38s/1000/)
+- [When the dip getting dipper and dipper 📉📉😂](https://www.reddit.com/r/wallstreetbets/comments/u5xkyl/when_the_dip_getting_dipper_and_dipper/)
+- [Best he can do](https://www.reddit.com/r/wallstreetbets/comments/u5w3xk/best_he_can_do/)
+- [Trading 0DTE options be like](https://www.reddit.com/r/wallstreetbets/comments/u5vwmq/trading_0dte_options_be_like/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
