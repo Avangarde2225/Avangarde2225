@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Stonk Wars 2022](https://www.reddit.com/r/wallstreetbets/comments/u5yp16/stonk_wars_2022/)
-- [+1000%](https://www.reddit.com/r/wallstreetbets/comments/u5y38s/1000/)
-- [When the dip getting dipper and dipper 📉📉😂](https://www.reddit.com/r/wallstreetbets/comments/u5xkyl/when_the_dip_getting_dipper_and_dipper/)
-- [Best he can do](https://www.reddit.com/r/wallstreetbets/comments/u5w3xk/best_he_can_do/)
-- [Trading 0DTE options be like](https://www.reddit.com/r/wallstreetbets/comments/u5vwmq/trading_0dte_options_be_like/)
+- [Wish I made even that $38 though 🥲](https://www.reddit.com/r/wallstreetbets/comments/u6rdn6/wish_i_made_even_that_38_though/)
+- [Nice!](https://www.reddit.com/r/wallstreetbets/comments/u6quud/nice/)
+- [🦍 💎 🙌](https://www.reddit.com/r/wallstreetbets/comments/u6qomn/_/)
+- [When people say &quot;Open the casino&quot; before the market opens](https://www.reddit.com/r/wallstreetbets/comments/u6qhv5/when_people_say_open_the_casino_before_the_market/)
+- [I still don&#39;t understand how GME doesn&#39;t defy the efficient market hypothesis.](https://www.reddit.com/r/wallstreetbets/comments/u6pp8i/i_still_dont_understand_how_gme_doesnt_defy_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
