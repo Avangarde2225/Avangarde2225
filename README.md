@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wish I made even that $38 though 🥲](https://www.reddit.com/r/wallstreetbets/comments/u6rdn6/wish_i_made_even_that_38_though/)
-- [Nice!](https://www.reddit.com/r/wallstreetbets/comments/u6quud/nice/)
-- [🦍 💎 🙌](https://www.reddit.com/r/wallstreetbets/comments/u6qomn/_/)
-- [When people say &quot;Open the casino&quot; before the market opens](https://www.reddit.com/r/wallstreetbets/comments/u6qhv5/when_people_say_open_the_casino_before_the_market/)
-- [I still don&#39;t understand how GME doesn&#39;t defy the efficient market hypothesis.](https://www.reddit.com/r/wallstreetbets/comments/u6pp8i/i_still_dont_understand_how_gme_doesnt_defy_the/)
+- [Zuckercuck starts sweating](https://www.reddit.com/r/wallstreetbets/comments/u7gxjn/zuckercuck_starts_sweating/)
+- [Perfect call by Cramer yet again](https://www.reddit.com/r/wallstreetbets/comments/u7gxf7/perfect_call_by_cramer_yet_again/)
+- [Thanks Netflix](https://www.reddit.com/r/wallstreetbets/comments/u7gqoj/thanks_netflix/)
+- [$NFLX bag holders rn](https://www.reddit.com/r/wallstreetbets/comments/u7gl8o/nflx_bag_holders_rn/)
+- [ᴛᴡᴇʟᴠᴇ ᴍɪʟʟɪᴏɴ ᴀᴜᴛɪꜱᴛɪᴄ ᴅᴇɢᴇɴᴇʀᴀᴛᴇꜱ ꜱᴛʀᴏɴɢ](https://www.reddit.com/r/wallstreetbets/comments/u7fprf/ᴛᴡᴇʟᴠᴇ_ᴍɪʟʟɪᴏɴ_ᴀᴜᴛɪꜱᴛɪᴄ_ᴅᴇɢᴇɴᴇʀᴀᴛᴇꜱ_ꜱᴛʀᴏɴɢ/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
