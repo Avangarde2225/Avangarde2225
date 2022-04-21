@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Zuckercuck starts sweating](https://www.reddit.com/r/wallstreetbets/comments/u7gxjn/zuckercuck_starts_sweating/)
-- [Perfect call by Cramer yet again](https://www.reddit.com/r/wallstreetbets/comments/u7gxf7/perfect_call_by_cramer_yet_again/)
-- [Thanks Netflix](https://www.reddit.com/r/wallstreetbets/comments/u7gqoj/thanks_netflix/)
-- [$NFLX bag holders rn](https://www.reddit.com/r/wallstreetbets/comments/u7gl8o/nflx_bag_holders_rn/)
-- [ᴛᴡᴇʟᴠᴇ ᴍɪʟʟɪᴏɴ ᴀᴜᴛɪꜱᴛɪᴄ ᴅᴇɢᴇɴᴇʀᴀᴛᴇꜱ ꜱᴛʀᴏɴɢ](https://www.reddit.com/r/wallstreetbets/comments/u7fprf/ᴛᴡᴇʟᴠᴇ_ᴍɪʟʟɪᴏɴ_ᴀᴜᴛɪꜱᴛɪᴄ_ᴅᴇɢᴇɴᴇʀᴀᴛᴇꜱ_ꜱᴛʀᴏɴɢ/)
+- [Please post your loss porn, Bill!](https://www.reddit.com/r/wallstreetbets/comments/u88veb/please_post_your_loss_porn_bill/)
+- [An elder degenerate on 4/20? &lpar;👀 the plate&rpar;](https://www.reddit.com/r/wallstreetbets/comments/u88a4z/an_elder_degenerate_on_420_the_plate/)
+- [Things that won’t happen for $977 please](https://www.reddit.com/r/wallstreetbets/comments/u87f2g/things_that_wont_happen_for_977_please/)
+- [State of California lost approximately $685M on NFLX position](https://www.reddit.com/r/wallstreetbets/comments/u8745q/state_of_california_lost_approximately_685m_on/)
+- [Hey Netflix! I am a professional graphic designer, I can save your company by creating a new logo for your rebranding. Here it is:](https://www.reddit.com/r/wallstreetbets/comments/u86rsg/hey_netflix_i_am_a_professional_graphic_designer/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
