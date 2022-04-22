@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Please post your loss porn, Bill!](https://www.reddit.com/r/wallstreetbets/comments/u88veb/please_post_your_loss_porn_bill/)
-- [An elder degenerate on 4/20? &lpar;👀 the plate&rpar;](https://www.reddit.com/r/wallstreetbets/comments/u88a4z/an_elder_degenerate_on_420_the_plate/)
-- [Things that won’t happen for $977 please](https://www.reddit.com/r/wallstreetbets/comments/u87f2g/things_that_wont_happen_for_977_please/)
-- [State of California lost approximately $685M on NFLX position](https://www.reddit.com/r/wallstreetbets/comments/u8745q/state_of_california_lost_approximately_685m_on/)
-- [Hey Netflix! I am a professional graphic designer, I can save your company by creating a new logo for your rebranding. Here it is:](https://www.reddit.com/r/wallstreetbets/comments/u86rsg/hey_netflix_i_am_a_professional_graphic_designer/)
+- [One to go](https://www.reddit.com/r/wallstreetbets/comments/u90gtm/one_to_go/)
+- [but I&#39;m green so I think I&#39;m ok](https://www.reddit.com/r/wallstreetbets/comments/u8zc43/but_im_green_so_i_think_im_ok/)
+- [Do I hear a GME stock split coming on June 3rd? Hell Yea!!!](https://www.reddit.com/r/wallstreetbets/comments/u8you9/do_i_hear_a_gme_stock_split_coming_on_june_3rd/)
+- [not suspicious at all](https://www.reddit.com/r/wallstreetbets/comments/u8ymtu/not_suspicious_at_all/)
+- [Petition to make upvotes tits up and downvotes soft dongs](https://www.reddit.com/r/wallstreetbets/comments/u8wx25/petition_to_make_upvotes_tits_up_and_downvotes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
