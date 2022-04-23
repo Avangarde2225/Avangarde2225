@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One to go](https://www.reddit.com/r/wallstreetbets/comments/u90gtm/one_to_go/)
-- [but I&#39;m green so I think I&#39;m ok](https://www.reddit.com/r/wallstreetbets/comments/u8zc43/but_im_green_so_i_think_im_ok/)
-- [Do I hear a GME stock split coming on June 3rd? Hell Yea!!!](https://www.reddit.com/r/wallstreetbets/comments/u8you9/do_i_hear_a_gme_stock_split_coming_on_june_3rd/)
-- [not suspicious at all](https://www.reddit.com/r/wallstreetbets/comments/u8ymtu/not_suspicious_at_all/)
-- [Petition to make upvotes tits up and downvotes soft dongs](https://www.reddit.com/r/wallstreetbets/comments/u8wx25/petition_to_make_upvotes_tits_up_and_downvotes/)
+- [Zuck practicing for next weeks earnings.](https://www.reddit.com/r/wallstreetbets/comments/u9r1gj/zuck_practicing_for_next_weeks_earnings/)
+- [The bull has been castrated.](https://www.reddit.com/r/wallstreetbets/comments/u9qbuw/the_bull_has_been_castrated/)
+- [Cramer guide to investing](https://www.reddit.com/r/wallstreetbets/comments/u9p8da/cramer_guide_to_investing/)
+- [Yes it is](https://www.reddit.com/r/wallstreetbets/comments/u9oqxr/yes_it_is/)
+- [Kiss of Death for Disney by Cramer](https://www.reddit.com/r/wallstreetbets/comments/u9oq4w/kiss_of_death_for_disney_by_cramer/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
