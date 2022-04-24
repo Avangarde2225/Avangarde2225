@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Zuck practicing for next weeks earnings.](https://www.reddit.com/r/wallstreetbets/comments/u9r1gj/zuck_practicing_for_next_weeks_earnings/)
-- [The bull has been castrated.](https://www.reddit.com/r/wallstreetbets/comments/u9qbuw/the_bull_has_been_castrated/)
-- [Cramer guide to investing](https://www.reddit.com/r/wallstreetbets/comments/u9p8da/cramer_guide_to_investing/)
-- [Yes it is](https://www.reddit.com/r/wallstreetbets/comments/u9oqxr/yes_it_is/)
-- [Kiss of Death for Disney by Cramer](https://www.reddit.com/r/wallstreetbets/comments/u9oq4w/kiss_of_death_for_disney_by_cramer/)
+- [Sold a Porsche to buy GME/AMC🚀](https://www.reddit.com/r/wallstreetbets/comments/uahq59/sold_a_porsche_to_buy_gmeamc/)
+- [May the Force be with us...](https://www.reddit.com/r/wallstreetbets/comments/uahm55/may_the_force_be_with_us/)
+- [Hey guys! They recommended me this book before I start trading. Am I set now?](https://www.reddit.com/r/wallstreetbets/comments/uag6vw/hey_guys_they_recommended_me_this_book_before_i/)
+- [I’m margin call Rick!](https://www.reddit.com/r/wallstreetbets/comments/uafb20/im_margin_call_rick/)
+- [I asked her to send me the money in the form of GME shares via ComputerShare. Another $2.5 million worth of shares locked in the float, bitches!](https://www.reddit.com/r/wallstreetbets/comments/uaf8ju/i_asked_her_to_send_me_the_money_in_the_form_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
