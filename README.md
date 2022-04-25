@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sold a Porsche to buy GME/AMC🚀](https://www.reddit.com/r/wallstreetbets/comments/uahq59/sold_a_porsche_to_buy_gmeamc/)
-- [May the Force be with us...](https://www.reddit.com/r/wallstreetbets/comments/uahm55/may_the_force_be_with_us/)
-- [Hey guys! They recommended me this book before I start trading. Am I set now?](https://www.reddit.com/r/wallstreetbets/comments/uag6vw/hey_guys_they_recommended_me_this_book_before_i/)
-- [I’m margin call Rick!](https://www.reddit.com/r/wallstreetbets/comments/uafb20/im_margin_call_rick/)
-- [I asked her to send me the money in the form of GME shares via ComputerShare. Another $2.5 million worth of shares locked in the float, bitches!](https://www.reddit.com/r/wallstreetbets/comments/uaf8ju/i_asked_her_to_send_me_the_money_in_the_form_of/)
+- [Melvin Capital apologizes to investors](https://www.reddit.com/r/wallstreetbets/comments/ub5t0b/melvin_capital_apologizes_to_investors/)
+- [cutting my electricity](https://www.reddit.com/r/wallstreetbets/comments/ub4u81/cutting_my_electricity/)
+- [Nothing can stop me, I&#39;m all the way up](https://www.reddit.com/r/wallstreetbets/comments/ub4mrh/nothing_can_stop_me_im_all_the_way_up/)
+- [My portfolio recently](https://www.reddit.com/r/wallstreetbets/comments/ub43ux/my_portfolio_recently/)
+- [When you’re trying to be included is ESG investment firms](https://www.reddit.com/r/wallstreetbets/comments/ub3x6o/when_youre_trying_to_be_included_is_esg/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
