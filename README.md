@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Melvin Capital apologizes to investors](https://www.reddit.com/r/wallstreetbets/comments/ub5t0b/melvin_capital_apologizes_to_investors/)
-- [cutting my electricity](https://www.reddit.com/r/wallstreetbets/comments/ub4u81/cutting_my_electricity/)
-- [Nothing can stop me, I&#39;m all the way up](https://www.reddit.com/r/wallstreetbets/comments/ub4mrh/nothing_can_stop_me_im_all_the_way_up/)
-- [My portfolio recently](https://www.reddit.com/r/wallstreetbets/comments/ub43ux/my_portfolio_recently/)
-- [When you’re trying to be included is ESG investment firms](https://www.reddit.com/r/wallstreetbets/comments/ub3x6o/when_youre_trying_to_be_included_is_esg/)
+- [Not true, but still funny…](https://www.reddit.com/r/wallstreetbets/comments/ubyjja/not_true_but_still_funny/)
+- [Markets are mooning tomorrow 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ubyaks/markets_are_mooning_tomorrow/)
+- [I guess people are choosing free speech over ending world hunger….](https://www.reddit.com/r/wallstreetbets/comments/ubxtcx/i_guess_people_are_choosing_free_speech_over/)
+- [As an airline pilot... Please don&#39;t](https://www.reddit.com/r/wallstreetbets/comments/ubxqry/as_an_airline_pilot_please_dont/)
+- [Lord Musk approved](https://www.reddit.com/r/wallstreetbets/comments/ubxbc9/lord_musk_approved/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
