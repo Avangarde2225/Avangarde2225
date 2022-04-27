@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Not true, but still funny…](https://www.reddit.com/r/wallstreetbets/comments/ubyjja/not_true_but_still_funny/)
-- [Markets are mooning tomorrow 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ubyaks/markets_are_mooning_tomorrow/)
-- [I guess people are choosing free speech over ending world hunger….](https://www.reddit.com/r/wallstreetbets/comments/ubxtcx/i_guess_people_are_choosing_free_speech_over/)
-- [As an airline pilot... Please don&#39;t](https://www.reddit.com/r/wallstreetbets/comments/ubxqry/as_an_airline_pilot_please_dont/)
-- [Lord Musk approved](https://www.reddit.com/r/wallstreetbets/comments/ubxbc9/lord_musk_approved/)
+- [Legend](https://www.reddit.com/r/wallstreetbets/comments/ucoujr/legend/)
+- [#2022 #twitter #elon #moon](https://www.reddit.com/r/wallstreetbets/comments/ucorcb/2022_twitter_elon_moon/)
+- [The Fed&#39;s soft landing](https://www.reddit.com/r/wallstreetbets/comments/ucnvaz/the_feds_soft_landing/)
+- [This years crash is almost behind us!](https://www.reddit.com/r/wallstreetbets/comments/ucn05r/this_years_crash_is_almost_behind_us/)
+- [&quot;Now I am become death, destroyer of portfolios&quot; - Jim Cramer probably](https://www.reddit.com/r/wallstreetbets/comments/ucmxog/now_i_am_become_death_destroyer_of_portfolios_jim/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
