@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nobody - Netflix:](https://www.reddit.com/r/wallstreetbets/comments/udg96l/nobody_netflix/)
-- [-51k in losses span of 2 years took out a 30k loan at 14% apr in Feb and lost that in a month. I belong behind Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/ude2cq/51k_in_losses_span_of_2_years_took_out_a_30k_loan/)
-- [Can’t cuck the Zuck](https://www.reddit.com/r/wallstreetbets/comments/udcu6v/cant_cuck_the_zuck/)
-- [MRW I buy FB calls at EOD because Cramer was bearish on it.](https://www.reddit.com/r/wallstreetbets/comments/udcqu1/mrw_i_buy_fb_calls_at_eod_because_cramer_was/)
-- [The writing was on the wall for both GOOGL and FB! No, this isn&#39;t manipulation...](https://www.reddit.com/r/wallstreetbets/comments/udcn5c/the_writing_was_on_the_wall_for_both_googl_and_fb/)
+- [You beautiful idiots! We are famous!](https://www.reddit.com/r/wallstreetbets/comments/ue85rk/you_beautiful_idiots_we_are_famous/)
+- [FYI](https://www.reddit.com/r/wallstreetbets/comments/ue83v6/fyi/)
+- [WSB users learning different shapes](https://www.reddit.com/r/wallstreetbets/comments/ue834m/wsb_users_learning_different_shapes/)
+- [AMZN insider was right! WTF](https://www.reddit.com/r/wallstreetbets/comments/ue77ir/amzn_insider_was_right_wtf/)
+- [Which one would you buy for sub $9 ? $HOOD or Wendy&#39;s Son of Baconator Menu?](https://www.reddit.com/r/wallstreetbets/comments/ue6w69/which_one_would_you_buy_for_sub_9_hood_or_wendys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
