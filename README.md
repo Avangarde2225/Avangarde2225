@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You beautiful idiots! We are famous!](https://www.reddit.com/r/wallstreetbets/comments/ue85rk/you_beautiful_idiots_we_are_famous/)
-- [FYI](https://www.reddit.com/r/wallstreetbets/comments/ue83v6/fyi/)
-- [WSB users learning different shapes](https://www.reddit.com/r/wallstreetbets/comments/ue834m/wsb_users_learning_different_shapes/)
-- [AMZN insider was right! WTF](https://www.reddit.com/r/wallstreetbets/comments/ue77ir/amzn_insider_was_right_wtf/)
-- [Which one would you buy for sub $9 ? $HOOD or Wendy&#39;s Son of Baconator Menu?](https://www.reddit.com/r/wallstreetbets/comments/ue6w69/which_one_would_you_buy_for_sub_9_hood_or_wendys/)
+- [State of the markets in 2022](https://www.reddit.com/r/wallstreetbets/comments/uexhzg/state_of_the_markets_in_2022/)
+- [Time to diversify](https://www.reddit.com/r/wallstreetbets/comments/uexhlv/time_to_diversify/)
+- [&lpar;800&rpar; 273-8255 suicide hotline number for those who need it.](https://www.reddit.com/r/wallstreetbets/comments/uewi7u/800_2738255_suicide_hotline_number_for_those_who/)
+- [It’s been a rough month](https://www.reddit.com/r/wallstreetbets/comments/uew24f/its_been_a_rough_month/)
+- [We are not the same](https://www.reddit.com/r/wallstreetbets/comments/uew12p/we_are_not_the_same/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
