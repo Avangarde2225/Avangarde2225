@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [State of the markets in 2022](https://www.reddit.com/r/wallstreetbets/comments/uexhzg/state_of_the_markets_in_2022/)
-- [Time to diversify](https://www.reddit.com/r/wallstreetbets/comments/uexhlv/time_to_diversify/)
-- [&lpar;800&rpar; 273-8255 suicide hotline number for those who need it.](https://www.reddit.com/r/wallstreetbets/comments/uewi7u/800_2738255_suicide_hotline_number_for_those_who/)
-- [It’s been a rough month](https://www.reddit.com/r/wallstreetbets/comments/uew24f/its_been_a_rough_month/)
-- [We are not the same](https://www.reddit.com/r/wallstreetbets/comments/uew12p/we_are_not_the_same/)
+- [Sir, this is a casino](https://www.reddit.com/r/wallstreetbets/comments/ufmwm8/sir_this_is_a_casino/)
+- [The 2022 Real Estate Collapse is going to be Worse than the 2008 One, and Nobody Knows About It](https://www.reddit.com/r/wallstreetbets/comments/uflx06/the_2022_real_estate_collapse_is_going_to_be/)
+- [What a Legend.](https://www.reddit.com/r/wallstreetbets/comments/uflmhh/what_a_legend/)
+- [me thanking God for every day I didn&#39;t buy $HOOD](https://www.reddit.com/r/wallstreetbets/comments/uflgdc/me_thanking_god_for_every_day_i_didnt_buy_hood/)
+- [$SPY 380 baby](https://www.reddit.com/r/wallstreetbets/comments/uflc5q/spy_380_baby/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
