@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sir, this is a casino](https://www.reddit.com/r/wallstreetbets/comments/ufmwm8/sir_this_is_a_casino/)
-- [The 2022 Real Estate Collapse is going to be Worse than the 2008 One, and Nobody Knows About It](https://www.reddit.com/r/wallstreetbets/comments/uflx06/the_2022_real_estate_collapse_is_going_to_be/)
-- [What a Legend.](https://www.reddit.com/r/wallstreetbets/comments/uflmhh/what_a_legend/)
-- [me thanking God for every day I didn&#39;t buy $HOOD](https://www.reddit.com/r/wallstreetbets/comments/uflgdc/me_thanking_god_for_every_day_i_didnt_buy_hood/)
-- [$SPY 380 baby](https://www.reddit.com/r/wallstreetbets/comments/uflc5q/spy_380_baby/)
+- [WHEN YOUR PUTS EXPIRE BEFORE THE BUBBLE POPS!!!!!!!!!!!!!](https://www.reddit.com/r/wallstreetbets/comments/ugc3d1/when_your_puts_expire_before_the_bubble_pops/)
+- [It&#39;s entirely possible](https://www.reddit.com/r/wallstreetbets/comments/ugbwfe/its_entirely_possible/)
+- [u/Erickl0930 waking up on tuesday](https://www.reddit.com/r/wallstreetbets/comments/ugbp20/uerickl0930_waking_up_on_tuesday/)
+- [Just a reminder retards pigs get slaughtered🐷🐷🔪](https://www.reddit.com/r/wallstreetbets/comments/ugb9x8/just_a_reminder_retards_pigs_get_slaughtered/)
+- [A whole new generation of investors under the age of 40 is learning that making money from Wall Street in a bull market was easy. It’s keep it and your psychology straight in a bear market that matters.](https://www.reddit.com/r/wallstreetbets/comments/ugamxo/a_whole_new_generation_of_investors_under_the_age/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
