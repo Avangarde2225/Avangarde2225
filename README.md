@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WHEN YOUR PUTS EXPIRE BEFORE THE BUBBLE POPS!!!!!!!!!!!!!](https://www.reddit.com/r/wallstreetbets/comments/ugc3d1/when_your_puts_expire_before_the_bubble_pops/)
-- [It&#39;s entirely possible](https://www.reddit.com/r/wallstreetbets/comments/ugbwfe/its_entirely_possible/)
-- [u/Erickl0930 waking up on tuesday](https://www.reddit.com/r/wallstreetbets/comments/ugbp20/uerickl0930_waking_up_on_tuesday/)
-- [Just a reminder retards pigs get slaughtered🐷🐷🔪](https://www.reddit.com/r/wallstreetbets/comments/ugb9x8/just_a_reminder_retards_pigs_get_slaughtered/)
-- [A whole new generation of investors under the age of 40 is learning that making money from Wall Street in a bull market was easy. It’s keep it and your psychology straight in a bear market that matters.](https://www.reddit.com/r/wallstreetbets/comments/ugamxo/a_whole_new_generation_of_investors_under_the_age/)
+- [Why Erickl0930 is an idiot &lpar;and you are too!&rpar;](https://www.reddit.com/r/wallstreetbets/comments/uh1jzs/why_erickl0930_is_an_idiot_and_you_are_too/)
+- [💀🤣](https://www.reddit.com/r/wallstreetbets/comments/uh1ass/_/)
+- [King of Retards](https://www.reddit.com/r/wallstreetbets/comments/ugzj7p/king_of_retards/)
+- [What Are Your Moves Tomorrow, May 03, 2022](https://www.reddit.com/r/wallstreetbets/comments/ugy91y/what_are_your_moves_tomorrow_may_03_2022/)
+- [End of the World Poker Tournament... a new challenger has taken a seat](https://www.reddit.com/r/wallstreetbets/comments/ugy642/end_of_the_world_poker_tournament_a_new/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
