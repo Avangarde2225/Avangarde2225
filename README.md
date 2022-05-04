@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why Erickl0930 is an idiot &lpar;and you are too!&rpar;](https://www.reddit.com/r/wallstreetbets/comments/uh1jzs/why_erickl0930_is_an_idiot_and_you_are_too/)
-- [💀🤣](https://www.reddit.com/r/wallstreetbets/comments/uh1ass/_/)
-- [King of Retards](https://www.reddit.com/r/wallstreetbets/comments/ugzj7p/king_of_retards/)
-- [What Are Your Moves Tomorrow, May 03, 2022](https://www.reddit.com/r/wallstreetbets/comments/ugy91y/what_are_your_moves_tomorrow_may_03_2022/)
-- [End of the World Poker Tournament... a new challenger has taken a seat](https://www.reddit.com/r/wallstreetbets/comments/ugy642/end_of_the_world_poker_tournament_a_new/)
+- [Explaining to my wife why I bought TWLO at $350 last year and sold at $150 this year](https://www.reddit.com/r/wallstreetbets/comments/uhrw4d/explaining_to_my_wife_why_i_bought_twlo_at_350/)
+- [Remember you degenerates](https://www.reddit.com/r/wallstreetbets/comments/uhrr11/remember_you_degenerates/)
+- [The casino hates me 🥲](https://www.reddit.com/r/wallstreetbets/comments/uhrqgg/the_casino_hates_me/)
+- [The E.R.I.C.K.l. System](https://www.reddit.com/r/wallstreetbets/comments/uhrpqy/the_erickl_system/)
+- [Degenerates when the market doesn’t move in a straight line up or down](https://www.reddit.com/r/wallstreetbets/comments/uhrcyp/degenerates_when_the_market_doesnt_move_in_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
