@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Explaining to my wife why I bought TWLO at $350 last year and sold at $150 this year](https://www.reddit.com/r/wallstreetbets/comments/uhrw4d/explaining_to_my_wife_why_i_bought_twlo_at_350/)
-- [Remember you degenerates](https://www.reddit.com/r/wallstreetbets/comments/uhrr11/remember_you_degenerates/)
-- [The casino hates me 🥲](https://www.reddit.com/r/wallstreetbets/comments/uhrqgg/the_casino_hates_me/)
-- [The E.R.I.C.K.l. System](https://www.reddit.com/r/wallstreetbets/comments/uhrpqy/the_erickl_system/)
-- [Degenerates when the market doesn’t move in a straight line up or down](https://www.reddit.com/r/wallstreetbets/comments/uhrcyp/degenerates_when_the_market_doesnt_move_in_a/)
+- [I’ve only gone and bloody done it. A $10 YOLO in SPY has finally paid off.](https://www.reddit.com/r/wallstreetbets/comments/uijnj1/ive_only_gone_and_bloody_done_it_a_10_yolo_in_spy/)
+- [This is actually beating the S&amp;P by over 30% for the year.](https://www.reddit.com/r/wallstreetbets/comments/uiipwu/this_is_actually_beating_the_sp_by_over_30_for/)
+- [Today](https://www.reddit.com/r/wallstreetbets/comments/uii368/today/)
+- [The state of the market.](https://www.reddit.com/r/wallstreetbets/comments/uigzfg/the_state_of_the_market/)
+- [Thanks for playing...](https://www.reddit.com/r/wallstreetbets/comments/uig4h6/thanks_for_playing/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
