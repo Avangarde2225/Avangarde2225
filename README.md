@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How unfair things are , in over 22 years Medium income has gone up only 12% approximately](https://www.reddit.com/r/wallstreetbets/comments/uj9eua/how_unfair_things_are_in_over_22_years_medium/)
-- [Which one of you defaced this bill?](https://www.reddit.com/r/wallstreetbets/comments/uj8si1/which_one_of_you_defaced_this_bill/)
-- [I think we should have expected this today.](https://www.reddit.com/r/wallstreetbets/comments/uj71ec/i_think_we_should_have_expected_this_today/)
-- [$100k intraday yolo on SPY puts.](https://www.reddit.com/r/wallstreetbets/comments/uj6123/100k_intraday_yolo_on_spy_puts/)
-- [What Are Your Moves Tomorrow, May 06, 2022](https://www.reddit.com/r/wallstreetbets/comments/uj5uvy/what_are_your_moves_tomorrow_may_06_2022/)
+- [Calls on Alcoholism and Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/uk0s7m/calls_on_alcoholism_and_wendys/)
+- [Today, at 21 years old I received the highest amount of money I&#39;ve ever had times 50](https://www.reddit.com/r/wallstreetbets/comments/uk0j8s/today_at_21_years_old_i_received_the_highest/)
+- [Can you figure it out?](https://www.reddit.com/r/wallstreetbets/comments/uk0h8s/can_you_figure_it_out/)
+- [New iOS Stocks icon revealed.](https://www.reddit.com/r/wallstreetbets/comments/ujzs8w/new_ios_stocks_icon_revealed/)
+- [Goldman Sach&#39;s Dark Pools Are Under Federal Investigation](https://www.reddit.com/r/wallstreetbets/comments/ujzcw8/goldman_sachs_dark_pools_are_under_federal/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
