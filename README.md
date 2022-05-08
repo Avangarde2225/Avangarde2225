@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calls on Alcoholism and Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/uk0s7m/calls_on_alcoholism_and_wendys/)
-- [Today, at 21 years old I received the highest amount of money I&#39;ve ever had times 50](https://www.reddit.com/r/wallstreetbets/comments/uk0j8s/today_at_21_years_old_i_received_the_highest/)
-- [Can you figure it out?](https://www.reddit.com/r/wallstreetbets/comments/uk0h8s/can_you_figure_it_out/)
-- [New iOS Stocks icon revealed.](https://www.reddit.com/r/wallstreetbets/comments/ujzs8w/new_ios_stocks_icon_revealed/)
-- [Goldman Sach&#39;s Dark Pools Are Under Federal Investigation](https://www.reddit.com/r/wallstreetbets/comments/ujzcw8/goldman_sachs_dark_pools_are_under_federal/)
+- [It’s still a stock that meats sub requirements last I checked.](https://www.reddit.com/r/wallstreetbets/comments/ukpia5/its_still_a_stock_that_meats_sub_requirements/)
+- [one of us 🦍](https://www.reddit.com/r/wallstreetbets/comments/ukoz44/one_of_us/)
+- [daxflame is an investing genius, and i think this subreddit could learn something from him](https://www.reddit.com/r/wallstreetbets/comments/ukovh6/daxflame_is_an_investing_genius_and_i_think_this/)
+- [Ah, so this is where you&#39;re meant to get portfolio advice from](https://www.reddit.com/r/wallstreetbets/comments/ukorfb/ah_so_this_is_where_youre_meant_to_get_portfolio/)
+- [Autistic --&gt; Retarded](https://www.reddit.com/r/wallstreetbets/comments/ukoovr/autistic_retarded/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
