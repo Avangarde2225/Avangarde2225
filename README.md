@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It’s still a stock that meats sub requirements last I checked.](https://www.reddit.com/r/wallstreetbets/comments/ukpia5/its_still_a_stock_that_meats_sub_requirements/)
-- [one of us 🦍](https://www.reddit.com/r/wallstreetbets/comments/ukoz44/one_of_us/)
-- [daxflame is an investing genius, and i think this subreddit could learn something from him](https://www.reddit.com/r/wallstreetbets/comments/ukovh6/daxflame_is_an_investing_genius_and_i_think_this/)
-- [Ah, so this is where you&#39;re meant to get portfolio advice from](https://www.reddit.com/r/wallstreetbets/comments/ukorfb/ah_so_this_is_where_youre_meant_to_get_portfolio/)
-- [Autistic --&gt; Retarded](https://www.reddit.com/r/wallstreetbets/comments/ukoovr/autistic_retarded/)
+- [Double down time… again](https://www.reddit.com/r/wallstreetbets/comments/uleqqf/double_down_time_again/)
+- [Friend: How much have you lost on the stonk market? Me:](https://www.reddit.com/r/wallstreetbets/comments/uldp5e/friend_how_much_have_you_lost_on_the_stonk_market/)
+- [It was there this whole time](https://www.reddit.com/r/wallstreetbets/comments/ulcll9/it_was_there_this_whole_time/)
+- [Is the next Great Muppet Reaping at hand?](https://www.reddit.com/r/wallstreetbets/comments/ulc7it/is_the_next_great_muppet_reaping_at_hand/)
+- [Don’t be a SIMP and request 25% below MSRP for any vehicle being purchased.](https://www.reddit.com/r/wallstreetbets/comments/ulc64t/dont_be_a_simp_and_request_25_below_msrp_for_any/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
