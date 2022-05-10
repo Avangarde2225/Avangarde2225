@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Double down time… again](https://www.reddit.com/r/wallstreetbets/comments/uleqqf/double_down_time_again/)
-- [Friend: How much have you lost on the stonk market? Me:](https://www.reddit.com/r/wallstreetbets/comments/uldp5e/friend_how_much_have_you_lost_on_the_stonk_market/)
-- [It was there this whole time](https://www.reddit.com/r/wallstreetbets/comments/ulcll9/it_was_there_this_whole_time/)
-- [Is the next Great Muppet Reaping at hand?](https://www.reddit.com/r/wallstreetbets/comments/ulc7it/is_the_next_great_muppet_reaping_at_hand/)
-- [Don’t be a SIMP and request 25% below MSRP for any vehicle being purchased.](https://www.reddit.com/r/wallstreetbets/comments/ulc64t/dont_be_a_simp_and_request_25_below_msrp_for_any/)
+- [Market Cycles](https://www.reddit.com/r/wallstreetbets/comments/um3wsn/market_cycles/)
+- [We not there yet](https://www.reddit.com/r/wallstreetbets/comments/um31qy/we_not_there_yet/)
+- [You guys are gross!](https://www.reddit.com/r/wallstreetbets/comments/um27ul/you_guys_are_gross/)
+- [My 44 year old brother started trading today.](https://www.reddit.com/r/wallstreetbets/comments/um1wuv/my_44_year_old_brother_started_trading_today/)
+- [Time in the market &gt; timing the market?](https://www.reddit.com/r/wallstreetbets/comments/um1na8/time_in_the_market_timing_the_market/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
