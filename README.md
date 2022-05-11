@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market Cycles](https://www.reddit.com/r/wallstreetbets/comments/um3wsn/market_cycles/)
-- [We not there yet](https://www.reddit.com/r/wallstreetbets/comments/um31qy/we_not_there_yet/)
-- [You guys are gross!](https://www.reddit.com/r/wallstreetbets/comments/um27ul/you_guys_are_gross/)
-- [My 44 year old brother started trading today.](https://www.reddit.com/r/wallstreetbets/comments/um1wuv/my_44_year_old_brother_started_trading_today/)
-- [Time in the market &gt; timing the market?](https://www.reddit.com/r/wallstreetbets/comments/um1na8/time_in_the_market_timing_the_market/)
+- [Twitter on Elon Musks Proposal](https://www.reddit.com/r/wallstreetbets/comments/umvhqo/twitter_on_elon_musks_proposal/)
+- [What could go wrong](https://www.reddit.com/r/wallstreetbets/comments/umv5jc/what_could_go_wrong/)
+- [Jimmy boy!](https://www.reddit.com/r/wallstreetbets/comments/umuq4i/jimmy_boy/)
+- [When stock divy is around the corner and 90% of retail orders are buys. Sorry we broke the market by buying and holding.](https://www.reddit.com/r/wallstreetbets/comments/umukp5/when_stock_divy_is_around_the_corner_and_90_of/)
+- [Cpi will be terrible tomorrow](https://www.reddit.com/r/wallstreetbets/comments/umuhjm/cpi_will_be_terrible_tomorrow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
