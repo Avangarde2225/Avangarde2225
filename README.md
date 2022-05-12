@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Twitter on Elon Musks Proposal](https://www.reddit.com/r/wallstreetbets/comments/umvhqo/twitter_on_elon_musks_proposal/)
-- [What could go wrong](https://www.reddit.com/r/wallstreetbets/comments/umv5jc/what_could_go_wrong/)
-- [Jimmy boy!](https://www.reddit.com/r/wallstreetbets/comments/umuq4i/jimmy_boy/)
-- [When stock divy is around the corner and 90% of retail orders are buys. Sorry we broke the market by buying and holding.](https://www.reddit.com/r/wallstreetbets/comments/umukp5/when_stock_divy_is_around_the_corner_and_90_of/)
-- [Cpi will be terrible tomorrow](https://www.reddit.com/r/wallstreetbets/comments/umuhjm/cpi_will_be_terrible_tomorrow/)
+- [Second worst year start to stock market ever…](https://www.reddit.com/r/wallstreetbets/comments/unmkd5/second_worst_year_start_to_stock_market_ever/)
+- [A Bear&#39;s Dream 🐻 How many of these are you bagholding?](https://www.reddit.com/r/wallstreetbets/comments/unlae1/a_bears_dream_how_many_of_these_are_you_bagholding/)
+- [Bear Market... Bare Ladies!!!](https://www.reddit.com/r/wallstreetbets/comments/unl2im/bear_market_bare_ladies/)
+- [Well, at least my tummy won&#39;t be hurting tonight](https://www.reddit.com/r/wallstreetbets/comments/unklb1/well_at_least_my_tummy_wont_be_hurting_tonight/)
+- [Soldier on](https://www.reddit.com/r/wallstreetbets/comments/unkbbc/soldier_on/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
