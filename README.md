@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Things you don’t want your fed chairman to say](https://www.reddit.com/r/wallstreetbets/comments/uocmqx/things_you_dont_want_your_fed_chairman_to_say/)
-- [The Fed&#39;s Worst Nightmare](https://www.reddit.com/r/wallstreetbets/comments/uochvw/the_feds_worst_nightmare/)
-- [always a silver lining](https://www.reddit.com/r/wallstreetbets/comments/uobma9/always_a_silver_lining/)
-- [My portfolio today](https://www.reddit.com/r/wallstreetbets/comments/uob318/my_portfolio_today/)
-- [Okay which one of you retards is trying to sell 100 shares at 500k?](https://www.reddit.com/r/wallstreetbets/comments/uoa5he/okay_which_one_of_you_retards_is_trying_to_sell/)
+- [I&#39;m rich again!](https://www.reddit.com/r/wallstreetbets/comments/up50g0/im_rich_again/)
+- [Nasdaq lost $7.6T so far .. this&#39;s more than dotcom and 2008 crash combined 🤯](https://www.reddit.com/r/wallstreetbets/comments/up40ys/nasdaq_lost_76t_so_far_thiss_more_than_dotcom_and/)
+- [Investor&#39;s Diet](https://www.reddit.com/r/wallstreetbets/comments/up3gk1/investors_diet/)
+- [This is a Bear Market [credit t:WSBChairman]](https://www.reddit.com/r/wallstreetbets/comments/up2roa/this_is_a_bear_market_credit_twsbchairman/)
+- [Down 100k on this pandemic darling. I&#39;m seriously depressed.](https://www.reddit.com/r/wallstreetbets/comments/up0yxy/down_100k_on_this_pandemic_darling_im_seriously/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
