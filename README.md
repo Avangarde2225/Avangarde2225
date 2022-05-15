@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m rich again!](https://www.reddit.com/r/wallstreetbets/comments/up50g0/im_rich_again/)
-- [Nasdaq lost $7.6T so far .. this&#39;s more than dotcom and 2008 crash combined 🤯](https://www.reddit.com/r/wallstreetbets/comments/up40ys/nasdaq_lost_76t_so_far_thiss_more_than_dotcom_and/)
-- [Investor&#39;s Diet](https://www.reddit.com/r/wallstreetbets/comments/up3gk1/investors_diet/)
-- [This is a Bear Market [credit t:WSBChairman]](https://www.reddit.com/r/wallstreetbets/comments/up2roa/this_is_a_bear_market_credit_twsbchairman/)
-- [Down 100k on this pandemic darling. I&#39;m seriously depressed.](https://www.reddit.com/r/wallstreetbets/comments/up0yxy/down_100k_on_this_pandemic_darling_im_seriously/)
+- [Nearly half of Musks Twitter followers are bots and he is well aware](https://www.reddit.com/r/wallstreetbets/comments/uptlmh/nearly_half_of_musks_twitter_followers_are_bots/)
+- [Beatings Will Continue Until Morale Improves](https://www.reddit.com/r/wallstreetbets/comments/upsrts/beatings_will_continue_until_morale_improves/)
+- [💪🏼](https://www.reddit.com/r/wallstreetbets/comments/upskod/_/)
+- [Bulls on Monday](https://www.reddit.com/r/wallstreetbets/comments/upryjo/bulls_on_monday/)
+- [Elon is about to light a fire in the dumpster that is social media](https://www.reddit.com/r/wallstreetbets/comments/uprcjn/elon_is_about_to_light_a_fire_in_the_dumpster/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
