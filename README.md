@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nearly half of Musks Twitter followers are bots and he is well aware](https://www.reddit.com/r/wallstreetbets/comments/uptlmh/nearly_half_of_musks_twitter_followers_are_bots/)
-- [Beatings Will Continue Until Morale Improves](https://www.reddit.com/r/wallstreetbets/comments/upsrts/beatings_will_continue_until_morale_improves/)
-- [💪🏼](https://www.reddit.com/r/wallstreetbets/comments/upskod/_/)
-- [Bulls on Monday](https://www.reddit.com/r/wallstreetbets/comments/upryjo/bulls_on_monday/)
-- [Elon is about to light a fire in the dumpster that is social media](https://www.reddit.com/r/wallstreetbets/comments/uprcjn/elon_is_about_to_light_a_fire_in_the_dumpster/)
+- [Us on Tuesday](https://www.reddit.com/r/wallstreetbets/comments/uqis49/us_on_tuesday/)
+- [Jim Cramer Rages at Meme Stock Apes](https://www.reddit.com/r/wallstreetbets/comments/uqi5ej/jim_cramer_rages_at_meme_stock_apes/)
+- [Bull market, bear market, who gives a shit? $GME 🚀](https://www.reddit.com/r/wallstreetbets/comments/uqhczx/bull_market_bear_market_who_gives_a_shit_gme/)
+- [futures are green](https://www.reddit.com/r/wallstreetbets/comments/uqgx4b/futures_are_green/)
+- [SAVA DD TOTALLY NOT PRICE MANIPULATION](https://www.reddit.com/r/wallstreetbets/comments/uqgv5b/sava_dd_totally_not_price_manipulation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
