@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Us on Tuesday](https://www.reddit.com/r/wallstreetbets/comments/uqis49/us_on_tuesday/)
-- [Jim Cramer Rages at Meme Stock Apes](https://www.reddit.com/r/wallstreetbets/comments/uqi5ej/jim_cramer_rages_at_meme_stock_apes/)
-- [Bull market, bear market, who gives a shit? $GME 🚀](https://www.reddit.com/r/wallstreetbets/comments/uqhczx/bull_market_bear_market_who_gives_a_shit_gme/)
-- [futures are green](https://www.reddit.com/r/wallstreetbets/comments/uqgx4b/futures_are_green/)
-- [SAVA DD TOTALLY NOT PRICE MANIPULATION](https://www.reddit.com/r/wallstreetbets/comments/uqgv5b/sava_dd_totally_not_price_manipulation/)
+- [Calls on Spice Girls. Those who know, knows.](https://www.reddit.com/r/wallstreetbets/comments/ur9fut/calls_on_spice_girls_those_who_know_knows/)
+- [mUsK is rEaLly DuMb!](https://www.reddit.com/r/wallstreetbets/comments/ur8x9q/musk_is_really_dumb/)
+- [Elon debating next steps](https://www.reddit.com/r/wallstreetbets/comments/ur8wt2/elon_debating_next_steps/)
+- [Anyone else feel the same way I do?](https://www.reddit.com/r/wallstreetbets/comments/ur82yq/anyone_else_feel_the_same_way_i_do/)
+- [I think this sub encouraged me to stop trading???](https://www.reddit.com/r/wallstreetbets/comments/ur7qb0/i_think_this_sub_encouraged_me_to_stop_trading/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
