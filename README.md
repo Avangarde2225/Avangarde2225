@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calls on Spice Girls. Those who know, knows.](https://www.reddit.com/r/wallstreetbets/comments/ur9fut/calls_on_spice_girls_those_who_know_knows/)
-- [mUsK is rEaLly DuMb!](https://www.reddit.com/r/wallstreetbets/comments/ur8x9q/musk_is_really_dumb/)
-- [Elon debating next steps](https://www.reddit.com/r/wallstreetbets/comments/ur8wt2/elon_debating_next_steps/)
-- [Anyone else feel the same way I do?](https://www.reddit.com/r/wallstreetbets/comments/ur82yq/anyone_else_feel_the_same_way_i_do/)
-- [I think this sub encouraged me to stop trading???](https://www.reddit.com/r/wallstreetbets/comments/ur7qb0/i_think_this_sub_encouraged_me_to_stop_trading/)
+- [Calls on Meta](https://www.reddit.com/r/wallstreetbets/comments/urzx6p/calls_on_meta/)
+- [Elon Musk Won&#39;t Pay Twitter a $1 Billion Breakup Fee for Walking Away](https://www.reddit.com/r/wallstreetbets/comments/uryudo/elon_musk_wont_pay_twitter_a_1_billion_breakup/)
+- [The 2008 crash plotted against current SPY. Dread it. Run from it. Destiny arrives all the same.](https://www.reddit.com/r/wallstreetbets/comments/uryrjv/the_2008_crash_plotted_against_current_spy_dread/)
+- [&quot;Soft-ish&quot; landing incoming](https://www.reddit.com/r/wallstreetbets/comments/urwvs0/softish_landing_incoming/)
+- [Time to shave](https://www.reddit.com/r/wallstreetbets/comments/urvrp2/time_to_shave/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
