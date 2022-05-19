@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calls on Meta](https://www.reddit.com/r/wallstreetbets/comments/urzx6p/calls_on_meta/)
-- [Elon Musk Won&#39;t Pay Twitter a $1 Billion Breakup Fee for Walking Away](https://www.reddit.com/r/wallstreetbets/comments/uryudo/elon_musk_wont_pay_twitter_a_1_billion_breakup/)
-- [The 2008 crash plotted against current SPY. Dread it. Run from it. Destiny arrives all the same.](https://www.reddit.com/r/wallstreetbets/comments/uryrjv/the_2008_crash_plotted_against_current_spy_dread/)
-- [&quot;Soft-ish&quot; landing incoming](https://www.reddit.com/r/wallstreetbets/comments/urwvs0/softish_landing_incoming/)
-- [Time to shave](https://www.reddit.com/r/wallstreetbets/comments/urvrp2/time_to_shave/)
+- [Melvin Capital, hedge fund torpedoed by the GameStop frenzy, is shutting down.](https://www.reddit.com/r/wallstreetbets/comments/uspz4t/melvin_capital_hedge_fund_torpedoed_by_the/)
+- [It is I who is fuk](https://www.reddit.com/r/wallstreetbets/comments/usp6v2/it_is_i_who_is_fuk/)
+- [$720 —&gt; $38k on TGT puts](https://www.reddit.com/r/wallstreetbets/comments/usokyq/720_38k_on_tgt_puts/)
+- [Melvin and Citadel both going down with this equipped](https://www.reddit.com/r/wallstreetbets/comments/uso45k/melvin_and_citadel_both_going_down_with_this/)
+- [Today&#39;s Meltdown](https://www.reddit.com/r/wallstreetbets/comments/usnojz/todays_meltdown/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
