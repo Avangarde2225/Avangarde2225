@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Melvin Capital, hedge fund torpedoed by the GameStop frenzy, is shutting down.](https://www.reddit.com/r/wallstreetbets/comments/uspz4t/melvin_capital_hedge_fund_torpedoed_by_the/)
-- [It is I who is fuk](https://www.reddit.com/r/wallstreetbets/comments/usp6v2/it_is_i_who_is_fuk/)
-- [$720 —&gt; $38k on TGT puts](https://www.reddit.com/r/wallstreetbets/comments/usokyq/720_38k_on_tgt_puts/)
-- [Melvin and Citadel both going down with this equipped](https://www.reddit.com/r/wallstreetbets/comments/uso45k/melvin_and_citadel_both_going_down_with_this/)
-- [Today&#39;s Meltdown](https://www.reddit.com/r/wallstreetbets/comments/usnojz/todays_meltdown/)
+- [I am not ready for any of this.](https://www.reddit.com/r/wallstreetbets/comments/utg80b/i_am_not_ready_for_any_of_this/)
+- [OG is on Bumble](https://www.reddit.com/r/wallstreetbets/comments/utfk3i/og_is_on_bumble/)
+- [Those Retailers are unbelievable!](https://www.reddit.com/r/wallstreetbets/comments/utfcbj/those_retailers_are_unbelievable/)
+- [Don&#39;t care, still holding for the long run.](https://www.reddit.com/r/wallstreetbets/comments/utf5ms/dont_care_still_holding_for_the_long_run/)
+- [In a pickle](https://www.reddit.com/r/wallstreetbets/comments/utegfh/in_a_pickle/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
