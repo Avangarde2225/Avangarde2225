@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I am not ready for any of this.](https://www.reddit.com/r/wallstreetbets/comments/utg80b/i_am_not_ready_for_any_of_this/)
-- [OG is on Bumble](https://www.reddit.com/r/wallstreetbets/comments/utfk3i/og_is_on_bumble/)
-- [Those Retailers are unbelievable!](https://www.reddit.com/r/wallstreetbets/comments/utfcbj/those_retailers_are_unbelievable/)
-- [Don&#39;t care, still holding for the long run.](https://www.reddit.com/r/wallstreetbets/comments/utf5ms/dont_care_still_holding_for_the_long_run/)
-- [In a pickle](https://www.reddit.com/r/wallstreetbets/comments/utegfh/in_a_pickle/)
+- [Where does the money go?](https://www.reddit.com/r/wallstreetbets/comments/uuav5j/where_does_the_money_go/)
+- [RIP Markets](https://www.reddit.com/r/wallstreetbets/comments/uu9bvj/rip_markets/)
+- [Back to work ya retards!](https://www.reddit.com/r/wallstreetbets/comments/uu8tvw/back_to_work_ya_retards/)
+- [This isn&#39;t crashing, it&#39;s falling with style](https://www.reddit.com/r/wallstreetbets/comments/uu8ovt/this_isnt_crashing_its_falling_with_style/)
+- [Soon after getting margin call](https://www.reddit.com/r/wallstreetbets/comments/uu8nyk/soon_after_getting_margin_call/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
