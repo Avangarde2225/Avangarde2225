@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When you’re up on WSB Tournament tokens for predicting the market, but portfolio still down 95%](https://www.reddit.com/r/wallstreetbets/comments/uuz4bt/when_youre_up_on_wsb_tournament_tokens_for/)
-- [Everyone is Losing Their Minds for this cutie tiny candle. We seen nothing](https://www.reddit.com/r/wallstreetbets/comments/uuxkx3/everyone_is_losing_their_minds_for_this_cutie/)
-- [One of us. &lpar;Link in comments&rpar;](https://www.reddit.com/r/wallstreetbets/comments/uuvw52/one_of_us_link_in_comments/)
-- [Missing 2021 when in days we made returns like in decades](https://www.reddit.com/r/wallstreetbets/comments/uuultz/missing_2021_when_in_days_we_made_returns_like_in/)
-- [CDC just changed monkey pox transmission to also include airborne transmission](https://www.reddit.com/r/wallstreetbets/comments/uuu9gt/cdc_just_changed_monkey_pox_transmission_to_also/)
+- [waiting for the bounce on lightning?](https://www.reddit.com/r/wallstreetbets/comments/uvnisx/waiting_for_the_bounce_on_lightning/)
+- [Big Short 2 in the making](https://www.reddit.com/r/wallstreetbets/comments/uvnape/big_short_2_in_the_making/)
+- [“but the lines mean stuff”](https://www.reddit.com/r/wallstreetbets/comments/uvld1m/but_the_lines_mean_stuff/)
+- [We are going to the moon this week boys. So says the Inverse Oracle.](https://www.reddit.com/r/wallstreetbets/comments/uvl1xk/we_are_going_to_the_moon_this_week_boys_so_says/)
+- [Elon at SpaceX launch last week](https://www.reddit.com/r/wallstreetbets/comments/uvked7/elon_at_spacex_launch_last_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
