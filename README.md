@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [waiting for the bounce on lightning?](https://www.reddit.com/r/wallstreetbets/comments/uvnisx/waiting_for_the_bounce_on_lightning/)
-- [Big Short 2 in the making](https://www.reddit.com/r/wallstreetbets/comments/uvnape/big_short_2_in_the_making/)
-- [“but the lines mean stuff”](https://www.reddit.com/r/wallstreetbets/comments/uvld1m/but_the_lines_mean_stuff/)
-- [We are going to the moon this week boys. So says the Inverse Oracle.](https://www.reddit.com/r/wallstreetbets/comments/uvl1xk/we_are_going_to_the_moon_this_week_boys_so_says/)
-- [Elon at SpaceX launch last week](https://www.reddit.com/r/wallstreetbets/comments/uvked7/elon_at_spacex_launch_last_week/)
+- [ohhhh SNAP! &lpar;Not my meme so can&#39;t take credit&rpar;](https://www.reddit.com/r/wallstreetbets/comments/uwdl1b/ohhhh_snap_not_my_meme_so_cant_take_credit/)
+- [Dear diary](https://www.reddit.com/r/wallstreetbets/comments/uwdb51/dear_diary/)
+- [This Is About SNAP FYI](https://www.reddit.com/r/wallstreetbets/comments/uwcc8e/this_is_about_snap_fyi/)
+- [Down We Go](https://www.reddit.com/r/wallstreetbets/comments/uwc5hl/down_we_go/)
+- [My TA suggests GME market cap could surpass Tesla&#39;s! Here is my DD:](https://www.reddit.com/r/wallstreetbets/comments/uwc2qg/my_ta_suggests_gme_market_cap_could_surpass/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
