@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ohhhh SNAP! &lpar;Not my meme so can&#39;t take credit&rpar;](https://www.reddit.com/r/wallstreetbets/comments/uwdl1b/ohhhh_snap_not_my_meme_so_cant_take_credit/)
-- [Dear diary](https://www.reddit.com/r/wallstreetbets/comments/uwdb51/dear_diary/)
-- [This Is About SNAP FYI](https://www.reddit.com/r/wallstreetbets/comments/uwcc8e/this_is_about_snap_fyi/)
-- [Down We Go](https://www.reddit.com/r/wallstreetbets/comments/uwc5hl/down_we_go/)
-- [My TA suggests GME market cap could surpass Tesla&#39;s! Here is my DD:](https://www.reddit.com/r/wallstreetbets/comments/uwc2qg/my_ta_suggests_gme_market_cap_could_surpass/)
+- [Investing is fun they said.](https://www.reddit.com/r/wallstreetbets/comments/ux4goe/investing_is_fun_they_said/)
+- [Mother: Hey, you should consider buying a house instead of renting. Have you check to see what you can be pre-approved for?](https://www.reddit.com/r/wallstreetbets/comments/ux21f9/mother_hey_you_should_consider_buying_a_house/)
+- [Im so fucked… cashing out my last 4K and moving on in life, it’s been real](https://www.reddit.com/r/wallstreetbets/comments/ux1wja/im_so_fucked_cashing_out_my_last_4k_and_moving_on/)
+- [Sure Bill, daddy J-Pow did us all wrong - after loosing $400M on NTFX I would be sour too!](https://www.reddit.com/r/wallstreetbets/comments/ux1bmz/sure_bill_daddy_jpow_did_us_all_wrong_after/)
+- [RIP Best Buy](https://www.reddit.com/r/wallstreetbets/comments/uwzxwm/rip_best_buy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
