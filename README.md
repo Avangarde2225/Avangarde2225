@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Investing is fun they said.](https://www.reddit.com/r/wallstreetbets/comments/ux4goe/investing_is_fun_they_said/)
-- [Mother: Hey, you should consider buying a house instead of renting. Have you check to see what you can be pre-approved for?](https://www.reddit.com/r/wallstreetbets/comments/ux21f9/mother_hey_you_should_consider_buying_a_house/)
-- [Im so fucked… cashing out my last 4K and moving on in life, it’s been real](https://www.reddit.com/r/wallstreetbets/comments/ux1wja/im_so_fucked_cashing_out_my_last_4k_and_moving_on/)
-- [Sure Bill, daddy J-Pow did us all wrong - after loosing $400M on NTFX I would be sour too!](https://www.reddit.com/r/wallstreetbets/comments/ux1bmz/sure_bill_daddy_jpow_did_us_all_wrong_after/)
-- [RIP Best Buy](https://www.reddit.com/r/wallstreetbets/comments/uwzxwm/rip_best_buy/)
+- [Frosty Time](https://www.reddit.com/r/wallstreetbets/comments/uxu0uz/frosty_time/)
+- [My last post was some GME loss porn, but it looks like this degenerate is back in business. Holding until earnings 🚀💰 💵](https://www.reddit.com/r/wallstreetbets/comments/uxslpc/my_last_post_was_some_gme_loss_porn_but_it_looks/)
+- [Investing in the stock market 2022 🙃](https://www.reddit.com/r/wallstreetbets/comments/uxqxrn/investing_in_the_stock_market_2022/)
+- [I&#39;m feeling BULLISH again!](https://www.reddit.com/r/wallstreetbets/comments/uxqj6n/im_feeling_bullish_again/)
+- [KNOCK KNOCK](https://www.reddit.com/r/wallstreetbets/comments/uxqblu/knock_knock/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
