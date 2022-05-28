@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You on here, Diamond Hands?](https://www.reddit.com/r/wallstreetbets/comments/uyjgc1/you_on_here_diamond_hands/)
-- [take me back 😔](https://www.reddit.com/r/wallstreetbets/comments/uyjdl1/take_me_back/)
-- [Feds: “We didn’t cause inflation, Russia did!1!” Also Feds:](https://www.reddit.com/r/wallstreetbets/comments/uyj3zu/feds_we_didnt_cause_inflation_russia_did1_also/)
-- [“What are you going to do with your tendies?” Japan:](https://www.reddit.com/r/wallstreetbets/comments/uyio4a/what_are_you_going_to_do_with_your_tendies_japan/)
-- [Neo American Gothic Meme - cleaned up version](https://www.reddit.com/r/wallstreetbets/comments/uyi6di/neo_american_gothic_meme_cleaned_up_version/)
+- [Up 15k day trading this week, from QQQ puts and QQQ/TSLA/AMC calls](https://www.reddit.com/r/wallstreetbets/comments/uz9bvf/up_15k_day_trading_this_week_from_qqq_puts_and/)
+- [I’m shorting Meta before earning and for the rest of the year](https://www.reddit.com/r/wallstreetbets/comments/uz95w3/im_shorting_meta_before_earning_and_for_the_rest/)
+- [Housing Market 😎](https://www.reddit.com/r/wallstreetbets/comments/uz7y4r/housing_market/)
+- [Let’s open it at $200 on money … MACD looking extremely bullish … Daily chart looks like NASA’s Space Ship ready to launch 🚀🚀🚀🚀 GME 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/uz7jai/lets_open_it_at_200_on_money_macd_looking/)
+- [Buying Calls After a 7% Run-Up Since Tuesday Into a Holiday Weekend.](https://www.reddit.com/r/wallstreetbets/comments/uz7aol/buying_calls_after_a_7_runup_since_tuesday_into_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
