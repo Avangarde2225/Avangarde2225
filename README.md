@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Up 15k day trading this week, from QQQ puts and QQQ/TSLA/AMC calls](https://www.reddit.com/r/wallstreetbets/comments/uz9bvf/up_15k_day_trading_this_week_from_qqq_puts_and/)
-- [I’m shorting Meta before earning and for the rest of the year](https://www.reddit.com/r/wallstreetbets/comments/uz95w3/im_shorting_meta_before_earning_and_for_the_rest/)
-- [Housing Market 😎](https://www.reddit.com/r/wallstreetbets/comments/uz7y4r/housing_market/)
-- [Let’s open it at $200 on money … MACD looking extremely bullish … Daily chart looks like NASA’s Space Ship ready to launch 🚀🚀🚀🚀 GME 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/uz7jai/lets_open_it_at_200_on_money_macd_looking/)
-- [Buying Calls After a 7% Run-Up Since Tuesday Into a Holiday Weekend.](https://www.reddit.com/r/wallstreetbets/comments/uz7aol/buying_calls_after_a_7_runup_since_tuesday_into_a/)
+- [Someone’s balls deep in TSLA calls - in Inglewood CA by the Roscoes](https://www.reddit.com/r/wallstreetbets/comments/uzzfo6/someones_balls_deep_in_tsla_calls_in_inglewood_ca/)
+- [Innovation baby](https://www.reddit.com/r/wallstreetbets/comments/uzxiq5/innovation_baby/)
+- [with the way our economy is going, this Thanksgiving be like....](https://www.reddit.com/r/wallstreetbets/comments/uzx490/with_the_way_our_economy_is_going_this/)
+- [If your company did a layoff post the name &lpar;or industry and size&rpar; and department](https://www.reddit.com/r/wallstreetbets/comments/uzvuhm/if_your_company_did_a_layoff_post_the_name_or/)
+- [hello, are you here for the weekly wake-up call?](https://www.reddit.com/r/wallstreetbets/comments/uztx4e/hello_are_you_here_for_the_weekly_wakeup_call/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
