@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Someone’s balls deep in TSLA calls - in Inglewood CA by the Roscoes](https://www.reddit.com/r/wallstreetbets/comments/uzzfo6/someones_balls_deep_in_tsla_calls_in_inglewood_ca/)
-- [Innovation baby](https://www.reddit.com/r/wallstreetbets/comments/uzxiq5/innovation_baby/)
-- [with the way our economy is going, this Thanksgiving be like....](https://www.reddit.com/r/wallstreetbets/comments/uzx490/with_the_way_our_economy_is_going_this/)
-- [If your company did a layoff post the name &lpar;or industry and size&rpar; and department](https://www.reddit.com/r/wallstreetbets/comments/uzvuhm/if_your_company_did_a_layoff_post_the_name_or/)
-- [hello, are you here for the weekly wake-up call?](https://www.reddit.com/r/wallstreetbets/comments/uztx4e/hello_are_you_here_for_the_weekly_wakeup_call/)
+- [Madoff reincarnated real quick](https://www.reddit.com/r/wallstreetbets/comments/v0n9a9/madoff_reincarnated_real_quick/)
+- [Wendy&#39;s Tendies](https://www.reddit.com/r/wallstreetbets/comments/v0meu4/wendys_tendies/)
+- [Sorry but I&#39;m here to gamble](https://www.reddit.com/r/wallstreetbets/comments/v0kw1f/sorry_but_im_here_to_gamble/)
+- [Gen X is Da Sheet!!!](https://www.reddit.com/r/wallstreetbets/comments/v0k2tm/gen_x_is_da_sheet/)
+- [I need to know which of you degenerates this is](https://www.reddit.com/r/wallstreetbets/comments/v0je6q/i_need_to_know_which_of_you_degenerates_this_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
