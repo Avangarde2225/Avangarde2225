@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Madoff reincarnated real quick](https://www.reddit.com/r/wallstreetbets/comments/v0n9a9/madoff_reincarnated_real_quick/)
-- [Wendy&#39;s Tendies](https://www.reddit.com/r/wallstreetbets/comments/v0meu4/wendys_tendies/)
-- [Sorry but I&#39;m here to gamble](https://www.reddit.com/r/wallstreetbets/comments/v0kw1f/sorry_but_im_here_to_gamble/)
-- [Gen X is Da Sheet!!!](https://www.reddit.com/r/wallstreetbets/comments/v0k2tm/gen_x_is_da_sheet/)
-- [I need to know which of you degenerates this is](https://www.reddit.com/r/wallstreetbets/comments/v0je6q/i_need_to_know_which_of_you_degenerates_this_is/)
+- [Sounds like a W](https://www.reddit.com/r/wallstreetbets/comments/v1cvk5/sounds_like_a_w/)
+- [later losers!](https://www.reddit.com/r/wallstreetbets/comments/v1bmd7/later_losers/)
+- [One of us](https://www.reddit.com/r/wallstreetbets/comments/v1a99k/one_of_us/)
+- [Am I financially free now?](https://www.reddit.com/r/wallstreetbets/comments/v19u1g/am_i_financially_free_now/)
+- [The Federal Reserve is set to start shrinking its $8.9 trillion balance sheet Wednesday. Reminder of 2017-2019.](https://www.reddit.com/r/wallstreetbets/comments/v197cq/the_federal_reserve_is_set_to_start_shrinking_its/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
