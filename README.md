@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sounds like a W](https://www.reddit.com/r/wallstreetbets/comments/v1cvk5/sounds_like_a_w/)
-- [later losers!](https://www.reddit.com/r/wallstreetbets/comments/v1bmd7/later_losers/)
-- [One of us](https://www.reddit.com/r/wallstreetbets/comments/v1a99k/one_of_us/)
-- [Am I financially free now?](https://www.reddit.com/r/wallstreetbets/comments/v19u1g/am_i_financially_free_now/)
-- [The Federal Reserve is set to start shrinking its $8.9 trillion balance sheet Wednesday. Reminder of 2017-2019.](https://www.reddit.com/r/wallstreetbets/comments/v197cq/the_federal_reserve_is_set_to_start_shrinking_its/)
+- [Long Beer, Short Jedi?](https://www.reddit.com/r/wallstreetbets/comments/v23qth/long_beer_short_jedi/)
+- [Me and the boys after blowing up another account 😂](https://www.reddit.com/r/wallstreetbets/comments/v23est/me_and_the_boys_after_blowing_up_another_account/)
+- [I give up. I literally buy calls it tanks, I buy puts and it moons. I am without words at how disappointed I am. F*ck this. Back to Wendy’s I go](https://www.reddit.com/r/wallstreetbets/comments/v237qz/i_give_up_i_literally_buy_calls_it_tanks_i_buy/)
+- [Time to buy puts fellas](https://www.reddit.com/r/wallstreetbets/comments/v22p3t/time_to_buy_puts_fellas/)
+- [every single person on WSB who shares a chart and wows us with their &quot;ta&quot; skills](https://www.reddit.com/r/wallstreetbets/comments/v20irf/every_single_person_on_wsb_who_shares_a_chart_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
