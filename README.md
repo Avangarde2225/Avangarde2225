@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Long Beer, Short Jedi?](https://www.reddit.com/r/wallstreetbets/comments/v23qth/long_beer_short_jedi/)
-- [Me and the boys after blowing up another account 😂](https://www.reddit.com/r/wallstreetbets/comments/v23est/me_and_the_boys_after_blowing_up_another_account/)
-- [I give up. I literally buy calls it tanks, I buy puts and it moons. I am without words at how disappointed I am. F*ck this. Back to Wendy’s I go](https://www.reddit.com/r/wallstreetbets/comments/v237qz/i_give_up_i_literally_buy_calls_it_tanks_i_buy/)
-- [Time to buy puts fellas](https://www.reddit.com/r/wallstreetbets/comments/v22p3t/time_to_buy_puts_fellas/)
-- [every single person on WSB who shares a chart and wows us with their &quot;ta&quot; skills](https://www.reddit.com/r/wallstreetbets/comments/v20irf/every_single_person_on_wsb_who_shares_a_chart_and/)
+- [I‘m a 23 year old college graduate who managed to lose $30k within the last 6 months. Anyway here‘s a picture where I eat KFC in my parents car.](https://www.reddit.com/r/wallstreetbets/comments/v2v23p/im_a_23_year_old_college_graduate_who_managed_to/)
+- [How can you guys trust this person 😂](https://www.reddit.com/r/wallstreetbets/comments/v2uif7/how_can_you_guys_trust_this_person/)
+- [Have people seriously not caught on to the fact that in order to invest successfully you have to do the opposite of what news and elites push? Its so funny watching the price flip red and bears just pop out of nowhere in droves.](https://www.reddit.com/r/wallstreetbets/comments/v2u0df/have_people_seriously_not_caught_on_to_the_fact/)
+- [A Message To The SEC.](https://www.reddit.com/r/wallstreetbets/comments/v2u0ba/a_message_to_the_sec/)
+- [Welcome to the casino, Amber!](https://www.reddit.com/r/wallstreetbets/comments/v2trl7/welcome_to_the_casino_amber/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
