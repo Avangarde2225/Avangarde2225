@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I‘m a 23 year old college graduate who managed to lose $30k within the last 6 months. Anyway here‘s a picture where I eat KFC in my parents car.](https://www.reddit.com/r/wallstreetbets/comments/v2v23p/im_a_23_year_old_college_graduate_who_managed_to/)
-- [How can you guys trust this person 😂](https://www.reddit.com/r/wallstreetbets/comments/v2uif7/how_can_you_guys_trust_this_person/)
-- [Have people seriously not caught on to the fact that in order to invest successfully you have to do the opposite of what news and elites push? Its so funny watching the price flip red and bears just pop out of nowhere in droves.](https://www.reddit.com/r/wallstreetbets/comments/v2u0df/have_people_seriously_not_caught_on_to_the_fact/)
-- [A Message To The SEC.](https://www.reddit.com/r/wallstreetbets/comments/v2u0ba/a_message_to_the_sec/)
-- [Welcome to the casino, Amber!](https://www.reddit.com/r/wallstreetbets/comments/v2trl7/welcome_to_the_casino_amber/)
+- [Fed members and JPow fighting the inflation.](https://www.reddit.com/r/wallstreetbets/comments/v3ly84/fed_members_and_jpow_fighting_the_inflation/)
+- [GaRy Is DoInG hIS vERy BeSt](https://www.reddit.com/r/wallstreetbets/comments/v3kp7f/gary_is_doing_his_very_best/)
+- [ever pick stonks while under the influence?](https://www.reddit.com/r/wallstreetbets/comments/v3kijj/ever_pick_stonks_while_under_the_influence/)
+- [I WILL HAVE $100k BY NEXT WEEK BOYS IM ON FIRE!! $200 -&gt; $9k so far](https://www.reddit.com/r/wallstreetbets/comments/v3jrpq/i_will_have_100k_by_next_week_boys_im_on_fire_200/)
+- [SEC Releases Video Advising People Against Investing In Meme Stocks After Defining GME as a Meme Stock in Their &quot;Equity and Options Market Structure Conditions in Early 2021&quot; Report, Providing Financial Advice Courtesy of Our Tax Dollars and Against Their Own Regulations](https://www.reddit.com/r/wallstreetbets/comments/v3iqf5/sec_releases_video_advising_people_against/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
