@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fed members and JPow fighting the inflation.](https://www.reddit.com/r/wallstreetbets/comments/v3ly84/fed_members_and_jpow_fighting_the_inflation/)
-- [GaRy Is DoInG hIS vERy BeSt](https://www.reddit.com/r/wallstreetbets/comments/v3kp7f/gary_is_doing_his_very_best/)
-- [ever pick stonks while under the influence?](https://www.reddit.com/r/wallstreetbets/comments/v3kijj/ever_pick_stonks_while_under_the_influence/)
-- [I WILL HAVE $100k BY NEXT WEEK BOYS IM ON FIRE!! $200 -&gt; $9k so far](https://www.reddit.com/r/wallstreetbets/comments/v3jrpq/i_will_have_100k_by_next_week_boys_im_on_fire_200/)
-- [SEC Releases Video Advising People Against Investing In Meme Stocks After Defining GME as a Meme Stock in Their &quot;Equity and Options Market Structure Conditions in Early 2021&quot; Report, Providing Financial Advice Courtesy of Our Tax Dollars and Against Their Own Regulations](https://www.reddit.com/r/wallstreetbets/comments/v3iqf5/sec_releases_video_advising_people_against/)
+- [Here’s some research for the SEC. GME votes tell us on 8k filing that retail Gme is over 100% shorted.](https://www.reddit.com/r/wallstreetbets/comments/v4car3/heres_some_research_for_the_sec_gme_votes_tell_us/)
+- [Recession confirmed.](https://www.reddit.com/r/wallstreetbets/comments/v4bkt0/recession_confirmed/)
+- [WSB vs Traditional Investors - This gem was posted two years ago by u/Zachincool](https://www.reddit.com/r/wallstreetbets/comments/v4adfg/wsb_vs_traditional_investors_this_gem_was_posted/)
+- [GME is unshortable at IBKR + 57,025,475 votes &lpar;for + against + Abstentions &rpar; at 8-k filling released at the same time that RC tweets &quot;Power to the player&quot;.](https://www.reddit.com/r/wallstreetbets/comments/v4a9tb/gme_is_unshortable_at_ibkr_57025475_votes_for/)
+- [For all you retards after today](https://www.reddit.com/r/wallstreetbets/comments/v4a0ss/for_all_you_retards_after_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
