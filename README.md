@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Here’s some research for the SEC. GME votes tell us on 8k filing that retail Gme is over 100% shorted.](https://www.reddit.com/r/wallstreetbets/comments/v4car3/heres_some_research_for_the_sec_gme_votes_tell_us/)
-- [Recession confirmed.](https://www.reddit.com/r/wallstreetbets/comments/v4bkt0/recession_confirmed/)
-- [WSB vs Traditional Investors - This gem was posted two years ago by u/Zachincool](https://www.reddit.com/r/wallstreetbets/comments/v4adfg/wsb_vs_traditional_investors_this_gem_was_posted/)
-- [GME is unshortable at IBKR + 57,025,475 votes &lpar;for + against + Abstentions &rpar; at 8-k filling released at the same time that RC tweets &quot;Power to the player&quot;.](https://www.reddit.com/r/wallstreetbets/comments/v4a9tb/gme_is_unshortable_at_ibkr_57025475_votes_for/)
-- [For all you retards after today](https://www.reddit.com/r/wallstreetbets/comments/v4a0ss/for_all_you_retards_after_today/)
+- [Will you do it if “conceive” is replaced by “make money”](https://www.reddit.com/r/wallstreetbets/comments/v50ork/will_you_do_it_if_conceive_is_replaced_by_make/)
+- [Average Rivian Investor](https://www.reddit.com/r/wallstreetbets/comments/v4zhua/average_rivian_investor/)
+- [Are you like gay or something?](https://www.reddit.com/r/wallstreetbets/comments/v4yxys/are_you_like_gay_or_something/)
+- [SEC didnt warn before 08 Crash, Dot Com Bubble, 80&#39;s recession -- so why warn about &quot;meme stocks&quot;?](https://www.reddit.com/r/wallstreetbets/comments/v4xdfe/sec_didnt_warn_before_08_crash_dot_com_bubble_80s/)
+- [i’m all in on spy puts](https://www.reddit.com/r/wallstreetbets/comments/v4w9e7/im_all_in_on_spy_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
