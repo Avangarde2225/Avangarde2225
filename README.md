@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Kenny working over time](https://www.reddit.com/r/wallstreetbets/comments/v5pmlg/kenny_working_over_time/)
-- [Gas is only up 6 cents in the last hour. No worries](https://www.reddit.com/r/wallstreetbets/comments/v5p9bd/gas_is_only_up_6_cents_in_the_last_hour_no_worries/)
-- [no cap](https://www.reddit.com/r/wallstreetbets/comments/v5oon7/no_cap/)
-- [WSB member caught in action: Cab driver day trading at red light](https://www.reddit.com/r/wallstreetbets/comments/v5nqo9/wsb_member_caught_in_action_cab_driver_day/)
-- [We&#39;re not &quot;entering&quot; a recession](https://www.reddit.com/r/wallstreetbets/comments/v5n54a/were_not_entering_a_recession/)
+- [Ok which of you magnificent bastards was this?](https://www.reddit.com/r/wallstreetbets/comments/v6gmid/ok_which_of_you_magnificent_bastards_was_this/)
+- [Green Tuesday Confirmed](https://www.reddit.com/r/wallstreetbets/comments/v6g1ik/green_tuesday_confirmed/)
+- [What’s the move boys?](https://www.reddit.com/r/wallstreetbets/comments/v6egi1/whats_the_move_boys/)
+- [Nancy Pelosi nailed the exact NASDAQ bottom on May 24th buying $AAPL and $MSFT calls.](https://www.reddit.com/r/wallstreetbets/comments/v6dbh4/nancy_pelosi_nailed_the_exact_nasdaq_bottom_on/)
+- [Seriously this is going to be ugly for Twitter](https://www.reddit.com/r/wallstreetbets/comments/v6d5x9/seriously_this_is_going_to_be_ugly_for_twitter/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
