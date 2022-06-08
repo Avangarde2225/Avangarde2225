@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ok which of you magnificent bastards was this?](https://www.reddit.com/r/wallstreetbets/comments/v6gmid/ok_which_of_you_magnificent_bastards_was_this/)
-- [Green Tuesday Confirmed](https://www.reddit.com/r/wallstreetbets/comments/v6g1ik/green_tuesday_confirmed/)
-- [What’s the move boys?](https://www.reddit.com/r/wallstreetbets/comments/v6egi1/whats_the_move_boys/)
-- [Nancy Pelosi nailed the exact NASDAQ bottom on May 24th buying $AAPL and $MSFT calls.](https://www.reddit.com/r/wallstreetbets/comments/v6dbh4/nancy_pelosi_nailed_the_exact_nasdaq_bottom_on/)
-- [Seriously this is going to be ugly for Twitter](https://www.reddit.com/r/wallstreetbets/comments/v6d5x9/seriously_this_is_going_to_be_ugly_for_twitter/)
+- [It&#39;s been a hell of a year](https://www.reddit.com/r/wallstreetbets/comments/v7bm3i/its_been_a_hell_of_a_year/)
+- [30% off stonks](https://www.reddit.com/r/wallstreetbets/comments/v7apgj/30_off_stonks/)
+- [But they said it was transitory](https://www.reddit.com/r/wallstreetbets/comments/v7a064/but_they_said_it_was_transitory/)
+- [Meme Stonks Requesting Close Air Support! Danger Close, How Copy?](https://www.reddit.com/r/wallstreetbets/comments/v79iau/meme_stonks_requesting_close_air_support_danger/)
+- [Fed when deciding between 50bps and 75bps increase](https://www.reddit.com/r/wallstreetbets/comments/v79cp5/fed_when_deciding_between_50bps_and_75bps_increase/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
