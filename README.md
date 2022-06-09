@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It&#39;s been a hell of a year](https://www.reddit.com/r/wallstreetbets/comments/v7bm3i/its_been_a_hell_of_a_year/)
-- [30% off stonks](https://www.reddit.com/r/wallstreetbets/comments/v7apgj/30_off_stonks/)
-- [But they said it was transitory](https://www.reddit.com/r/wallstreetbets/comments/v7a064/but_they_said_it_was_transitory/)
-- [Meme Stonks Requesting Close Air Support! Danger Close, How Copy?](https://www.reddit.com/r/wallstreetbets/comments/v79iau/meme_stonks_requesting_close_air_support_danger/)
-- [Fed when deciding between 50bps and 75bps increase](https://www.reddit.com/r/wallstreetbets/comments/v79cp5/fed_when_deciding_between_50bps_and_75bps_increase/)
+- [Why NVDA why 🥲](https://www.reddit.com/r/wallstreetbets/comments/v82slv/why_nvda_why/)
+- [Me waiting on oil to pull back so I can buy.](https://www.reddit.com/r/wallstreetbets/comments/v82s3r/me_waiting_on_oil_to_pull_back_so_i_can_buy/)
+- [Never forget](https://www.reddit.com/r/wallstreetbets/comments/v82ic4/never_forget/)
+- [According a poll done by WSJ, 83% of Americans now say the state of the economy is either poor or not so good.](https://www.reddit.com/r/wallstreetbets/comments/v81hg7/according_a_poll_done_by_wsj_83_of_americans_now/)
+- [CPI data incoming](https://www.reddit.com/r/wallstreetbets/comments/v814pv/cpi_data_incoming/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
