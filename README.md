@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nothing But The Truth! #WeWant$10Gas](https://www.reddit.com/r/wallstreetbets/comments/v8u1sf/nothing_but_the_truth_wewant10gas/)
-- [Footage of USS.StockMarket has been released today. What a beautiful sight](https://www.reddit.com/r/wallstreetbets/comments/v8sv7m/footage_of_ussstockmarket_has_been_released_today/)
-- [Those that bought GME calls this week 🤡🤡](https://www.reddit.com/r/wallstreetbets/comments/v8sdnc/those_that_bought_gme_calls_this_week/)
-- [A bunch of jokers.](https://www.reddit.com/r/wallstreetbets/comments/v8s8ug/a_bunch_of_jokers/)
-- [Never thought I would be posting a loss porn. I lost over 10k in a day.](https://www.reddit.com/r/wallstreetbets/comments/v8ry4j/never_thought_i_would_be_posting_a_loss_porn_i/)
+- [PETZ.. here’s my dinner. 🫶🏻](https://www.reddit.com/r/wallstreetbets/comments/v9kiyz/petz_heres_my_dinner/)
+- [Gas/Diesel prices factor into every single consumer product in the US. The crash really hasn’t even begun yet.](https://www.reddit.com/r/wallstreetbets/comments/v9kdr5/gasdiesel_prices_factor_into_every_single/)
+- [The Fed Put says..](https://www.reddit.com/r/wallstreetbets/comments/v9kba4/the_fed_put_says/)
+- [8.6% my ass](https://www.reddit.com/r/wallstreetbets/comments/v9iyki/86_my_ass/)
+- [Buy Puts](https://www.reddit.com/r/wallstreetbets/comments/v9i7k7/buy_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
