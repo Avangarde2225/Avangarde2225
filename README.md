@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PETZ.. here’s my dinner. 🫶🏻](https://www.reddit.com/r/wallstreetbets/comments/v9kiyz/petz_heres_my_dinner/)
-- [Gas/Diesel prices factor into every single consumer product in the US. The crash really hasn’t even begun yet.](https://www.reddit.com/r/wallstreetbets/comments/v9kdr5/gasdiesel_prices_factor_into_every_single/)
-- [The Fed Put says..](https://www.reddit.com/r/wallstreetbets/comments/v9kba4/the_fed_put_says/)
-- [8.6% my ass](https://www.reddit.com/r/wallstreetbets/comments/v9iyki/86_my_ass/)
-- [Buy Puts](https://www.reddit.com/r/wallstreetbets/comments/v9i7k7/buy_puts/)
+- [Aaaand it&#39;s gone](https://www.reddit.com/r/wallstreetbets/comments/va9nw8/aaaand_its_gone/)
+- [I’ll just leave this here](https://www.reddit.com/r/wallstreetbets/comments/va9kmk/ill_just_leave_this_here/)
+- [Not all bears are bad!](https://www.reddit.com/r/wallstreetbets/comments/va8l5n/not_all_bears_are_bad/)
+- [A job to hedge against losses and inflation.](https://www.reddit.com/r/wallstreetbets/comments/va7yx1/a_job_to_hedge_against_losses_and_inflation/)
+- [I guess it’s the sad truth.](https://www.reddit.com/r/wallstreetbets/comments/va7gnb/i_guess_its_the_sad_truth/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
