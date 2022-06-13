@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Aaaand it&#39;s gone](https://www.reddit.com/r/wallstreetbets/comments/va9nw8/aaaand_its_gone/)
-- [I’ll just leave this here](https://www.reddit.com/r/wallstreetbets/comments/va9kmk/ill_just_leave_this_here/)
-- [Not all bears are bad!](https://www.reddit.com/r/wallstreetbets/comments/va8l5n/not_all_bears_are_bad/)
-- [A job to hedge against losses and inflation.](https://www.reddit.com/r/wallstreetbets/comments/va7yx1/a_job_to_hedge_against_losses_and_inflation/)
-- [I guess it’s the sad truth.](https://www.reddit.com/r/wallstreetbets/comments/va7gnb/i_guess_its_the_sad_truth/)
+- [Ryan Cohen Quotes. Read these and tell me if there’s anyone else in the world you’d rather bet on](https://www.reddit.com/r/wallstreetbets/comments/vayfx3/ryan_cohen_quotes_read_these_and_tell_me_if/)
+- [well](https://www.reddit.com/r/wallstreetbets/comments/vaxk5s/well/)
+- [Biggest weekend gap down since 2020. &lpar;Futures&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vawxjg/biggest_weekend_gap_down_since_2020_futures/)
+- [Everyone… I think we’re in a recession.](https://www.reddit.com/r/wallstreetbets/comments/vawv0b/everyone_i_think_were_in_a_recession/)
+- [Coming Soon! In Theaters Near You!!](https://www.reddit.com/r/wallstreetbets/comments/vaw8fn/coming_soon_in_theaters_near_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
