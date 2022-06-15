@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My wife&#39;s boyfriend got liquidated outside the club in Miami.](https://www.reddit.com/r/wallstreetbets/comments/vboof9/my_wifes_boyfriend_got_liquidated_outside_the/)
-- [Fed minting new fiat for Gen Z](https://www.reddit.com/r/wallstreetbets/comments/vbnt74/fed_minting_new_fiat_for_gen_z/)
-- [bears this year:](https://www.reddit.com/r/wallstreetbets/comments/vbmgls/bears_this_year/)
-- [Economy wakeup food shortages BUY CORN](https://www.reddit.com/r/wallstreetbets/comments/vbliq9/economy_wakeup_food_shortages_buy_corn/)
-- [Solved the fuel crisis](https://www.reddit.com/r/wallstreetbets/comments/vbl7aw/solved_the_fuel_crisis/)
+- [Retail traders in 2022:](https://www.reddit.com/r/wallstreetbets/comments/vcfnfr/retail_traders_in_2022/)
+- [Hope you all have spy calls](https://www.reddit.com/r/wallstreetbets/comments/vcdxbf/hope_you_all_have_spy_calls/)
+- [It&#39;s Not Delivery. It&#39;s De&#39;Struggle.](https://www.reddit.com/r/wallstreetbets/comments/vcdwz6/its_not_delivery_its_destruggle/)
+- [RECLAIMING MY MEME. Some degen stole my meme and reposted it for 10k more karma. I’m already down -40% YTD, now you’re shorting my fucking memes. 🤬🤬](https://www.reddit.com/r/wallstreetbets/comments/vcduib/reclaiming_my_meme_some_degen_stole_my_meme_and/)
+- [Market Crash](https://www.reddit.com/r/wallstreetbets/comments/vcdcvm/market_crash/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
