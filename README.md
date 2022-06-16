@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Retail traders in 2022:](https://www.reddit.com/r/wallstreetbets/comments/vcfnfr/retail_traders_in_2022/)
-- [Hope you all have spy calls](https://www.reddit.com/r/wallstreetbets/comments/vcdxbf/hope_you_all_have_spy_calls/)
-- [It&#39;s Not Delivery. It&#39;s De&#39;Struggle.](https://www.reddit.com/r/wallstreetbets/comments/vcdwz6/its_not_delivery_its_destruggle/)
-- [RECLAIMING MY MEME. Some degen stole my meme and reposted it for 10k more karma. I’m already down -40% YTD, now you’re shorting my fucking memes. 🤬🤬](https://www.reddit.com/r/wallstreetbets/comments/vcduib/reclaiming_my_meme_some_degen_stole_my_meme_and/)
-- [Market Crash](https://www.reddit.com/r/wallstreetbets/comments/vcdcvm/market_crash/)
+- [Another magazine cover Kenny, ur so popular](https://www.reddit.com/r/wallstreetbets/comments/vd6ui8/another_magazine_cover_kenny_ur_so_popular/)
+- [Accurate depiction attempting to time the market today](https://www.reddit.com/r/wallstreetbets/comments/vd6hpu/accurate_depiction_attempting_to_time_the_market/)
+- [A good summary of the day](https://www.reddit.com/r/wallstreetbets/comments/vd61zq/a_good_summary_of_the_day/)
+- [This pretty much sums up these last few weeks for many of us.](https://www.reddit.com/r/wallstreetbets/comments/vd5acl/this_pretty_much_sums_up_these_last_few_weeks_for/)
+- [Dr Burry was very confident in his theory #HODL](https://www.reddit.com/r/wallstreetbets/comments/vd59tu/dr_burry_was_very_confident_in_his_theory_hodl/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
