@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Another magazine cover Kenny, ur so popular](https://www.reddit.com/r/wallstreetbets/comments/vd6ui8/another_magazine_cover_kenny_ur_so_popular/)
-- [Accurate depiction attempting to time the market today](https://www.reddit.com/r/wallstreetbets/comments/vd6hpu/accurate_depiction_attempting_to_time_the_market/)
-- [A good summary of the day](https://www.reddit.com/r/wallstreetbets/comments/vd61zq/a_good_summary_of_the_day/)
-- [This pretty much sums up these last few weeks for many of us.](https://www.reddit.com/r/wallstreetbets/comments/vd5acl/this_pretty_much_sums_up_these_last_few_weeks_for/)
-- [Dr Burry was very confident in his theory #HODL](https://www.reddit.com/r/wallstreetbets/comments/vd59tu/dr_burry_was_very_confident_in_his_theory_hodl/)
+- [Honestly didn’t think $LCID actually made real cars until today](https://www.reddit.com/r/wallstreetbets/comments/vdyji5/honestly_didnt_think_lcid_actually_made_real_cars/)
+- [This motherfucker doesn’t miss](https://www.reddit.com/r/wallstreetbets/comments/vduktq/this_motherfucker_doesnt_miss/)
+- [What Are Your Moves Tomorrow, June 17, 2022](https://www.reddit.com/r/wallstreetbets/comments/vduk2r/what_are_your_moves_tomorrow_june_17_2022/)
+- [I&#39;m no economics professor but](https://www.reddit.com/r/wallstreetbets/comments/vdu4kk/im_no_economics_professor_but/)
+- [My take from yesterday](https://www.reddit.com/r/wallstreetbets/comments/vdtpl3/my_take_from_yesterday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
