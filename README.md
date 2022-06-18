@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Honestly didn’t think $LCID actually made real cars until today](https://www.reddit.com/r/wallstreetbets/comments/vdyji5/honestly_didnt_think_lcid_actually_made_real_cars/)
-- [This motherfucker doesn’t miss](https://www.reddit.com/r/wallstreetbets/comments/vduktq/this_motherfucker_doesnt_miss/)
-- [What Are Your Moves Tomorrow, June 17, 2022](https://www.reddit.com/r/wallstreetbets/comments/vduk2r/what_are_your_moves_tomorrow_june_17_2022/)
-- [I&#39;m no economics professor but](https://www.reddit.com/r/wallstreetbets/comments/vdu4kk/im_no_economics_professor_but/)
-- [My take from yesterday](https://www.reddit.com/r/wallstreetbets/comments/vdtpl3/my_take_from_yesterday/)
+- [How I’ve been able to afford buying more moon tickets.](https://www.reddit.com/r/wallstreetbets/comments/vetb7u/how_ive_been_able_to_afford_buying_more_moon/)
+- [Question was &quot;What&#39;s the most WSB thing you do?&quot; - I think they won](https://www.reddit.com/r/wallstreetbets/comments/vesv9i/question_was_whats_the_most_wsb_thing_you_do_i/)
+- [There she blows! 🐋💥 Canada&#39;s housing market collapsing: prices down 9% in 2 months, buyers unable to secure mortgage because house losses value before closing 🏘️💥📉](https://www.reddit.com/r/wallstreetbets/comments/ves6s7/there_she_blows_canadas_housing_market_collapsing/)
+- [WallStreetBets is migrating to Reddit&#39;s new interface!](https://www.reddit.com/r/wallstreetbets/comments/ves4vz/wallstreetbets_is_migrating_to_reddits_new/)
+- [Time to lease a SS on a 20% APR](https://www.reddit.com/r/wallstreetbets/comments/verivf/time_to_lease_a_ss_on_a_20_apr/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
