@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How I’ve been able to afford buying more moon tickets.](https://www.reddit.com/r/wallstreetbets/comments/vetb7u/how_ive_been_able_to_afford_buying_more_moon/)
-- [Question was &quot;What&#39;s the most WSB thing you do?&quot; - I think they won](https://www.reddit.com/r/wallstreetbets/comments/vesv9i/question_was_whats_the_most_wsb_thing_you_do_i/)
-- [There she blows! 🐋💥 Canada&#39;s housing market collapsing: prices down 9% in 2 months, buyers unable to secure mortgage because house losses value before closing 🏘️💥📉](https://www.reddit.com/r/wallstreetbets/comments/ves6s7/there_she_blows_canadas_housing_market_collapsing/)
-- [WallStreetBets is migrating to Reddit&#39;s new interface!](https://www.reddit.com/r/wallstreetbets/comments/ves4vz/wallstreetbets_is_migrating_to_reddits_new/)
-- [Time to lease a SS on a 20% APR](https://www.reddit.com/r/wallstreetbets/comments/verivf/time_to_lease_a_ss_on_a_20_apr/)
+- [Tesla with their new product adjusted for inflation](https://www.reddit.com/r/wallstreetbets/comments/vfhwzh/tesla_with_their_new_product_adjusted_for/)
+- [Quite literally!!](https://www.reddit.com/r/wallstreetbets/comments/vfh4vb/quite_literally/)
+- [Just when J Pow thought he had inflation under control](https://www.reddit.com/r/wallstreetbets/comments/vfg9co/just_when_j_pow_thought_he_had_inflation_under/)
+- [I’ve missed you my feline friend](https://www.reddit.com/r/wallstreetbets/comments/vfftvz/ive_missed_you_my_feline_friend/)
+- [Thru thick and thin.](https://www.reddit.com/r/wallstreetbets/comments/vffjag/thru_thick_and_thin/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
