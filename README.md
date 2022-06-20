@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla with their new product adjusted for inflation](https://www.reddit.com/r/wallstreetbets/comments/vfhwzh/tesla_with_their_new_product_adjusted_for/)
-- [Quite literally!!](https://www.reddit.com/r/wallstreetbets/comments/vfh4vb/quite_literally/)
-- [Just when J Pow thought he had inflation under control](https://www.reddit.com/r/wallstreetbets/comments/vfg9co/just_when_j_pow_thought_he_had_inflation_under/)
-- [I’ve missed you my feline friend](https://www.reddit.com/r/wallstreetbets/comments/vfftvz/ive_missed_you_my_feline_friend/)
-- [Thru thick and thin.](https://www.reddit.com/r/wallstreetbets/comments/vffjag/thru_thick_and_thin/)
+- [Waiting to see $10 gas in Cali](https://www.reddit.com/r/wallstreetbets/comments/vg5l7x/waiting_to_see_10_gas_in_cali/)
+- [WSB to Powell after he doesn’t do 200bps hike](https://www.reddit.com/r/wallstreetbets/comments/vg3l5l/wsb_to_powell_after_he_doesnt_do_200bps_hike/)
+- [“Ernest Goes Bankrupt.”](https://www.reddit.com/r/wallstreetbets/comments/vg2wnv/ernest_goes_bankrupt/)
+- [Bruh](https://www.reddit.com/r/wallstreetbets/comments/vg2en8/bruh/)
+- [You know who you are. Spotted at my local sandbar](https://www.reddit.com/r/wallstreetbets/comments/vg1z06/you_know_who_you_are_spotted_at_my_local_sandbar/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
