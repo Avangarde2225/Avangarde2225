@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Waiting to see $10 gas in Cali](https://www.reddit.com/r/wallstreetbets/comments/vg5l7x/waiting_to_see_10_gas_in_cali/)
-- [WSB to Powell after he doesn’t do 200bps hike](https://www.reddit.com/r/wallstreetbets/comments/vg3l5l/wsb_to_powell_after_he_doesnt_do_200bps_hike/)
-- [“Ernest Goes Bankrupt.”](https://www.reddit.com/r/wallstreetbets/comments/vg2wnv/ernest_goes_bankrupt/)
-- [Bruh](https://www.reddit.com/r/wallstreetbets/comments/vg2en8/bruh/)
-- [You know who you are. Spotted at my local sandbar](https://www.reddit.com/r/wallstreetbets/comments/vg1z06/you_know_who_you_are_spotted_at_my_local_sandbar/)
+- [Spotted at Hot Rags](https://www.reddit.com/r/wallstreetbets/comments/vgz7cc/spotted_at_hot_rags/)
+- [How trading in a bear market feels like](https://www.reddit.com/r/wallstreetbets/comments/vgz467/how_trading_in_a_bear_market_feels_like/)
+- [Your Network Is Your &lpar;Negative&rpar; Net Worth](https://www.reddit.com/r/wallstreetbets/comments/vgy7u6/your_network_is_your_negative_net_worth/)
+- [Diamond Hands 🙌](https://www.reddit.com/r/wallstreetbets/comments/vgwjqm/diamond_hands/)
+- [WSB: How the mighty have fallen](https://www.reddit.com/r/wallstreetbets/comments/vgwixa/wsb_how_the_mighty_have_fallen/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
