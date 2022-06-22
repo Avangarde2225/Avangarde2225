@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Spotted at Hot Rags](https://www.reddit.com/r/wallstreetbets/comments/vgz7cc/spotted_at_hot_rags/)
-- [How trading in a bear market feels like](https://www.reddit.com/r/wallstreetbets/comments/vgz467/how_trading_in_a_bear_market_feels_like/)
-- [Your Network Is Your &lpar;Negative&rpar; Net Worth](https://www.reddit.com/r/wallstreetbets/comments/vgy7u6/your_network_is_your_negative_net_worth/)
-- [Diamond Hands 🙌](https://www.reddit.com/r/wallstreetbets/comments/vgwjqm/diamond_hands/)
-- [WSB: How the mighty have fallen](https://www.reddit.com/r/wallstreetbets/comments/vgwixa/wsb_how_the_mighty_have_fallen/)
+- [Life savings YOLO, 300k to 1.4mil.](https://www.reddit.com/r/wallstreetbets/comments/vhpw0f/life_savings_yolo_300k_to_14mil/)
+- [Mother fucker is worth $180 million…….](https://www.reddit.com/r/wallstreetbets/comments/vhprgt/mother_fucker_is_worth_180_million/)
+- [Guy hasn’t moved one bit since I moved in 7 months ago. Kinda concerned ngl](https://www.reddit.com/r/wallstreetbets/comments/vhpncy/guy_hasnt_moved_one_bit_since_i_moved_in_7_months/)
+- [Ah, okay then!](https://www.reddit.com/r/wallstreetbets/comments/vhp9yc/ah_okay_then/)
+- [GME YOLO. Lambo or handjob’s behind Wendy’s. I’ll be happy with either](https://www.reddit.com/r/wallstreetbets/comments/vhoe62/gme_yolo_lambo_or_handjobs_behind_wendys_ill_be/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
