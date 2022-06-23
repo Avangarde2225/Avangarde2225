@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Life savings YOLO, 300k to 1.4mil.](https://www.reddit.com/r/wallstreetbets/comments/vhpw0f/life_savings_yolo_300k_to_14mil/)
-- [Mother fucker is worth $180 million…….](https://www.reddit.com/r/wallstreetbets/comments/vhprgt/mother_fucker_is_worth_180_million/)
-- [Guy hasn’t moved one bit since I moved in 7 months ago. Kinda concerned ngl](https://www.reddit.com/r/wallstreetbets/comments/vhpncy/guy_hasnt_moved_one_bit_since_i_moved_in_7_months/)
-- [Ah, okay then!](https://www.reddit.com/r/wallstreetbets/comments/vhp9yc/ah_okay_then/)
-- [GME YOLO. Lambo or handjob’s behind Wendy’s. I’ll be happy with either](https://www.reddit.com/r/wallstreetbets/comments/vhoe62/gme_yolo_lambo_or_handjobs_behind_wendys_ill_be/)
+- [Sounds about right](https://www.reddit.com/r/wallstreetbets/comments/vig56l/sounds_about_right/)
+- [nice. bet](https://www.reddit.com/r/wallstreetbets/comments/vig4i8/nice_bet/)
+- [Part 2 &lpar;stop before you drive this economy off a cliff&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vifw80/part_2_stop_before_you_drive_this_economy_off_a/)
+- [stock up and it goes private at 52](https://www.reddit.com/r/wallstreetbets/comments/vie7bw/stock_up_and_it_goes_private_at_52/)
+- [Made a nice gain overnight puts and then bought/sold puts 2 more times intraday](https://www.reddit.com/r/wallstreetbets/comments/vie4me/made_a_nice_gain_overnight_puts_and_then/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
