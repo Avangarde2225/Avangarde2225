@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sounds about right](https://www.reddit.com/r/wallstreetbets/comments/vig56l/sounds_about_right/)
-- [nice. bet](https://www.reddit.com/r/wallstreetbets/comments/vig4i8/nice_bet/)
-- [Part 2 &lpar;stop before you drive this economy off a cliff&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vifw80/part_2_stop_before_you_drive_this_economy_off_a/)
-- [stock up and it goes private at 52](https://www.reddit.com/r/wallstreetbets/comments/vie7bw/stock_up_and_it_goes_private_at_52/)
-- [Made a nice gain overnight puts and then bought/sold puts 2 more times intraday](https://www.reddit.com/r/wallstreetbets/comments/vie4me/made_a_nice_gain_overnight_puts_and_then/)
+- [1DTE SPY YOLO GAIN](https://www.reddit.com/r/wallstreetbets/comments/vj80gu/1dte_spy_yolo_gain/)
+- [Are we rich yet?](https://www.reddit.com/r/wallstreetbets/comments/vj7hnf/are_we_rich_yet/)
+- [Gotta play it both ways so that it’s never tits up ⬆️](https://www.reddit.com/r/wallstreetbets/comments/vj7f6i/gotta_play_it_both_ways_so_that_its_never_tits_up/)
+- [What Are Your Moves Tomorrow, June 24, 2022](https://www.reddit.com/r/wallstreetbets/comments/vj5o3e/what_are_your_moves_tomorrow_june_24_2022/)
+- [who could have guessed](https://www.reddit.com/r/wallstreetbets/comments/vj53km/who_could_have_guessed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
