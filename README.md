@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [1DTE SPY YOLO GAIN](https://www.reddit.com/r/wallstreetbets/comments/vj80gu/1dte_spy_yolo_gain/)
-- [Are we rich yet?](https://www.reddit.com/r/wallstreetbets/comments/vj7hnf/are_we_rich_yet/)
-- [Gotta play it both ways so that it’s never tits up ⬆️](https://www.reddit.com/r/wallstreetbets/comments/vj7f6i/gotta_play_it_both_ways_so_that_its_never_tits_up/)
-- [What Are Your Moves Tomorrow, June 24, 2022](https://www.reddit.com/r/wallstreetbets/comments/vj5o3e/what_are_your_moves_tomorrow_june_24_2022/)
-- [who could have guessed](https://www.reddit.com/r/wallstreetbets/comments/vj53km/who_could_have_guessed/)
+- [Maybe the trend is my friend](https://www.reddit.com/r/wallstreetbets/comments/vk0n5i/maybe_the_trend_is_my_friend/)
+- [Used 5k in instant deposits which I didn’t have and turned it into 1,000% gains](https://www.reddit.com/r/wallstreetbets/comments/vjz684/used_5k_in_instant_deposits_which_i_didnt_have/)
+- [Getting Burned](https://www.reddit.com/r/wallstreetbets/comments/vjyzwe/getting_burned/)
+- [I GUESS WE ARE GOOD NOW!!!](https://www.reddit.com/r/wallstreetbets/comments/vjyu01/i_guess_we_are_good_now/)
+- [Just a reminder, it&#39;s all priced in](https://www.reddit.com/r/wallstreetbets/comments/vjxgep/just_a_reminder_its_all_priced_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
