@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Maybe the trend is my friend](https://www.reddit.com/r/wallstreetbets/comments/vk0n5i/maybe_the_trend_is_my_friend/)
-- [Used 5k in instant deposits which I didn’t have and turned it into 1,000% gains](https://www.reddit.com/r/wallstreetbets/comments/vjz684/used_5k_in_instant_deposits_which_i_didnt_have/)
-- [Getting Burned](https://www.reddit.com/r/wallstreetbets/comments/vjyzwe/getting_burned/)
-- [I GUESS WE ARE GOOD NOW!!!](https://www.reddit.com/r/wallstreetbets/comments/vjyu01/i_guess_we_are_good_now/)
-- [Just a reminder, it&#39;s all priced in](https://www.reddit.com/r/wallstreetbets/comments/vjxgep/just_a_reminder_its_all_priced_in/)
+- [Posts after market crash be like:](https://www.reddit.com/r/wallstreetbets/comments/vkrq2m/posts_after_market_crash_be_like/)
+- [A lot of you assholes are drawing over S&amp;P graphs... again... so here&#39;s my hard analysis](https://www.reddit.com/r/wallstreetbets/comments/vkrlyo/a_lot_of_you_assholes_are_drawing_over_sp_graphs/)
+- [Oh ya. These the people that fuel the market. I suggest following the last guys investment plan bc clearly he’s a millionaire](https://www.reddit.com/r/wallstreetbets/comments/vkprc7/oh_ya_these_the_people_that_fuel_the_market_i/)
+- [Me: What&#39;s &quot;profit&quot;?](https://www.reddit.com/r/wallstreetbets/comments/vkpd2u/me_whats_profit/)
+- [AI GENERATED PICTURE FOR THE CURRENT MOOD: &quot;Rembrandt&#39;s painting depicting a scene of adult men desperately crying over a red stock graph losing 90% of the value&quot; &lpar;DALL·E 2&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vkp8aq/ai_generated_picture_for_the_current_mood/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
