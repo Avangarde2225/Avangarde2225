@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Posts after market crash be like:](https://www.reddit.com/r/wallstreetbets/comments/vkrq2m/posts_after_market_crash_be_like/)
-- [A lot of you assholes are drawing over S&amp;P graphs... again... so here&#39;s my hard analysis](https://www.reddit.com/r/wallstreetbets/comments/vkrlyo/a_lot_of_you_assholes_are_drawing_over_sp_graphs/)
-- [Oh ya. These the people that fuel the market. I suggest following the last guys investment plan bc clearly he’s a millionaire](https://www.reddit.com/r/wallstreetbets/comments/vkprc7/oh_ya_these_the_people_that_fuel_the_market_i/)
-- [Me: What&#39;s &quot;profit&quot;?](https://www.reddit.com/r/wallstreetbets/comments/vkpd2u/me_whats_profit/)
-- [AI GENERATED PICTURE FOR THE CURRENT MOOD: &quot;Rembrandt&#39;s painting depicting a scene of adult men desperately crying over a red stock graph losing 90% of the value&quot; &lpar;DALL·E 2&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vkp8aq/ai_generated_picture_for_the_current_mood/)
+- [Warning: start living less frugally and buy more $14 margaritas](https://www.reddit.com/r/wallstreetbets/comments/vlhwlv/warning_start_living_less_frugally_and_buy_more/)
+- [This goes here](https://www.reddit.com/r/wallstreetbets/comments/vlgodd/this_goes_here/)
+- [Actual footage of me getting a margin call](https://www.reddit.com/r/wallstreetbets/comments/vlfynx/actual_footage_of_me_getting_a_margin_call/)
+- [Adam Aron &lpar;A MC&rpar; on twitter: Top Gun reaches 1 billion in revenues in ONE month.](https://www.reddit.com/r/wallstreetbets/comments/vlenpe/adam_aron_a_mc_on_twitter_top_gun_reaches_1/)
+- [My experience with options so far...](https://www.reddit.com/r/wallstreetbets/comments/vle89h/my_experience_with_options_so_far/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
