@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Warning: start living less frugally and buy more $14 margaritas](https://www.reddit.com/r/wallstreetbets/comments/vlhwlv/warning_start_living_less_frugally_and_buy_more/)
-- [This goes here](https://www.reddit.com/r/wallstreetbets/comments/vlgodd/this_goes_here/)
-- [Actual footage of me getting a margin call](https://www.reddit.com/r/wallstreetbets/comments/vlfynx/actual_footage_of_me_getting_a_margin_call/)
-- [Adam Aron &lpar;A MC&rpar; on twitter: Top Gun reaches 1 billion in revenues in ONE month.](https://www.reddit.com/r/wallstreetbets/comments/vlenpe/adam_aron_a_mc_on_twitter_top_gun_reaches_1/)
-- [My experience with options so far...](https://www.reddit.com/r/wallstreetbets/comments/vle89h/my_experience_with_options_so_far/)
+- [Fuck it… someone had to do it. $AMC YOLO up +130% / +$53,000… so far](https://www.reddit.com/r/wallstreetbets/comments/vm8jyp/fuck_it_someone_had_to_do_it_amc_yolo_up_130/)
+- [Bulls are getting a little to excited](https://www.reddit.com/r/wallstreetbets/comments/vm6wtq/bulls_are_getting_a_little_to_excited/)
+- [Elon Musk has not tweeted or retweeted something in five straight days. Something smells 🐟y](https://www.reddit.com/r/wallstreetbets/comments/vm64y5/elon_musk_has_not_tweeted_or_retweeted_something/)
+- [Recession indicator: Apes going to wok!](https://www.reddit.com/r/wallstreetbets/comments/vm5r7n/recession_indicator_apes_going_to_wok/)
+- [Maxine Waters released a report on same day as Roe v Wade claiming the DTCC &#39;Waved 9.6B Collateral obligations&#39; for Robinhood Broker on Jan 27th 2021.](https://www.reddit.com/r/wallstreetbets/comments/vm5hl2/maxine_waters_released_a_report_on_same_day_as/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
