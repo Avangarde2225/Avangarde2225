@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fuck it… someone had to do it. $AMC YOLO up +130% / +$53,000… so far](https://www.reddit.com/r/wallstreetbets/comments/vm8jyp/fuck_it_someone_had_to_do_it_amc_yolo_up_130/)
-- [Bulls are getting a little to excited](https://www.reddit.com/r/wallstreetbets/comments/vm6wtq/bulls_are_getting_a_little_to_excited/)
-- [Elon Musk has not tweeted or retweeted something in five straight days. Something smells 🐟y](https://www.reddit.com/r/wallstreetbets/comments/vm64y5/elon_musk_has_not_tweeted_or_retweeted_something/)
-- [Recession indicator: Apes going to wok!](https://www.reddit.com/r/wallstreetbets/comments/vm5r7n/recession_indicator_apes_going_to_wok/)
-- [Maxine Waters released a report on same day as Roe v Wade claiming the DTCC &#39;Waved 9.6B Collateral obligations&#39; for Robinhood Broker on Jan 27th 2021.](https://www.reddit.com/r/wallstreetbets/comments/vm5hl2/maxine_waters_released_a_report_on_same_day_as/)
+- [Isn&#39;t printing money what got us here?](https://www.reddit.com/r/wallstreetbets/comments/vn1l4b/isnt_printing_money_what_got_us_here/)
+- [Inverse Cramer does it again with NIKE 😂](https://www.reddit.com/r/wallstreetbets/comments/vn1fi4/inverse_cramer_does_it_again_with_nike/)
+- [California girls 🎶](https://www.reddit.com/r/wallstreetbets/comments/vn0x0z/california_girls/)
+- [When you decide to yolo spy puts and then paper hand the open to spy calls watching the market reverse and your already have 3 day trades.](https://www.reddit.com/r/wallstreetbets/comments/vmyvry/when_you_decide_to_yolo_spy_puts_and_then_paper/)
+- [self explanatory](https://www.reddit.com/r/wallstreetbets/comments/vmybjs/self_explanatory/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
