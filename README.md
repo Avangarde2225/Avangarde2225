@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Isn&#39;t printing money what got us here?](https://www.reddit.com/r/wallstreetbets/comments/vn1l4b/isnt_printing_money_what_got_us_here/)
-- [Inverse Cramer does it again with NIKE 😂](https://www.reddit.com/r/wallstreetbets/comments/vn1fi4/inverse_cramer_does_it_again_with_nike/)
-- [California girls 🎶](https://www.reddit.com/r/wallstreetbets/comments/vn0x0z/california_girls/)
-- [When you decide to yolo spy puts and then paper hand the open to spy calls watching the market reverse and your already have 3 day trades.](https://www.reddit.com/r/wallstreetbets/comments/vmyvry/when_you_decide_to_yolo_spy_puts_and_then_paper/)
-- [self explanatory](https://www.reddit.com/r/wallstreetbets/comments/vmybjs/self_explanatory/)
+- [Accurate representation of the incoming &#39;soft landing&#39;.](https://www.reddit.com/r/wallstreetbets/comments/vntamj/accurate_representation_of_the_incoming_soft/)
+- [Bullish on $MCD](https://www.reddit.com/r/wallstreetbets/comments/vnstit/bullish_on_mcd/)
+- [A reminder 🦧](https://www.reddit.com/r/wallstreetbets/comments/vnss7g/a_reminder/)
+- [TSLA Logo in AH](https://www.reddit.com/r/wallstreetbets/comments/vnroza/tsla_logo_in_ah/)
+- [Saw this on YouTube. Is this mental retardation?](https://www.reddit.com/r/wallstreetbets/comments/vnrlok/saw_this_on_youtube_is_this_mental_retardation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
