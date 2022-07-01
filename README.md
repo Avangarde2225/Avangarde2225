@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Accurate representation of the incoming &#39;soft landing&#39;.](https://www.reddit.com/r/wallstreetbets/comments/vntamj/accurate_representation_of_the_incoming_soft/)
-- [Bullish on $MCD](https://www.reddit.com/r/wallstreetbets/comments/vnstit/bullish_on_mcd/)
-- [A reminder 🦧](https://www.reddit.com/r/wallstreetbets/comments/vnss7g/a_reminder/)
-- [TSLA Logo in AH](https://www.reddit.com/r/wallstreetbets/comments/vnroza/tsla_logo_in_ah/)
-- [Saw this on YouTube. Is this mental retardation?](https://www.reddit.com/r/wallstreetbets/comments/vnrlok/saw_this_on_youtube_is_this_mental_retardation/)
+- [Puts on Socks 🧦](https://www.reddit.com/r/wallstreetbets/comments/vom6t4/puts_on_socks/)
+- [Kid belongs here](https://www.reddit.com/r/wallstreetbets/comments/vom361/kid_belongs_here/)
+- [Title](https://www.reddit.com/r/wallstreetbets/comments/voknxn/title/)
+- [It&#39;s just an overreaction, right guys?](https://www.reddit.com/r/wallstreetbets/comments/vok5t2/its_just_an_overreaction_right_guys/)
+- [Current situation](https://www.reddit.com/r/wallstreetbets/comments/vojtri/current_situation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
