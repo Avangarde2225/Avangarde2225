@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on Socks 🧦](https://www.reddit.com/r/wallstreetbets/comments/vom6t4/puts_on_socks/)
-- [Kid belongs here](https://www.reddit.com/r/wallstreetbets/comments/vom361/kid_belongs_here/)
-- [Title](https://www.reddit.com/r/wallstreetbets/comments/voknxn/title/)
-- [It&#39;s just an overreaction, right guys?](https://www.reddit.com/r/wallstreetbets/comments/vok5t2/its_just_an_overreaction_right_guys/)
-- [Current situation](https://www.reddit.com/r/wallstreetbets/comments/vojtri/current_situation/)
+- [Thanks Mr. Krugman, really enjoying this boom](https://www.reddit.com/r/wallstreetbets/comments/vpdd1n/thanks_mr_krugman_really_enjoying_this_boom/)
+- [If anyone forgot what real money looked like](https://www.reddit.com/r/wallstreetbets/comments/vpbj6j/if_anyone_forgot_what_real_money_looked_like/)
+- [Bad things happen in 3’s. My dog died and I lost all my money. Waiting for the final ball to drop.](https://www.reddit.com/r/wallstreetbets/comments/vpbhsb/bad_things_happen_in_3s_my_dog_died_and_i_lost/)
+- [Should we increase oil production in America?](https://www.reddit.com/r/wallstreetbets/comments/vpbgqk/should_we_increase_oil_production_in_america/)
+- [Whenever WSB talks about bear market, this is what I imagine](https://www.reddit.com/r/wallstreetbets/comments/vp9zvg/whenever_wsb_talks_about_bear_market_this_is_what/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
