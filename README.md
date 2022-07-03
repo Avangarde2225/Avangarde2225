@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks Mr. Krugman, really enjoying this boom](https://www.reddit.com/r/wallstreetbets/comments/vpdd1n/thanks_mr_krugman_really_enjoying_this_boom/)
-- [If anyone forgot what real money looked like](https://www.reddit.com/r/wallstreetbets/comments/vpbj6j/if_anyone_forgot_what_real_money_looked_like/)
-- [Bad things happen in 3’s. My dog died and I lost all my money. Waiting for the final ball to drop.](https://www.reddit.com/r/wallstreetbets/comments/vpbhsb/bad_things_happen_in_3s_my_dog_died_and_i_lost/)
-- [Should we increase oil production in America?](https://www.reddit.com/r/wallstreetbets/comments/vpbgqk/should_we_increase_oil_production_in_america/)
-- [Whenever WSB talks about bear market, this is what I imagine](https://www.reddit.com/r/wallstreetbets/comments/vp9zvg/whenever_wsb_talks_about_bear_market_this_is_what/)
+- [Wen housing crash?](https://www.reddit.com/r/wallstreetbets/comments/vq38kv/wen_housing_crash/)
+- [Which one of you asked this girl out?](https://www.reddit.com/r/wallstreetbets/comments/vq2nsz/which_one_of_you_asked_this_girl_out/)
+- [Is this shareholder activism?](https://www.reddit.com/r/wallstreetbets/comments/vq24rw/is_this_shareholder_activism/)
+- [It appears he did not lie under oath after all…](https://www.reddit.com/r/wallstreetbets/comments/vq0y7s/it_appears_he_did_not_lie_under_oath_after_all/)
+- [Reality is stranger than fiction](https://www.reddit.com/r/wallstreetbets/comments/vpzw75/reality_is_stranger_than_fiction/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
