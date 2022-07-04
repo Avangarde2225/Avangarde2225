@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wen housing crash?](https://www.reddit.com/r/wallstreetbets/comments/vq38kv/wen_housing_crash/)
-- [Which one of you asked this girl out?](https://www.reddit.com/r/wallstreetbets/comments/vq2nsz/which_one_of_you_asked_this_girl_out/)
-- [Is this shareholder activism?](https://www.reddit.com/r/wallstreetbets/comments/vq24rw/is_this_shareholder_activism/)
-- [It appears he did not lie under oath after all…](https://www.reddit.com/r/wallstreetbets/comments/vq0y7s/it_appears_he_did_not_lie_under_oath_after_all/)
-- [Reality is stranger than fiction](https://www.reddit.com/r/wallstreetbets/comments/vpzw75/reality_is_stranger_than_fiction/)
+- [B B B Y: Beware of the Sham! This is why I YOLO’D](https://www.reddit.com/r/wallstreetbets/comments/vqsl0v/b_b_b_y_beware_of_the_sham_this_is_why_i_yolod/)
+- [imo it belongs here!](https://www.reddit.com/r/wallstreetbets/comments/vqrvhd/imo_it_belongs_here/)
+- [pain](https://www.reddit.com/r/wallstreetbets/comments/vqrnc0/pain/)
+- [Sunday rant, wife is working. Jerome Powell is a dickhead!](https://www.reddit.com/r/wallstreetbets/comments/vqq7ns/sunday_rant_wife_is_working_jerome_powell_is_a/)
+- [Bears checking up on your portfolio](https://www.reddit.com/r/wallstreetbets/comments/vqpclk/bears_checking_up_on_your_portfolio/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
