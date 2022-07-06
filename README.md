@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Today British bears be like](https://www.reddit.com/r/wallstreetbets/comments/vrkqp2/today_british_bears_be_like/)
-- [Happy Independence Day 🦍 🚀 👽](https://www.reddit.com/r/wallstreetbets/comments/vrkklm/happy_independence_day/)
-- [Well, the LA shanty towns are about to get bigger. I call dibs!](https://www.reddit.com/r/wallstreetbets/comments/vrjsqr/well_the_la_shanty_towns_are_about_to_get_bigger/)
-- [Daily Routine](https://www.reddit.com/r/wallstreetbets/comments/vrizqw/daily_routine/)
-- [How we all feel about owning a home.](https://www.reddit.com/r/wallstreetbets/comments/vri4xz/how_we_all_feel_about_owning_a_home/)
+- [31 mil tonnes](https://www.reddit.com/r/wallstreetbets/comments/vsbn25/31_mil_tonnes/)
+- [Lately yesterday been happening a lot](https://www.reddit.com/r/wallstreetbets/comments/vsbkc1/lately_yesterday_been_happening_a_lot/)
+- [MRW mods sticky a shitpost trolling GME apes](https://www.reddit.com/r/wallstreetbets/comments/vsa8ht/mrw_mods_sticky_a_shitpost_trolling_gme_apes/)
+- [Bears are just bulls who wants to buy lower.](https://www.reddit.com/r/wallstreetbets/comments/vsa0dt/bears_are_just_bulls_who_wants_to_buy_lower/)
+- [Who else went through all three phases of Peter Tuchman today?](https://www.reddit.com/r/wallstreetbets/comments/vs80wa/who_else_went_through_all_three_phases_of_peter/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
