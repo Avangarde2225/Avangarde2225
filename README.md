@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [31 mil tonnes](https://www.reddit.com/r/wallstreetbets/comments/vsbn25/31_mil_tonnes/)
-- [Lately yesterday been happening a lot](https://www.reddit.com/r/wallstreetbets/comments/vsbkc1/lately_yesterday_been_happening_a_lot/)
-- [MRW mods sticky a shitpost trolling GME apes](https://www.reddit.com/r/wallstreetbets/comments/vsa8ht/mrw_mods_sticky_a_shitpost_trolling_gme_apes/)
-- [Bears are just bulls who wants to buy lower.](https://www.reddit.com/r/wallstreetbets/comments/vsa0dt/bears_are_just_bulls_who_wants_to_buy_lower/)
-- [Who else went through all three phases of Peter Tuchman today?](https://www.reddit.com/r/wallstreetbets/comments/vs80wa/who_else_went_through_all_three_phases_of_peter/)
+- [$2500 to $21,000 1 Hour. The Story of a Retard who Double Downed and it paid off. &lpar;Fed Minute Special&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vt502w/2500_to_21000_1_hour_the_story_of_a_retard_who/)
+- [Hearing the news of that sweet sweet splividend.](https://www.reddit.com/r/wallstreetbets/comments/vt3uua/hearing_the_news_of_that_sweet_sweet_splividend/)
+- [Apes after hearing about the 4 for 1 stock split](https://www.reddit.com/r/wallstreetbets/comments/vt3dl5/apes_after_hearing_about_the_4_for_1_stock_split/)
+- [looks like CERN&#39;s LHC did actually open a black hole!](https://www.reddit.com/r/wallstreetbets/comments/vt1qyz/looks_like_cerns_lhc_did_actually_open_a_black/)
+- [Dr Burry coming in hot](https://www.reddit.com/r/wallstreetbets/comments/vt1pdm/dr_burry_coming_in_hot/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
