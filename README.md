@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$2500 to $21,000 1 Hour. The Story of a Retard who Double Downed and it paid off. &lpar;Fed Minute Special&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vt502w/2500_to_21000_1_hour_the_story_of_a_retard_who/)
-- [Hearing the news of that sweet sweet splividend.](https://www.reddit.com/r/wallstreetbets/comments/vt3uua/hearing_the_news_of_that_sweet_sweet_splividend/)
-- [Apes after hearing about the 4 for 1 stock split](https://www.reddit.com/r/wallstreetbets/comments/vt3dl5/apes_after_hearing_about_the_4_for_1_stock_split/)
-- [looks like CERN&#39;s LHC did actually open a black hole!](https://www.reddit.com/r/wallstreetbets/comments/vt1qyz/looks_like_cerns_lhc_did_actually_open_a_black/)
-- [Dr Burry coming in hot](https://www.reddit.com/r/wallstreetbets/comments/vt1pdm/dr_burry_coming_in_hot/)
+- [Twitter lays off 30% of its talent acquisition team &lpar;also doubts on Elon Deal&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vtvjq0/twitter_lays_off_30_of_its_talent_acquisition/)
+- [Which one of you is this? You’re going to have to answer to your wife and her boyfriend.](https://www.reddit.com/r/wallstreetbets/comments/vtuc5b/which_one_of_you_is_this_youre_going_to_have_to/)
+- [$GME - GameStop fires its CFO and announces layoffs as part of aggressive turnaround plan](https://www.reddit.com/r/wallstreetbets/comments/vtta9n/gme_gamestop_fires_its_cfo_and_announces_layoffs/)
+- [500+% gains and 80% Loss porn VS 35%&lt; losses and sub 20% gains.](https://www.reddit.com/r/wallstreetbets/comments/vtsxmo/500_gains_and_80_loss_porn_vs_35_losses_and_sub/)
+- [$GME CEO Matt Furlong&#39;s Email Re: Layoffs](https://www.reddit.com/r/wallstreetbets/comments/vtsq6l/gme_ceo_matt_furlongs_email_re_layoffs/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
