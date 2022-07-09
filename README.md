@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Twitter lays off 30% of its talent acquisition team &lpar;also doubts on Elon Deal&rpar;](https://www.reddit.com/r/wallstreetbets/comments/vtvjq0/twitter_lays_off_30_of_its_talent_acquisition/)
-- [Which one of you is this? You’re going to have to answer to your wife and her boyfriend.](https://www.reddit.com/r/wallstreetbets/comments/vtuc5b/which_one_of_you_is_this_youre_going_to_have_to/)
-- [$GME - GameStop fires its CFO and announces layoffs as part of aggressive turnaround plan](https://www.reddit.com/r/wallstreetbets/comments/vtta9n/gme_gamestop_fires_its_cfo_and_announces_layoffs/)
-- [500+% gains and 80% Loss porn VS 35%&lt; losses and sub 20% gains.](https://www.reddit.com/r/wallstreetbets/comments/vtsxmo/500_gains_and_80_loss_porn_vs_35_losses_and_sub/)
-- [$GME CEO Matt Furlong&#39;s Email Re: Layoffs](https://www.reddit.com/r/wallstreetbets/comments/vtsq6l/gme_ceo_matt_furlongs_email_re_layoffs/)
+- [I too enjoy slurping dicks behind the Wendy’s dumpster](https://www.reddit.com/r/wallstreetbets/comments/vuocd7/i_too_enjoy_slurping_dicks_behind_the_wendys/)
+- [Twitter executives and employees today.. lol](https://www.reddit.com/r/wallstreetbets/comments/vunygt/twitter_executives_and_employees_today_lol/)
+- [Inverse Cramer wins again](https://www.reddit.com/r/wallstreetbets/comments/vumwwa/inverse_cramer_wins_again/)
+- [🤡](https://www.reddit.com/r/wallstreetbets/comments/vumphv/_/)
+- [well this seems to be the the elon musk mindset](https://www.reddit.com/r/wallstreetbets/comments/vum94c/well_this_seems_to_be_the_the_elon_musk_mindset/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
