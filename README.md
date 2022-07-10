@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I too enjoy slurping dicks behind the Wendy’s dumpster](https://www.reddit.com/r/wallstreetbets/comments/vuocd7/i_too_enjoy_slurping_dicks_behind_the_wendys/)
-- [Twitter executives and employees today.. lol](https://www.reddit.com/r/wallstreetbets/comments/vunygt/twitter_executives_and_employees_today_lol/)
-- [Inverse Cramer wins again](https://www.reddit.com/r/wallstreetbets/comments/vumwwa/inverse_cramer_wins_again/)
-- [🤡](https://www.reddit.com/r/wallstreetbets/comments/vumphv/_/)
-- [well this seems to be the the elon musk mindset](https://www.reddit.com/r/wallstreetbets/comments/vum94c/well_this_seems_to_be_the_the_elon_musk_mindset/)
+- [Genghis Musk?](https://www.reddit.com/r/wallstreetbets/comments/vvehfx/genghis_musk/)
+- [Transitory](https://www.reddit.com/r/wallstreetbets/comments/vveg8a/transitory/)
+- [🌈🐻’s For the rest of 22](https://www.reddit.com/r/wallstreetbets/comments/vvbkn0/s_for_the_rest_of_22/)
+- [I went to the casino but it was closed. They don’t operate on Saturdays?](https://www.reddit.com/r/wallstreetbets/comments/vvbjxf/i_went_to_the_casino_but_it_was_closed_they_dont/)
+- [Twitter to elon :](https://www.reddit.com/r/wallstreetbets/comments/vvb94k/twitter_to_elon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
