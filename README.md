@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Genghis Musk?](https://www.reddit.com/r/wallstreetbets/comments/vvehfx/genghis_musk/)
-- [Transitory](https://www.reddit.com/r/wallstreetbets/comments/vveg8a/transitory/)
-- [🌈🐻’s For the rest of 22](https://www.reddit.com/r/wallstreetbets/comments/vvbkn0/s_for_the_rest_of_22/)
-- [I went to the casino but it was closed. They don’t operate on Saturdays?](https://www.reddit.com/r/wallstreetbets/comments/vvbjxf/i_went_to_the_casino_but_it_was_closed_they_dont/)
-- [Twitter to elon :](https://www.reddit.com/r/wallstreetbets/comments/vvb94k/twitter_to_elon/)
+- [checking my account in the morning...](https://www.reddit.com/r/wallstreetbets/comments/vw4ho7/checking_my_account_in_the_morning/)
+- [Congrats to the retards who have been shorting Turkey👏](https://www.reddit.com/r/wallstreetbets/comments/vw3wfc/congrats_to_the_retards_who_have_been_shorting/)
+- [I told a girl I was dating that her dog was autistic like me. She got offended and blocked me. Thanks WSB.](https://www.reddit.com/r/wallstreetbets/comments/vw2bg5/i_told_a_girl_i_was_dating_that_her_dog_was/)
+- [The other shoe is about to drop as $TWTR just hired a &#39;big-hitter&#39; litigation firm to force Elon Musk to buy the beleaguered social media company. Lawsuit will be filed this week in Delaware. Stay Tuned!](https://www.reddit.com/r/wallstreetbets/comments/vw1sa8/the_other_shoe_is_about_to_drop_as_twtr_just/)
+- [I don’t think he’s gotten the memo yet](https://www.reddit.com/r/wallstreetbets/comments/vw1la3/i_dont_think_hes_gotten_the_memo_yet/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
