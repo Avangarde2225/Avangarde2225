@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [checking my account in the morning...](https://www.reddit.com/r/wallstreetbets/comments/vw4ho7/checking_my_account_in_the_morning/)
-- [Congrats to the retards who have been shorting Turkey👏](https://www.reddit.com/r/wallstreetbets/comments/vw3wfc/congrats_to_the_retards_who_have_been_shorting/)
-- [I told a girl I was dating that her dog was autistic like me. She got offended and blocked me. Thanks WSB.](https://www.reddit.com/r/wallstreetbets/comments/vw2bg5/i_told_a_girl_i_was_dating_that_her_dog_was/)
-- [The other shoe is about to drop as $TWTR just hired a &#39;big-hitter&#39; litigation firm to force Elon Musk to buy the beleaguered social media company. Lawsuit will be filed this week in Delaware. Stay Tuned!](https://www.reddit.com/r/wallstreetbets/comments/vw1sa8/the_other_shoe_is_about_to_drop_as_twtr_just/)
-- [I don’t think he’s gotten the memo yet](https://www.reddit.com/r/wallstreetbets/comments/vw1la3/i_dont_think_hes_gotten_the_memo_yet/)
+- [I too trade like a billionaire](https://www.reddit.com/r/wallstreetbets/comments/vwx161/i_too_trade_like_a_billionaire/)
+- [So we are just here for their entertainment?](https://www.reddit.com/r/wallstreetbets/comments/vww9p7/so_we_are_just_here_for_their_entertainment/)
+- [Our time to shine gents 🧐💵💵](https://www.reddit.com/r/wallstreetbets/comments/vwv7hh/our_time_to_shine_gents/)
+- [&quot;Who wants to make some money!!!!&quot; UPDATED](https://www.reddit.com/r/wallstreetbets/comments/vwuebo/who_wants_to_make_some_money_updated/)
+- [1 Euro is now worth 1 USD](https://www.reddit.com/r/wallstreetbets/comments/vwuawn/1_euro_is_now_worth_1_usd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
