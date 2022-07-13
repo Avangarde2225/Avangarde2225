@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I too trade like a billionaire](https://www.reddit.com/r/wallstreetbets/comments/vwx161/i_too_trade_like_a_billionaire/)
-- [So we are just here for their entertainment?](https://www.reddit.com/r/wallstreetbets/comments/vww9p7/so_we_are_just_here_for_their_entertainment/)
-- [Our time to shine gents 🧐💵💵](https://www.reddit.com/r/wallstreetbets/comments/vwv7hh/our_time_to_shine_gents/)
-- [&quot;Who wants to make some money!!!!&quot; UPDATED](https://www.reddit.com/r/wallstreetbets/comments/vwuebo/who_wants_to_make_some_money_updated/)
-- [1 Euro is now worth 1 USD](https://www.reddit.com/r/wallstreetbets/comments/vwuawn/1_euro_is_now_worth_1_usd/)
+- [Elon&#39;s attempt to pull out of Twitter](https://www.reddit.com/r/wallstreetbets/comments/vxo8x1/elons_attempt_to_pull_out_of_twitter/)
+- [Picked up my first NFT from the GME marketplace! 😂](https://www.reddit.com/r/wallstreetbets/comments/vxmvf3/picked_up_my_first_nft_from_the_gme_marketplace/)
+- [Part of Twitter&#39;s lawsuit they filed against Elon Musk](https://www.reddit.com/r/wallstreetbets/comments/vxm9i3/part_of_twitters_lawsuit_they_filed_against_elon/)
+- [POV: You opened social media today](https://www.reddit.com/r/wallstreetbets/comments/vxl0ie/pov_you_opened_social_media_today/)
+- [Confirmed](https://www.reddit.com/r/wallstreetbets/comments/vxkt1j/confirmed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
