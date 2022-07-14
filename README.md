@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Elon&#39;s attempt to pull out of Twitter](https://www.reddit.com/r/wallstreetbets/comments/vxo8x1/elons_attempt_to_pull_out_of_twitter/)
-- [Picked up my first NFT from the GME marketplace! 😂](https://www.reddit.com/r/wallstreetbets/comments/vxmvf3/picked_up_my_first_nft_from_the_gme_marketplace/)
-- [Part of Twitter&#39;s lawsuit they filed against Elon Musk](https://www.reddit.com/r/wallstreetbets/comments/vxm9i3/part_of_twitters_lawsuit_they_filed_against_elon/)
-- [POV: You opened social media today](https://www.reddit.com/r/wallstreetbets/comments/vxl0ie/pov_you_opened_social_media_today/)
-- [Confirmed](https://www.reddit.com/r/wallstreetbets/comments/vxkt1j/confirmed/)
+- [🙏](https://www.reddit.com/r/wallstreetbets/comments/vygb1b/_/)
+- [Mainstream have realized inverse Cramer too?](https://www.reddit.com/r/wallstreetbets/comments/vyg3xz/mainstream_have_realized_inverse_cramer_too/)
+- [When will it end](https://www.reddit.com/r/wallstreetbets/comments/vyfdn4/when_will_it_end/)
+- [Charting SPY Day 1 : 7/13/22](https://www.reddit.com/r/wallstreetbets/comments/vyf4sb/charting_spy_day_1_71322/)
+- [Now I understand why the market keeps tanking after CPI data is released](https://www.reddit.com/r/wallstreetbets/comments/vye6hx/now_i_understand_why_the_market_keeps_tanking/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
