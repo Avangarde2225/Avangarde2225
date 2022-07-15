@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🙏](https://www.reddit.com/r/wallstreetbets/comments/vygb1b/_/)
-- [Mainstream have realized inverse Cramer too?](https://www.reddit.com/r/wallstreetbets/comments/vyg3xz/mainstream_have_realized_inverse_cramer_too/)
-- [When will it end](https://www.reddit.com/r/wallstreetbets/comments/vyfdn4/when_will_it_end/)
-- [Charting SPY Day 1 : 7/13/22](https://www.reddit.com/r/wallstreetbets/comments/vyf4sb/charting_spy_day_1_71322/)
-- [Now I understand why the market keeps tanking after CPI data is released](https://www.reddit.com/r/wallstreetbets/comments/vye6hx/now_i_understand_why_the_market_keeps_tanking/)
+- [Charting SPY Day 2: Go home bers](https://www.reddit.com/r/wallstreetbets/comments/vz8z0y/charting_spy_day_2_go_home_bers/)
+- [Initial value $12,000 - profit $32,735.64 256.13% return YTD. Mainly $SQQQ](https://www.reddit.com/r/wallstreetbets/comments/vz8j8n/initial_value_12000_profit_3273564_25613_return/)
+- [The Fed Will NOT Be Able to Fight Inflation — Catch 22](https://www.reddit.com/r/wallstreetbets/comments/vz81eb/the_fed_will_not_be_able_to_fight_inflation_catch/)
+- [Cathie Woods is better than buffet IMO](https://www.reddit.com/r/wallstreetbets/comments/vz7szr/cathie_woods_is_better_than_buffet_imo/)
+- [🌭🌭🌭](https://www.reddit.com/r/wallstreetbets/comments/vz76za/_/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
