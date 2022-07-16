@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Charting SPY Day 2: Go home bers](https://www.reddit.com/r/wallstreetbets/comments/vz8z0y/charting_spy_day_2_go_home_bers/)
-- [Initial value $12,000 - profit $32,735.64 256.13% return YTD. Mainly $SQQQ](https://www.reddit.com/r/wallstreetbets/comments/vz8j8n/initial_value_12000_profit_3273564_25613_return/)
-- [The Fed Will NOT Be Able to Fight Inflation — Catch 22](https://www.reddit.com/r/wallstreetbets/comments/vz81eb/the_fed_will_not_be_able_to_fight_inflation_catch/)
-- [Cathie Woods is better than buffet IMO](https://www.reddit.com/r/wallstreetbets/comments/vz7szr/cathie_woods_is_better_than_buffet_imo/)
-- [🌭🌭🌭](https://www.reddit.com/r/wallstreetbets/comments/vz76za/_/)
+- [A message from Charlie Sheen](https://www.reddit.com/r/wallstreetbets/comments/w028gq/a_message_from_charlie_sheen/)
+- [It takes a certain skill to miss on this many options](https://www.reddit.com/r/wallstreetbets/comments/w01hj1/it_takes_a_certain_skill_to_miss_on_this_many/)
+- [Let’s see how long before mods take this down…](https://www.reddit.com/r/wallstreetbets/comments/w018v2/lets_see_how_long_before_mods_take_this_down/)
+- [Congrats to the Fed for TOTAL victory over inflation](https://www.reddit.com/r/wallstreetbets/comments/w00swo/congrats_to_the_fed_for_total_victory_over/)
+- [Me After cpi](https://www.reddit.com/r/wallstreetbets/comments/vzyzz8/me_after_cpi/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
