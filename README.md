@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A message from Charlie Sheen](https://www.reddit.com/r/wallstreetbets/comments/w028gq/a_message_from_charlie_sheen/)
-- [It takes a certain skill to miss on this many options](https://www.reddit.com/r/wallstreetbets/comments/w01hj1/it_takes_a_certain_skill_to_miss_on_this_many/)
-- [Let’s see how long before mods take this down…](https://www.reddit.com/r/wallstreetbets/comments/w018v2/lets_see_how_long_before_mods_take_this_down/)
-- [Congrats to the Fed for TOTAL victory over inflation](https://www.reddit.com/r/wallstreetbets/comments/w00swo/congrats_to_the_fed_for_total_victory_over/)
-- [Me After cpi](https://www.reddit.com/r/wallstreetbets/comments/vzyzz8/me_after_cpi/)
+- [New terms for Wall Street?](https://www.reddit.com/r/wallstreetbets/comments/w0shag/new_terms_for_wall_street/)
+- [How I day traded away 200k+](https://www.reddit.com/r/wallstreetbets/comments/w0s5ub/how_i_day_traded_away_200k/)
+- [WSB Loss Porn Support Line](https://www.reddit.com/r/wallstreetbets/comments/w0rg73/wsb_loss_porn_support_line/)
+- [God gives his toughest battles to his strongest soldiers](https://www.reddit.com/r/wallstreetbets/comments/w0rbqm/god_gives_his_toughest_battles_to_his_strongest/)
+- [Cramer is the antistockchrist](https://www.reddit.com/r/wallstreetbets/comments/w0qqt3/cramer_is_the_antistockchrist/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
