@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [New terms for Wall Street?](https://www.reddit.com/r/wallstreetbets/comments/w0shag/new_terms_for_wall_street/)
-- [How I day traded away 200k+](https://www.reddit.com/r/wallstreetbets/comments/w0s5ub/how_i_day_traded_away_200k/)
-- [WSB Loss Porn Support Line](https://www.reddit.com/r/wallstreetbets/comments/w0rg73/wsb_loss_porn_support_line/)
-- [God gives his toughest battles to his strongest soldiers](https://www.reddit.com/r/wallstreetbets/comments/w0rbqm/god_gives_his_toughest_battles_to_his_strongest/)
-- [Cramer is the antistockchrist](https://www.reddit.com/r/wallstreetbets/comments/w0qqt3/cramer_is_the_antistockchrist/)
+- [HODL](https://www.reddit.com/r/wallstreetbets/comments/w1khkb/hodl/)
+- [Braces yourselves](https://www.reddit.com/r/wallstreetbets/comments/w1ju3u/braces_yourselves/)
+- [How &quot;Technical Analysis&quot; Really Works](https://www.reddit.com/r/wallstreetbets/comments/w1j3v4/how_technical_analysis_really_works/)
+- [I found the worst trader of all time](https://www.reddit.com/r/wallstreetbets/comments/w1ika6/i_found_the_worst_trader_of_all_time/)
+- [These are the only DD&#39;s we need.](https://www.reddit.com/r/wallstreetbets/comments/w1href/these_are_the_only_dds_we_need/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
