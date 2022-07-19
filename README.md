@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [HODL](https://www.reddit.com/r/wallstreetbets/comments/w1khkb/hodl/)
-- [Braces yourselves](https://www.reddit.com/r/wallstreetbets/comments/w1ju3u/braces_yourselves/)
-- [How &quot;Technical Analysis&quot; Really Works](https://www.reddit.com/r/wallstreetbets/comments/w1j3v4/how_technical_analysis_really_works/)
-- [I found the worst trader of all time](https://www.reddit.com/r/wallstreetbets/comments/w1ika6/i_found_the_worst_trader_of_all_time/)
-- [These are the only DD&#39;s we need.](https://www.reddit.com/r/wallstreetbets/comments/w1href/these_are_the_only_dds_we_need/)
+- [American Supremacy](https://www.reddit.com/r/wallstreetbets/comments/w2e7gz/american_supremacy/)
+- [EBITDA vs Free Cash Flow](https://www.reddit.com/r/wallstreetbets/comments/w2cobk/ebitda_vs_free_cash_flow/)
+- [WSB be like](https://www.reddit.com/r/wallstreetbets/comments/w2aszk/wsb_be_like/)
+- [throwback time](https://www.reddit.com/r/wallstreetbets/comments/w2arin/throwback_time/)
+- [100% of my portfolio on this $GME call spread](https://www.reddit.com/r/wallstreetbets/comments/w29zpx/100_of_my_portfolio_on_this_gme_call_spread/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
