@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [American Supremacy](https://www.reddit.com/r/wallstreetbets/comments/w2e7gz/american_supremacy/)
-- [EBITDA vs Free Cash Flow](https://www.reddit.com/r/wallstreetbets/comments/w2cobk/ebitda_vs_free_cash_flow/)
-- [WSB be like](https://www.reddit.com/r/wallstreetbets/comments/w2aszk/wsb_be_like/)
-- [throwback time](https://www.reddit.com/r/wallstreetbets/comments/w2arin/throwback_time/)
-- [100% of my portfolio on this $GME call spread](https://www.reddit.com/r/wallstreetbets/comments/w29zpx/100_of_my_portfolio_on_this_gme_call_spread/)
+- [GME 🚀](https://www.reddit.com/r/wallstreetbets/comments/w36vwl/gme/)
+- [Good day for the stonks](https://www.reddit.com/r/wallstreetbets/comments/w35cmb/good_day_for_the_stonks/)
+- [GME is about to have a bullish triple bottom break out. Rocket is about to take off.](https://www.reddit.com/r/wallstreetbets/comments/w3440c/gme_is_about_to_have_a_bullish_triple_bottom/)
+- [Looks like my Hookers and Blow portfolio is doing well today. 🤌🤌](https://www.reddit.com/r/wallstreetbets/comments/w33v22/looks_like_my_hookers_and_blow_portfolio_is_doing/)
+- [Netflix shares jump as Q2 subscribers beat estimates. Reported Loss of 970,000 versus loss of 2 million users expected](https://www.reddit.com/r/wallstreetbets/comments/w32ogg/netflix_shares_jump_as_q2_subscribers_beat/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
