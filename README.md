@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GME 🚀](https://www.reddit.com/r/wallstreetbets/comments/w36vwl/gme/)
-- [Good day for the stonks](https://www.reddit.com/r/wallstreetbets/comments/w35cmb/good_day_for_the_stonks/)
-- [GME is about to have a bullish triple bottom break out. Rocket is about to take off.](https://www.reddit.com/r/wallstreetbets/comments/w3440c/gme_is_about_to_have_a_bullish_triple_bottom/)
-- [Looks like my Hookers and Blow portfolio is doing well today. 🤌🤌](https://www.reddit.com/r/wallstreetbets/comments/w33v22/looks_like_my_hookers_and_blow_portfolio_is_doing/)
-- [Netflix shares jump as Q2 subscribers beat estimates. Reported Loss of 970,000 versus loss of 2 million users expected](https://www.reddit.com/r/wallstreetbets/comments/w32ogg/netflix_shares_jump_as_q2_subscribers_beat/)
+- [It only goes up baby](https://www.reddit.com/r/wallstreetbets/comments/w41pt9/it_only_goes_up_baby/)
+- [When you pick the winning strike &amp; date](https://www.reddit.com/r/wallstreetbets/comments/w3zxof/when_you_pick_the_winning_strike_date/)
+- [Start them young and let them know R is for Rekt](https://www.reddit.com/r/wallstreetbets/comments/w3z4jt/start_them_young_and_let_them_know_r_is_for_rekt/)
+- [SEC: “Keep Nancy’s name out of your f***ing mouth!”](https://www.reddit.com/r/wallstreetbets/comments/w3ymz9/sec_keep_nancys_name_out_of_your_fing_mouth/)
+- [Tesla sells $936M of digital assets. Elon:](https://www.reddit.com/r/wallstreetbets/comments/w3wqa5/tesla_sells_936m_of_digital_assets_elon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
