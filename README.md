@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It only goes up baby](https://www.reddit.com/r/wallstreetbets/comments/w41pt9/it_only_goes_up_baby/)
-- [When you pick the winning strike &amp; date](https://www.reddit.com/r/wallstreetbets/comments/w3zxof/when_you_pick_the_winning_strike_date/)
-- [Start them young and let them know R is for Rekt](https://www.reddit.com/r/wallstreetbets/comments/w3z4jt/start_them_young_and_let_them_know_r_is_for_rekt/)
-- [SEC: “Keep Nancy’s name out of your f***ing mouth!”](https://www.reddit.com/r/wallstreetbets/comments/w3ymz9/sec_keep_nancys_name_out_of_your_fing_mouth/)
-- [Tesla sells $936M of digital assets. Elon:](https://www.reddit.com/r/wallstreetbets/comments/w3wqa5/tesla_sells_936m_of_digital_assets_elon/)
+- [AMD Gain in two days follow the corruption](https://www.reddit.com/r/wallstreetbets/comments/w4uh2n/amd_gain_in_two_days_follow_the_corruption/)
+- [7b of market cap, gone in a $SNAP](https://www.reddit.com/r/wallstreetbets/comments/w4tyja/7b_of_market_cap_gone_in_a_snap/)
+- [Not really much to say about this Fuck up](https://www.reddit.com/r/wallstreetbets/comments/w4trpp/not_really_much_to_say_about_this_fuck_up/)
+- [Don&#39;t Act Like You Haven&#39;t Done It](https://www.reddit.com/r/wallstreetbets/comments/w4s8nj/dont_act_like_you_havent_done_it/)
+- [F**k my life. F**k. stay away from options.](https://www.reddit.com/r/wallstreetbets/comments/w4s3dw/fk_my_life_fk_stay_away_from_options/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
