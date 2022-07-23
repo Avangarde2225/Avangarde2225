@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMD Gain in two days follow the corruption](https://www.reddit.com/r/wallstreetbets/comments/w4uh2n/amd_gain_in_two_days_follow_the_corruption/)
-- [7b of market cap, gone in a $SNAP](https://www.reddit.com/r/wallstreetbets/comments/w4tyja/7b_of_market_cap_gone_in_a_snap/)
-- [Not really much to say about this Fuck up](https://www.reddit.com/r/wallstreetbets/comments/w4trpp/not_really_much_to_say_about_this_fuck_up/)
-- [Don&#39;t Act Like You Haven&#39;t Done It](https://www.reddit.com/r/wallstreetbets/comments/w4s8nj/dont_act_like_you_havent_done_it/)
-- [F**k my life. F**k. stay away from options.](https://www.reddit.com/r/wallstreetbets/comments/w4s3dw/fk_my_life_fk_stay_away_from_options/)
+- [THE APES CAN SEE CLEARLY NOW 😡](https://www.reddit.com/r/wallstreetbets/comments/w5oddr/the_apes_can_see_clearly_now/)
+- [He’s a business man.](https://www.reddit.com/r/wallstreetbets/comments/w5noqr/hes_a_business_man/)
+- [JFK speaking to our grandparents](https://www.reddit.com/r/wallstreetbets/comments/w5m483/jfk_speaking_to_our_grandparents/)
+- [On my way to Wendy&#39;s.](https://www.reddit.com/r/wallstreetbets/comments/w5l0vk/on_my_way_to_wendys/)
+- [Weekend Discussion Thread for the Weekend of July 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/w5jubl/weekend_discussion_thread_for_the_weekend_of_july/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
