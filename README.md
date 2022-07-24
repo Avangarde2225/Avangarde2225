@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [THE APES CAN SEE CLEARLY NOW 😡](https://www.reddit.com/r/wallstreetbets/comments/w5oddr/the_apes_can_see_clearly_now/)
-- [He’s a business man.](https://www.reddit.com/r/wallstreetbets/comments/w5noqr/hes_a_business_man/)
-- [JFK speaking to our grandparents](https://www.reddit.com/r/wallstreetbets/comments/w5m483/jfk_speaking_to_our_grandparents/)
-- [On my way to Wendy&#39;s.](https://www.reddit.com/r/wallstreetbets/comments/w5l0vk/on_my_way_to_wendys/)
-- [Weekend Discussion Thread for the Weekend of July 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/w5jubl/weekend_discussion_thread_for_the_weekend_of_july/)
+- [Popped up on my IG feed 🤔](https://www.reddit.com/r/wallstreetbets/comments/w6hv5r/popped_up_on_my_ig_feed/)
+- [Wow, who knew Reed Richards was a WSB degenerate &lpar;FF&lpar;1961&rpar; #9&rpar;](https://www.reddit.com/r/wallstreetbets/comments/w6ggn4/wow_who_knew_reed_richards_was_a_wsb_degenerate/)
+- [CBT. Nice.](https://www.reddit.com/r/wallstreetbets/comments/w6g8oe/cbt_nice/)
+- [:&lpar;](https://www.reddit.com/r/wallstreetbets/comments/w6fk8y/_/)
+- [Guys i think the Dollar is dying](https://www.reddit.com/r/wallstreetbets/comments/w6f0yx/guys_i_think_the_dollar_is_dying/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
