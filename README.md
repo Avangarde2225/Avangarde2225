@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [why is he like this](https://www.reddit.com/r/wallstreetbets/comments/w79d70/why_is_he_like_this/)
-- [Don’t call it a comeback, been here for years 😎](https://www.reddit.com/r/wallstreetbets/comments/w79aw6/dont_call_it_a_comeback_been_here_for_years/)
-- [Throwback to when my account was too new to post on WSB so you apes didn’t get to see my YOLO play that made me half a milli. The rest is history 💰💸](https://www.reddit.com/r/wallstreetbets/comments/w78q2h/throwback_to_when_my_account_was_too_new_to_post/)
-- [Not having money sucks man!](https://www.reddit.com/r/wallstreetbets/comments/w78q1n/not_having_money_sucks_man/)
-- [All hail the king!](https://www.reddit.com/r/wallstreetbets/comments/w78gul/all_hail_the_king/)
+- [$GME - Update: $ROPE - Finishing The Job…](https://www.reddit.com/r/wallstreetbets/comments/w84h7i/gme_update_rope_finishing_the_job/)
+- [story of my life every trading day](https://www.reddit.com/r/wallstreetbets/comments/w83wvo/story_of_my_life_every_trading_day/)
+- [🏳️‍🌈🐻 be like:](https://www.reddit.com/r/wallstreetbets/comments/w83uiq/be_like/)
+- [Apple GAINZ](https://www.reddit.com/r/wallstreetbets/comments/w83s60/apple_gainz/)
+- [Charles Schultz, economic advisor of presidents Carter, JFK and Johnson, says you “shouldn’t buy stonks when you’re high” - never forget](https://www.reddit.com/r/wallstreetbets/comments/w82xik/charles_schultz_economic_advisor_of_presidents/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
