@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$GME - Update: $ROPE - Finishing The Job…](https://www.reddit.com/r/wallstreetbets/comments/w84h7i/gme_update_rope_finishing_the_job/)
-- [story of my life every trading day](https://www.reddit.com/r/wallstreetbets/comments/w83wvo/story_of_my_life_every_trading_day/)
-- [🏳️‍🌈🐻 be like:](https://www.reddit.com/r/wallstreetbets/comments/w83uiq/be_like/)
-- [Apple GAINZ](https://www.reddit.com/r/wallstreetbets/comments/w83s60/apple_gainz/)
-- [Charles Schultz, economic advisor of presidents Carter, JFK and Johnson, says you “shouldn’t buy stonks when you’re high” - never forget](https://www.reddit.com/r/wallstreetbets/comments/w82xik/charles_schultz_economic_advisor_of_presidents/)
+- [Why I &quot;would&quot; short Sweetgreen. American&#39;s overvalued restaurant](https://www.reddit.com/r/wallstreetbets/comments/w8yotw/why_i_would_short_sweetgreen_americans_overvalued/)
+- [Miss GME 2007](https://www.reddit.com/r/wallstreetbets/comments/w8ye9r/miss_gme_2007/)
+- [JPowell explaining how the Economy has but a flesh wound.](https://www.reddit.com/r/wallstreetbets/comments/w8xt0c/jpowell_explaining_how_the_economy_has_but_a/)
+- [For everyone who is borderline suicidal after all the money they are down in stocks and crypt. Mega millions is at 830 mil.](https://www.reddit.com/r/wallstreetbets/comments/w8xms1/for_everyone_who_is_borderline_suicidal_after_all/)
+- [Just to be clear:. GOOG numbers were dogshit, despite earnings expectations being toilet level. they missed A LOT](https://www.reddit.com/r/wallstreetbets/comments/w8wo8g/just_to_be_clear_goog_numbers_were_dogshit/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
