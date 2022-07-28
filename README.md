@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why I &quot;would&quot; short Sweetgreen. American&#39;s overvalued restaurant](https://www.reddit.com/r/wallstreetbets/comments/w8yotw/why_i_would_short_sweetgreen_americans_overvalued/)
-- [Miss GME 2007](https://www.reddit.com/r/wallstreetbets/comments/w8ye9r/miss_gme_2007/)
-- [JPowell explaining how the Economy has but a flesh wound.](https://www.reddit.com/r/wallstreetbets/comments/w8xt0c/jpowell_explaining_how_the_economy_has_but_a/)
-- [For everyone who is borderline suicidal after all the money they are down in stocks and crypt. Mega millions is at 830 mil.](https://www.reddit.com/r/wallstreetbets/comments/w8xms1/for_everyone_who_is_borderline_suicidal_after_all/)
-- [Just to be clear:. GOOG numbers were dogshit, despite earnings expectations being toilet level. they missed A LOT](https://www.reddit.com/r/wallstreetbets/comments/w8wo8g/just_to_be_clear_goog_numbers_were_dogshit/)
+- [GME is about to go Brrrrrr!](https://www.reddit.com/r/wallstreetbets/comments/w9rba9/gme_is_about_to_go_brrrrrr/)
+- [FOMC Meeting Days](https://www.reddit.com/r/wallstreetbets/comments/w9qsup/fomc_meeting_days/)
+- [Laughs in inflation](https://www.reddit.com/r/wallstreetbets/comments/w9qhd0/laughs_in_inflation/)
+- [Problem solved](https://www.reddit.com/r/wallstreetbets/comments/w9q7h7/problem_solved/)
+- [Death To $GME PT 7.35: Do You Feel In Control? [$77,189.62 GAIN]](https://www.reddit.com/r/wallstreetbets/comments/w9q56j/death_to_gme_pt_735_do_you_feel_in_control/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
