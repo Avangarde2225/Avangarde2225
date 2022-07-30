@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [As always, US is in style](https://www.reddit.com/r/wallstreetbets/comments/wanxsz/as_always_us_is_in_style/)
-- [Who got touched by Tim Cook today](https://www.reddit.com/r/wallstreetbets/comments/wanglq/who_got_touched_by_tim_cook_today/)
-- [Ugh…yea totally](https://www.reddit.com/r/wallstreetbets/comments/wampq9/ughyea_totally/)
-- [Did you just assume my GDP?!?!](https://www.reddit.com/r/wallstreetbets/comments/wam38j/did_you_just_assume_my_gdp/)
-- [Some of y&#39;all know Graham?](https://www.reddit.com/r/wallstreetbets/comments/walhqr/some_of_yall_know_graham/)
+- [👍](https://www.reddit.com/r/wallstreetbets/comments/wbi3is/_/)
+- [Strong delusion](https://www.reddit.com/r/wallstreetbets/comments/wbhxtf/strong_delusion/)
+- [This sub is silent on dividend GME shares disappearing from German broker accounts](https://www.reddit.com/r/wallstreetbets/comments/wbhrwa/this_sub_is_silent_on_dividend_gme_shares/)
+- [I somehow turned $33k into $101,000 in 2 days…..](https://www.reddit.com/r/wallstreetbets/comments/wbgy8d/i_somehow_turned_33k_into_101000_in_2_days/)
+- [Market&#39;s closed. It&#39;s time to celebrate our puts for the week!](https://www.reddit.com/r/wallstreetbets/comments/wbgla2/markets_closed_its_time_to_celebrate_our_puts_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
