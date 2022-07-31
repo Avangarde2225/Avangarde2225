@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [👍](https://www.reddit.com/r/wallstreetbets/comments/wbi3is/_/)
-- [Strong delusion](https://www.reddit.com/r/wallstreetbets/comments/wbhxtf/strong_delusion/)
-- [This sub is silent on dividend GME shares disappearing from German broker accounts](https://www.reddit.com/r/wallstreetbets/comments/wbhrwa/this_sub_is_silent_on_dividend_gme_shares/)
-- [I somehow turned $33k into $101,000 in 2 days…..](https://www.reddit.com/r/wallstreetbets/comments/wbgy8d/i_somehow_turned_33k_into_101000_in_2_days/)
-- [Market&#39;s closed. It&#39;s time to celebrate our puts for the week!](https://www.reddit.com/r/wallstreetbets/comments/wbgla2/markets_closed_its_time_to_celebrate_our_puts_for/)
+- [every wsber that spends their Saturdays in wsb.](https://www.reddit.com/r/wallstreetbets/comments/wcafzy/every_wsber_that_spends_their_saturdays_in_wsb/)
+- [recession has not started yet](https://www.reddit.com/r/wallstreetbets/comments/wc9n9k/recession_has_not_started_yet/)
+- [Hey boss, it’s me. Can I have my old job back? Turns out I didn’t win the jackpot.](https://www.reddit.com/r/wallstreetbets/comments/wc9jj4/hey_boss_its_me_can_i_have_my_old_job_back_turns/)
+- [Good ol&#39; Inverse Cramer strikes again](https://www.reddit.com/r/wallstreetbets/comments/wc7fd0/good_ol_inverse_cramer_strikes_again/)
+- [the reality of inflation](https://www.reddit.com/r/wallstreetbets/comments/wc4ws9/the_reality_of_inflation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
