@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [every wsber that spends their Saturdays in wsb.](https://www.reddit.com/r/wallstreetbets/comments/wcafzy/every_wsber_that_spends_their_saturdays_in_wsb/)
-- [recession has not started yet](https://www.reddit.com/r/wallstreetbets/comments/wc9n9k/recession_has_not_started_yet/)
-- [Hey boss, it’s me. Can I have my old job back? Turns out I didn’t win the jackpot.](https://www.reddit.com/r/wallstreetbets/comments/wc9jj4/hey_boss_its_me_can_i_have_my_old_job_back_turns/)
-- [Good ol&#39; Inverse Cramer strikes again](https://www.reddit.com/r/wallstreetbets/comments/wc7fd0/good_ol_inverse_cramer_strikes_again/)
-- [the reality of inflation](https://www.reddit.com/r/wallstreetbets/comments/wc4ws9/the_reality_of_inflation/)
+- [I think my husband might have committed insider trading](https://www.reddit.com/r/wallstreetbets/comments/wd2yb1/i_think_my_husband_might_have_committed_insider/)
+- [I think my cousins ex wifes dog walkers son may have commited insider trading](https://www.reddit.com/r/wallstreetbets/comments/wd1qhh/i_think_my_cousins_ex_wifes_dog_walkers_son_may/)
+- [Pretty much.](https://www.reddit.com/r/wallstreetbets/comments/wcz2m3/pretty_much/)
+- [Unfairness.](https://www.reddit.com/r/wallstreetbets/comments/wcyle8/unfairness/)
+- [Market just doesn&#39;t give a s***](https://www.reddit.com/r/wallstreetbets/comments/wcxvgk/market_just_doesnt_give_a_s/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
