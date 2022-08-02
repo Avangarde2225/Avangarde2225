@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I think my husband might have committed insider trading](https://www.reddit.com/r/wallstreetbets/comments/wd2yb1/i_think_my_husband_might_have_committed_insider/)
-- [I think my cousins ex wifes dog walkers son may have commited insider trading](https://www.reddit.com/r/wallstreetbets/comments/wd1qhh/i_think_my_cousins_ex_wifes_dog_walkers_son_may/)
-- [Pretty much.](https://www.reddit.com/r/wallstreetbets/comments/wcz2m3/pretty_much/)
-- [Unfairness.](https://www.reddit.com/r/wallstreetbets/comments/wcyle8/unfairness/)
-- [Market just doesn&#39;t give a s***](https://www.reddit.com/r/wallstreetbets/comments/wcxvgk/market_just_doesnt_give_a_s/)
+- [How bout that 3 year chart wedge? GME](https://www.reddit.com/r/wallstreetbets/comments/wduus0/how_bout_that_3_year_chart_wedge_gme/)
+- [She belongs here](https://www.reddit.com/r/wallstreetbets/comments/wduuot/she_belongs_here/)
+- [The SEC right now looking at the market](https://www.reddit.com/r/wallstreetbets/comments/wduktf/the_sec_right_now_looking_at_the_market/)
+- [every single time!](https://www.reddit.com/r/wallstreetbets/comments/wdtz7m/every_single_time/)
+- [Up almost 200k since this morning 40K to 1M LQDT position](https://www.reddit.com/r/wallstreetbets/comments/wdtu12/up_almost_200k_since_this_morning_40k_to_1m_lqdt/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
