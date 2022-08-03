@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How bout that 3 year chart wedge? GME](https://www.reddit.com/r/wallstreetbets/comments/wduus0/how_bout_that_3_year_chart_wedge_gme/)
-- [She belongs here](https://www.reddit.com/r/wallstreetbets/comments/wduuot/she_belongs_here/)
-- [The SEC right now looking at the market](https://www.reddit.com/r/wallstreetbets/comments/wduktf/the_sec_right_now_looking_at_the_market/)
-- [every single time!](https://www.reddit.com/r/wallstreetbets/comments/wdtz7m/every_single_time/)
-- [Up almost 200k since this morning 40K to 1M LQDT position](https://www.reddit.com/r/wallstreetbets/comments/wdtu12/up_almost_200k_since_this_morning_40k_to_1m_lqdt/)
+- [Robinhood lays off 23% of staff](https://www.reddit.com/r/wallstreetbets/comments/werpt5/robinhood_lays_off_23_of_staff/)
+- [We did this?! Why wasn’t I invited??](https://www.reddit.com/r/wallstreetbets/comments/wer00t/we_did_this_why_wasnt_i_invited/)
+- [One day… $HKD 🤣🤣](https://www.reddit.com/r/wallstreetbets/comments/weqo7e/one_day_hkd/)
+- [How to Do Due Diligence Like a Boss!](https://www.reddit.com/r/wallstreetbets/comments/weoom3/how_to_do_due_diligence_like_a_boss/)
+- [WSB OG here. Thought I’d stop by. Been a while. $GME is hitting long signals on everything but daily. If it hits daily tomorrow or next, she will have a nice run.](https://www.reddit.com/r/wallstreetbets/comments/wenl56/wsb_og_here_thought_id_stop_by_been_a_while_gme/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
