@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Robinhood lays off 23% of staff](https://www.reddit.com/r/wallstreetbets/comments/werpt5/robinhood_lays_off_23_of_staff/)
-- [We did this?! Why wasn’t I invited??](https://www.reddit.com/r/wallstreetbets/comments/wer00t/we_did_this_why_wasnt_i_invited/)
-- [One day… $HKD 🤣🤣](https://www.reddit.com/r/wallstreetbets/comments/weqo7e/one_day_hkd/)
-- [How to Do Due Diligence Like a Boss!](https://www.reddit.com/r/wallstreetbets/comments/weoom3/how_to_do_due_diligence_like_a_boss/)
-- [WSB OG here. Thought I’d stop by. Been a while. $GME is hitting long signals on everything but daily. If it hits daily tomorrow or next, she will have a nice run.](https://www.reddit.com/r/wallstreetbets/comments/wenl56/wsb_og_here_thought_id_stop_by_been_a_while_gme/)
+- [I only buy calls on bear markets 😏](https://www.reddit.com/r/wallstreetbets/comments/wflbs8/i_only_buy_calls_on_bear_markets/)
+- [None of y’all cock raisers are protective of their investments. Calls on Nvidia and AMD](https://www.reddit.com/r/wallstreetbets/comments/wfhrx6/none_of_yall_cock_raisers_are_protective_of_their/)
+- [“Retail” purchasing $HKD at 2k+](https://www.reddit.com/r/wallstreetbets/comments/wfgyy9/retail_purchasing_hkd_at_2k/)
+- [What Are Your Moves Tomorrow, August 04, 2022](https://www.reddit.com/r/wallstreetbets/comments/wfgf8g/what_are_your_moves_tomorrow_august_04_2022/)
+- [Quit the bullshit media. We don’t have nor want anything to do with it.](https://www.reddit.com/r/wallstreetbets/comments/wfgb46/quit_the_bullshit_media_we_dont_have_nor_want/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
