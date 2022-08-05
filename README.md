@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I only buy calls on bear markets 😏](https://www.reddit.com/r/wallstreetbets/comments/wflbs8/i_only_buy_calls_on_bear_markets/)
-- [None of y’all cock raisers are protective of their investments. Calls on Nvidia and AMD](https://www.reddit.com/r/wallstreetbets/comments/wfhrx6/none_of_yall_cock_raisers_are_protective_of_their/)
-- [“Retail” purchasing $HKD at 2k+](https://www.reddit.com/r/wallstreetbets/comments/wfgyy9/retail_purchasing_hkd_at_2k/)
-- [What Are Your Moves Tomorrow, August 04, 2022](https://www.reddit.com/r/wallstreetbets/comments/wfgf8g/what_are_your_moves_tomorrow_august_04_2022/)
-- [Quit the bullshit media. We don’t have nor want anything to do with it.](https://www.reddit.com/r/wallstreetbets/comments/wfgb46/quit_the_bullshit_media_we_dont_have_nor_want/)
+- [The AMC Preferred Equity Unit and how Adam Aron is fleecing retail investors](https://www.reddit.com/r/wallstreetbets/comments/wgg7iz/the_amc_preferred_equity_unit_and_how_adam_aron/)
+- [Took out a 27k loan, money hitting my account tomorrow. What should I yolo into?](https://www.reddit.com/r/wallstreetbets/comments/wgfnck/took_out_a_27k_loan_money_hitting_my_account/)
+- [Why I’m leaving this Sub for good. I miss the old WSB before it went mainstream](https://www.reddit.com/r/wallstreetbets/comments/wgdp70/why_im_leaving_this_sub_for_good_i_miss_the_old/)
+- [Adam Aaron answers the call. Share count under AMC Preferred Equity or APE](https://www.reddit.com/r/wallstreetbets/comments/wgd019/adam_aaron_answers_the_call_share_count_under_amc/)
+- [BBBY and the middle game](https://www.reddit.com/r/wallstreetbets/comments/wgbrj2/bbby_and_the_middle_game/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
