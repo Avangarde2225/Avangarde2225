@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The AMC Preferred Equity Unit and how Adam Aron is fleecing retail investors](https://www.reddit.com/r/wallstreetbets/comments/wgg7iz/the_amc_preferred_equity_unit_and_how_adam_aron/)
-- [Took out a 27k loan, money hitting my account tomorrow. What should I yolo into?](https://www.reddit.com/r/wallstreetbets/comments/wgfnck/took_out_a_27k_loan_money_hitting_my_account/)
-- [Why I’m leaving this Sub for good. I miss the old WSB before it went mainstream](https://www.reddit.com/r/wallstreetbets/comments/wgdp70/why_im_leaving_this_sub_for_good_i_miss_the_old/)
-- [Adam Aaron answers the call. Share count under AMC Preferred Equity or APE](https://www.reddit.com/r/wallstreetbets/comments/wgd019/adam_aaron_answers_the_call_share_count_under_amc/)
-- [BBBY and the middle game](https://www.reddit.com/r/wallstreetbets/comments/wgbrj2/bbby_and_the_middle_game/)
+- [GameStop wrote the DTC a spicy little love note re: the splividend 😘](https://www.reddit.com/r/wallstreetbets/comments/wh85ec/gamestop_wrote_the_dtc_a_spicy_little_love_note/)
+- [A debt must be paid, my DMs are open Dank420Memes420](https://www.reddit.com/r/wallstreetbets/comments/wh7cgp/a_debt_must_be_paid_my_dms_are_open/)
+- [I somehow turned 33k into $253,000 in under 2 weeks. Almost LOST IT ALL today…](https://www.reddit.com/r/wallstreetbets/comments/wh6euo/i_somehow_turned_33k_into_253000_in_under_2_weeks/)
+- [LFG Boys](https://www.reddit.com/r/wallstreetbets/comments/wh5w11/lfg_boys/)
+- [Weekend Discussion Thread for the Weekend of August 06, 2022](https://www.reddit.com/r/wallstreetbets/comments/wh4twp/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
