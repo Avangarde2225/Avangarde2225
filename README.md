@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GameStop wrote the DTC a spicy little love note re: the splividend 😘](https://www.reddit.com/r/wallstreetbets/comments/wh85ec/gamestop_wrote_the_dtc_a_spicy_little_love_note/)
-- [A debt must be paid, my DMs are open Dank420Memes420](https://www.reddit.com/r/wallstreetbets/comments/wh7cgp/a_debt_must_be_paid_my_dms_are_open/)
-- [I somehow turned 33k into $253,000 in under 2 weeks. Almost LOST IT ALL today…](https://www.reddit.com/r/wallstreetbets/comments/wh6euo/i_somehow_turned_33k_into_253000_in_under_2_weeks/)
-- [LFG Boys](https://www.reddit.com/r/wallstreetbets/comments/wh5w11/lfg_boys/)
-- [Weekend Discussion Thread for the Weekend of August 06, 2022](https://www.reddit.com/r/wallstreetbets/comments/wh4twp/weekend_discussion_thread_for_the_weekend_of/)
+- [Why I’m leaving wallstreetbets after losing my life savings](https://www.reddit.com/r/wallstreetbets/comments/wi0632/why_im_leaving_wallstreetbets_after_losing_my/)
+- [🏴‍☠️Power to the players 🏴‍☠️](https://www.reddit.com/r/wallstreetbets/comments/whz5xj/power_to_the_players/)
+- [I’ll just retire next time](https://www.reddit.com/r/wallstreetbets/comments/whymuc/ill_just_retire_next_time/)
+- [We are coming to save you - $BBBY](https://www.reddit.com/r/wallstreetbets/comments/whxsgo/we_are_coming_to_save_you_bbby/)
+- [Have $3.50. What should I invest in?](https://www.reddit.com/r/wallstreetbets/comments/whwog5/have_350_what_should_i_invest_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
