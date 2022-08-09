@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Been buying the wrong BBBY! why didn&#39;t you retatds tell me there are two BBYs? now no 🚀🚀🚀🌚 for me](https://www.reddit.com/r/wallstreetbets/comments/wis67z/been_buying_the_wrong_bbby_why_didnt_you_retatds/)
-- [It&#39;s that time again!](https://www.reddit.com/r/wallstreetbets/comments/wirsnw/its_that_time_again/)
-- [Meme stock performance](https://www.reddit.com/r/wallstreetbets/comments/wirptt/meme_stock_performance/)
-- [Alright which one of you was this](https://www.reddit.com/r/wallstreetbets/comments/wiqtjd/alright_which_one_of_you_was_this/)
-- [$BBBY ALL IN !](https://www.reddit.com/r/wallstreetbets/comments/wiqlmu/bbby_all_in/)
+- [After 6 years of trading, I finally made 88 dollars.](https://www.reddit.com/r/wallstreetbets/comments/wjo8l6/after_6_years_of_trading_i_finally_made_88_dollars/)
+- [Okay which one of you retards thought this was a good idea](https://www.reddit.com/r/wallstreetbets/comments/wjmo5k/okay_which_one_of_you_retards_thought_this_was_a/)
+- [$BBBY 150k Update](https://www.reddit.com/r/wallstreetbets/comments/wjk4xt/bbby_150k_update/)
+- [Someone is very scared of BBBY](https://www.reddit.com/r/wallstreetbets/comments/wjil19/someone_is_very_scared_of_bbby/)
+- [What Are Your Moves Tomorrow, August 09, 2022](https://www.reddit.com/r/wallstreetbets/comments/wjijv3/what_are_your_moves_tomorrow_august_09_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
