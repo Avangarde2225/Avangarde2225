@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [After 6 years of trading, I finally made 88 dollars.](https://www.reddit.com/r/wallstreetbets/comments/wjo8l6/after_6_years_of_trading_i_finally_made_88_dollars/)
-- [Okay which one of you retards thought this was a good idea](https://www.reddit.com/r/wallstreetbets/comments/wjmo5k/okay_which_one_of_you_retards_thought_this_was_a/)
-- [$BBBY 150k Update](https://www.reddit.com/r/wallstreetbets/comments/wjk4xt/bbby_150k_update/)
-- [Someone is very scared of BBBY](https://www.reddit.com/r/wallstreetbets/comments/wjil19/someone_is_very_scared_of_bbby/)
-- [What Are Your Moves Tomorrow, August 09, 2022](https://www.reddit.com/r/wallstreetbets/comments/wjijv3/what_are_your_moves_tomorrow_august_09_2022/)
+- [If BBBY closes above $15 by Friday, I’ll print top voted comment onto sign outside CNBC/mad money studios](https://www.reddit.com/r/wallstreetbets/comments/wkh4q6/if_bbby_closes_above_15_by_friday_ill_print_top/)
+- [So you’re saying there’s a chance](https://www.reddit.com/r/wallstreetbets/comments/wkg4tb/so_youre_saying_theres_a_chance/)
+- [Today... We won! &lpar;BBBY&rpar;](https://www.reddit.com/r/wallstreetbets/comments/wkfri9/today_we_won_bbby/)
+- [Guys, it works on the stock too!](https://www.reddit.com/r/wallstreetbets/comments/wkf10d/guys_it_works_on_the_stock_too/)
+- [If you don&#39;t love BBBY when it pumps then you don&#39;t deserve it when it dumps 🤡](https://www.reddit.com/r/wallstreetbets/comments/wkdxs4/if_you_dont_love_bbby_when_it_pumps_then_you_dont/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
