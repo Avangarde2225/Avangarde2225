@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If BBBY closes above $15 by Friday, I’ll print top voted comment onto sign outside CNBC/mad money studios](https://www.reddit.com/r/wallstreetbets/comments/wkh4q6/if_bbby_closes_above_15_by_friday_ill_print_top/)
-- [So you’re saying there’s a chance](https://www.reddit.com/r/wallstreetbets/comments/wkg4tb/so_youre_saying_theres_a_chance/)
-- [Today... We won! &lpar;BBBY&rpar;](https://www.reddit.com/r/wallstreetbets/comments/wkfri9/today_we_won_bbby/)
-- [Guys, it works on the stock too!](https://www.reddit.com/r/wallstreetbets/comments/wkf10d/guys_it_works_on_the_stock_too/)
-- [If you don&#39;t love BBBY when it pumps then you don&#39;t deserve it when it dumps 🤡](https://www.reddit.com/r/wallstreetbets/comments/wkdxs4/if_you_dont_love_bbby_when_it_pumps_then_you_dont/)
+- [till tomorrow](https://www.reddit.com/r/wallstreetbets/comments/wlc97b/till_tomorrow/)
+- [BBBY is in a serious uptrend, shorts doubled down instead of covering the last two days.. this is going to get exciting 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/wla2fy/bbby_is_in_a_serious_uptrend_shorts_doubled_down/)
+- [FT roasts Cramer](https://www.reddit.com/r/wallstreetbets/comments/wla0n3/ft_roasts_cramer/)
+- [I&#39;m either retiring next year, or sucking dick for dollars. God damn I&#39;m stupid](https://www.reddit.com/r/wallstreetbets/comments/wl9xgq/im_either_retiring_next_year_or_sucking_dick_for/)
+- [Just sayin](https://www.reddit.com/r/wallstreetbets/comments/wl9rfw/just_sayin/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
