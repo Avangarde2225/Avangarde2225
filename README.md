@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [till tomorrow](https://www.reddit.com/r/wallstreetbets/comments/wlc97b/till_tomorrow/)
-- [BBBY is in a serious uptrend, shorts doubled down instead of covering the last two days.. this is going to get exciting 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/wla2fy/bbby_is_in_a_serious_uptrend_shorts_doubled_down/)
-- [FT roasts Cramer](https://www.reddit.com/r/wallstreetbets/comments/wla0n3/ft_roasts_cramer/)
-- [I&#39;m either retiring next year, or sucking dick for dollars. God damn I&#39;m stupid](https://www.reddit.com/r/wallstreetbets/comments/wl9xgq/im_either_retiring_next_year_or_sucking_dick_for/)
-- [Just sayin](https://www.reddit.com/r/wallstreetbets/comments/wl9rfw/just_sayin/)
+- [Comparing GME 2020 to BBBY 2022](https://www.reddit.com/r/wallstreetbets/comments/wm5zt2/comparing_gme_2020_to_bbby_2022/)
+- [BBBY has just begun. Swipe right to see what&#39;s to come.](https://www.reddit.com/r/wallstreetbets/comments/wm5eqn/bbby_has_just_begun_swipe_right_to_see_whats_to/)
+- [We all know that one guy](https://www.reddit.com/r/wallstreetbets/comments/wm3e6h/we_all_know_that_one_guy/)
+- [Hit me BBBY one more time](https://www.reddit.com/r/wallstreetbets/comments/wm1k56/hit_me_bbby_one_more_time/)
+- [I finally shortsqueezed my account take that hedgies!](https://www.reddit.com/r/wallstreetbets/comments/wm16sm/i_finally_shortsqueezed_my_account_take_that/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
