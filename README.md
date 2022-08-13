@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Comparing GME 2020 to BBBY 2022](https://www.reddit.com/r/wallstreetbets/comments/wm5zt2/comparing_gme_2020_to_bbby_2022/)
-- [BBBY has just begun. Swipe right to see what&#39;s to come.](https://www.reddit.com/r/wallstreetbets/comments/wm5eqn/bbby_has_just_begun_swipe_right_to_see_whats_to/)
-- [We all know that one guy](https://www.reddit.com/r/wallstreetbets/comments/wm3e6h/we_all_know_that_one_guy/)
-- [Hit me BBBY one more time](https://www.reddit.com/r/wallstreetbets/comments/wm1k56/hit_me_bbby_one_more_time/)
-- [I finally shortsqueezed my account take that hedgies!](https://www.reddit.com/r/wallstreetbets/comments/wm16sm/i_finally_shortsqueezed_my_account_take_that/)
+- [$BBBY: A warning for the upcoming Monday &lpar;8/15/22&rpar;](https://www.reddit.com/r/wallstreetbets/comments/wmy8lw/bbby_a_warning_for_the_upcoming_monday_81522/)
+- [BBBY 🚀🍉💎🤲🏼AFTER-HOURS $14.00](https://www.reddit.com/r/wallstreetbets/comments/wmy0ul/bbby_afterhours_1400/)
+- [Two years later, same energy](https://www.reddit.com/r/wallstreetbets/comments/wmwgp6/two_years_later_same_energy/)
+- [I wish I never discovered options.](https://www.reddit.com/r/wallstreetbets/comments/wmvc4t/i_wish_i_never_discovered_options/)
+- [BBBY $100k YOLO update: $185k](https://www.reddit.com/r/wallstreetbets/comments/wmvb0q/bbby_100k_yolo_update_185k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
