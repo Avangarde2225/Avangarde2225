@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BBBY: A warning for the upcoming Monday &lpar;8/15/22&rpar;](https://www.reddit.com/r/wallstreetbets/comments/wmy8lw/bbby_a_warning_for_the_upcoming_monday_81522/)
-- [BBBY 🚀🍉💎🤲🏼AFTER-HOURS $14.00](https://www.reddit.com/r/wallstreetbets/comments/wmy0ul/bbby_afterhours_1400/)
-- [Two years later, same energy](https://www.reddit.com/r/wallstreetbets/comments/wmwgp6/two_years_later_same_energy/)
-- [I wish I never discovered options.](https://www.reddit.com/r/wallstreetbets/comments/wmvc4t/i_wish_i_never_discovered_options/)
-- [BBBY $100k YOLO update: $185k](https://www.reddit.com/r/wallstreetbets/comments/wmvb0q/bbby_100k_yolo_update_185k/)
+- [State of the sub atm $BBBY $GME](https://www.reddit.com/r/wallstreetbets/comments/wnr6rx/state_of_the_sub_atm_bbby_gme/)
+- [I’m stupidly confused. Question about BBBY option value](https://www.reddit.com/r/wallstreetbets/comments/wnq7tn/im_stupidly_confused_question_about_bbby_option/)
+- [Rolls-Royce working on $300m transportable micro nuclear reactor](https://www.reddit.com/r/wallstreetbets/comments/wnouae/rollsroyce_working_on_300m_transportable_micro/)
+- [I FUCKING LOVE BBBY](https://www.reddit.com/r/wallstreetbets/comments/wnod6i/i_fucking_love_bbby/)
+- [Welp. That escalated quickly. MODSSSSS](https://www.reddit.com/r/wallstreetbets/comments/wnn131/welp_that_escalated_quickly_modsssss/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
