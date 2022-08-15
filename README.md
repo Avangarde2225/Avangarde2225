@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [State of the sub atm $BBBY $GME](https://www.reddit.com/r/wallstreetbets/comments/wnr6rx/state_of_the_sub_atm_bbby_gme/)
-- [I’m stupidly confused. Question about BBBY option value](https://www.reddit.com/r/wallstreetbets/comments/wnq7tn/im_stupidly_confused_question_about_bbby_option/)
-- [Rolls-Royce working on $300m transportable micro nuclear reactor](https://www.reddit.com/r/wallstreetbets/comments/wnouae/rollsroyce_working_on_300m_transportable_micro/)
-- [I FUCKING LOVE BBBY](https://www.reddit.com/r/wallstreetbets/comments/wnod6i/i_fucking_love_bbby/)
-- [Welp. That escalated quickly. MODSSSSS](https://www.reddit.com/r/wallstreetbets/comments/wnn131/welp_that_escalated_quickly_modsssss/)
+- [Why not?](https://www.reddit.com/r/wallstreetbets/comments/wokhm8/why_not/)
+- [Visited BBBY store and can confirm it is full of customers.](https://www.reddit.com/r/wallstreetbets/comments/wokhad/visited_bbby_store_and_can_confirm_it_is_full_of/)
+- [Legends are made tomorrow. We ride at 9:30.](https://www.reddit.com/r/wallstreetbets/comments/wojteu/legends_are_made_tomorrow_we_ride_at_930/)
+- [If AMTD can go from $16 to $1,679 in just eighteen days, then BBBY can definitely moon over $2,000](https://www.reddit.com/r/wallstreetbets/comments/woifp1/if_amtd_can_go_from_16_to_1679_in_just_eighteen/)
+- [I am retarded what happens if I do this?](https://www.reddit.com/r/wallstreetbets/comments/wohb3k/i_am_retarded_what_happens_if_i_do_this/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
