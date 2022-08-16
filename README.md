@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why not?](https://www.reddit.com/r/wallstreetbets/comments/wokhm8/why_not/)
-- [Visited BBBY store and can confirm it is full of customers.](https://www.reddit.com/r/wallstreetbets/comments/wokhad/visited_bbby_store_and_can_confirm_it_is_full_of/)
-- [Legends are made tomorrow. We ride at 9:30.](https://www.reddit.com/r/wallstreetbets/comments/wojteu/legends_are_made_tomorrow_we_ride_at_930/)
-- [If AMTD can go from $16 to $1,679 in just eighteen days, then BBBY can definitely moon over $2,000](https://www.reddit.com/r/wallstreetbets/comments/woifp1/if_amtd_can_go_from_16_to_1679_in_just_eighteen/)
-- [I am retarded what happens if I do this?](https://www.reddit.com/r/wallstreetbets/comments/wohb3k/i_am_retarded_what_happens_if_i_do_this/)
+- [I was on this board every day in the months leading up to the GME squeeze. Important message to BBBY apes](https://www.reddit.com/r/wallstreetbets/comments/wpcmse/i_was_on_this_board_every_day_in_the_months/)
+- [Hey Retard you’re famous](https://www.reddit.com/r/wallstreetbets/comments/wpbvj2/hey_retard_youre_famous/)
+- [The $BBBY situation explained in under 30 seconds.](https://www.reddit.com/r/wallstreetbets/comments/wp9nip/the_bbby_situation_explained_in_under_30_seconds/)
+- [Some of you are truly regarded and it shows](https://www.reddit.com/r/wallstreetbets/comments/wp9l2i/some_of_you_are_truly_regarded_and_it_shows/)
+- [What Are Your Moves Tomorrow, August 16, 2022](https://www.reddit.com/r/wallstreetbets/comments/wp99s4/what_are_your_moves_tomorrow_august_16_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
