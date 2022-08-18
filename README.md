@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I know $BBBY is melting up when I see Cramer melting down](https://www.reddit.com/r/wallstreetbets/comments/wq8nkl/i_know_bbby_is_melting_up_when_i_see_cramer/)
-- [BBBY 🐳 YOLO 2M —&gt; 5M —&gt; 3.5M](https://www.reddit.com/r/wallstreetbets/comments/wq8f1z/bbby_yolo_2m_5m_35m/)
-- [Tomorrow I double down. Who is with me?](https://www.reddit.com/r/wallstreetbets/comments/wq748y/tomorrow_i_double_down_who_is_with_me/)
-- [EXPECT $40 $BBBY TOMORROW 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/wq6di2/expect_40_bbby_tomorrow/)
-- [8/16 Update: GME 2021 vs BBBY 2022 Squeeze](https://www.reddit.com/r/wallstreetbets/comments/wq56j7/816_update_gme_2021_vs_bbby_2022_squeeze/)
+- [The update from BBBY management we have all been waiting for.](https://www.reddit.com/r/wallstreetbets/comments/wr3cu8/the_update_from_bbby_management_we_have_all_been/)
+- [DIRTY HEADLINES BEFORE VS AFTER 🙃](https://www.reddit.com/r/wallstreetbets/comments/wr195e/dirty_headlines_before_vs_after/)
+- [For every upvote I’ll buy 1 more share of $BBBY. If this gets 5,000 upvotes I’ll take a 50k loan to YOLO.](https://www.reddit.com/r/wallstreetbets/comments/wr10m8/for_every_upvote_ill_buy_1_more_share_of_bbby_if/)
+- [Bed Bath, now what? …. Now we go Beyond Mars.. 🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/wr082h/bed_bath_now_what_now_we_go_beyond_mars/)
+- [Ryan Cohen Didn&#39;t Sell BBBY ... he filed a SEC required form.](https://www.reddit.com/r/wallstreetbets/comments/wqzwl3/ryan_cohen_didnt_sell_bbby_he_filed_a_sec/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
