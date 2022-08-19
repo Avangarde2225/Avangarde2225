@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The update from BBBY management we have all been waiting for.](https://www.reddit.com/r/wallstreetbets/comments/wr3cu8/the_update_from_bbby_management_we_have_all_been/)
-- [DIRTY HEADLINES BEFORE VS AFTER 🙃](https://www.reddit.com/r/wallstreetbets/comments/wr195e/dirty_headlines_before_vs_after/)
-- [For every upvote I’ll buy 1 more share of $BBBY. If this gets 5,000 upvotes I’ll take a 50k loan to YOLO.](https://www.reddit.com/r/wallstreetbets/comments/wr10m8/for_every_upvote_ill_buy_1_more_share_of_bbby_if/)
-- [Bed Bath, now what? …. Now we go Beyond Mars.. 🚀🚀🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/wr082h/bed_bath_now_what_now_we_go_beyond_mars/)
-- [Ryan Cohen Didn&#39;t Sell BBBY ... he filed a SEC required form.](https://www.reddit.com/r/wallstreetbets/comments/wqzwl3/ryan_cohen_didnt_sell_bbby_he_filed_a_sec/)
+- [BBBY 🐳 FINAL UPDATE : 2M &lpar;3.2M net&rpar; —&gt; 5.4M —&gt; 2.1M. NET LOSS ~1.1M](https://www.reddit.com/r/wallstreetbets/comments/wrz16l/bbby_final_update_2m_32m_net_54m_21m_net_loss_11m/)
+- [So Ryan Cohen selling his BBBY two days ago didn&#39;t make BBBY nosedive, but the apes finding out he sold his BBBY made it nosedive. You guys are unbelievable](https://www.reddit.com/r/wallstreetbets/comments/wryk1u/so_ryan_cohen_selling_his_bbby_two_days_ago_didnt/)
+- [Guys. its time. Post your positions.](https://www.reddit.com/r/wallstreetbets/comments/wrw3t2/guys_its_time_post_your_positions/)
+- [Ryan Cohen sold and the price barely moved.](https://www.reddit.com/r/wallstreetbets/comments/wrvuqd/ryan_cohen_sold_and_the_price_barely_moved/)
+- [i am the guy who bought 25.000 $ of shares at 20$ this morning](https://www.reddit.com/r/wallstreetbets/comments/wrv5jv/i_am_the_guy_who_bought_25000_of_shares_at_20/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
