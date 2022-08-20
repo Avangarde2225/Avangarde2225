@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BBBY 🐳 FINAL UPDATE : 2M &lpar;3.2M net&rpar; —&gt; 5.4M —&gt; 2.1M. NET LOSS ~1.1M](https://www.reddit.com/r/wallstreetbets/comments/wrz16l/bbby_final_update_2m_32m_net_54m_21m_net_loss_11m/)
-- [So Ryan Cohen selling his BBBY two days ago didn&#39;t make BBBY nosedive, but the apes finding out he sold his BBBY made it nosedive. You guys are unbelievable](https://www.reddit.com/r/wallstreetbets/comments/wryk1u/so_ryan_cohen_selling_his_bbby_two_days_ago_didnt/)
-- [Guys. its time. Post your positions.](https://www.reddit.com/r/wallstreetbets/comments/wrw3t2/guys_its_time_post_your_positions/)
-- [Ryan Cohen sold and the price barely moved.](https://www.reddit.com/r/wallstreetbets/comments/wrvuqd/ryan_cohen_sold_and_the_price_barely_moved/)
-- [i am the guy who bought 25.000 $ of shares at 20$ this morning](https://www.reddit.com/r/wallstreetbets/comments/wrv5jv/i_am_the_guy_who_bought_25000_of_shares_at_20/)
+- [She doesn’t know that $10,000 is now $3,200 thanks BBBY](https://www.reddit.com/r/wallstreetbets/comments/wsr209/she_doesnt_know_that_10000_is_now_3200_thanks_bbby/)
+- [It&#39;s a vicious and endless cycle.](https://www.reddit.com/r/wallstreetbets/comments/wspu82/its_a_vicious_and_endless_cycle/)
+- [Not sure if you saw this..](https://www.reddit.com/r/wallstreetbets/comments/wsp7nc/not_sure_if_you_saw_this/)
+- [What a ride..](https://www.reddit.com/r/wallstreetbets/comments/wsowr0/what_a_ride/)
+- [$bbby SELLING PRESSURE IS GONE](https://www.reddit.com/r/wallstreetbets/comments/wsob29/bbby_selling_pressure_is_gone/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
