@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [She doesn’t know that $10,000 is now $3,200 thanks BBBY](https://www.reddit.com/r/wallstreetbets/comments/wsr209/she_doesnt_know_that_10000_is_now_3200_thanks_bbby/)
-- [It&#39;s a vicious and endless cycle.](https://www.reddit.com/r/wallstreetbets/comments/wspu82/its_a_vicious_and_endless_cycle/)
-- [Not sure if you saw this..](https://www.reddit.com/r/wallstreetbets/comments/wsp7nc/not_sure_if_you_saw_this/)
-- [What a ride..](https://www.reddit.com/r/wallstreetbets/comments/wsowr0/what_a_ride/)
-- [$bbby SELLING PRESSURE IS GONE](https://www.reddit.com/r/wallstreetbets/comments/wsob29/bbby_selling_pressure_is_gone/)
+- [Ryan Cohen was an insider when selling his shares. Found the Form 4 through sec.gov.](https://www.reddit.com/r/wallstreetbets/comments/wtju81/ryan_cohen_was_an_insider_when_selling_his_shares/)
+- [diamond hands forever 💎🐵🙌](https://www.reddit.com/r/wallstreetbets/comments/wtibhv/diamond_hands_forever/)
+- [*happy ape noises](https://www.reddit.com/r/wallstreetbets/comments/wthy94/happy_ape_noises/)
+- [Repeat after me.](https://www.reddit.com/r/wallstreetbets/comments/wtgdhf/repeat_after_me/)
+- [Picked this up from a friend’s junk. $108,000 par value in 1908. Any regard who can help me figure out how to cash this in for da millionz gets 10%.](https://www.reddit.com/r/wallstreetbets/comments/wtfqp7/picked_this_up_from_a_friends_junk_108000_par/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
