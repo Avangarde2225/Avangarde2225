@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is WallStreetBets Biased in its BBBY Stickies? [Data]](https://www.reddit.com/r/wallstreetbets/comments/wuenjv/is_wallstreetbets_biased_in_its_bbby_stickies_data/)
-- [ROLL CALL! LIKE if you&#39;re still holding BBBY and/or buying more tomorrow. 🍉](https://www.reddit.com/r/wallstreetbets/comments/wudblf/roll_call_like_if_youre_still_holding_bbby_andor/)
-- [BBBY holders when market opens](https://www.reddit.com/r/wallstreetbets/comments/wubtwe/bbby_holders_when_market_opens/)
-- [I can&#39;t be the only one](https://www.reddit.com/r/wallstreetbets/comments/wubjp4/i_cant_be_the_only_one/)
-- [I don’t want bbby to go bankrupt so I just pulled up to their store. Going to buy everything](https://www.reddit.com/r/wallstreetbets/comments/wub13h/i_dont_want_bbby_to_go_bankrupt_so_i_just_pulled/)
+- [The truth](https://www.reddit.com/r/wallstreetbets/comments/wv7n9r/the_truth/)
+- [The GME Anomaly and the Slow March](https://www.reddit.com/r/wallstreetbets/comments/wv6e6g/the_gme_anomaly_and_the_slow_march/)
+- [[27M] It was nice trading by your side you awesome degens, but it looks like it&#39;s time to focus on school from now on](https://www.reddit.com/r/wallstreetbets/comments/wv5p39/27m_it_was_nice_trading_by_your_side_you_awesome/)
+- [Where them balls at?](https://www.reddit.com/r/wallstreetbets/comments/wv4qfj/where_them_balls_at/)
+- [What Are Your Moves Tomorrow, August 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/wv3j5x/what_are_your_moves_tomorrow_august_23_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
