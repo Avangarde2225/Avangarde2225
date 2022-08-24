@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The truth](https://www.reddit.com/r/wallstreetbets/comments/wv7n9r/the_truth/)
-- [The GME Anomaly and the Slow March](https://www.reddit.com/r/wallstreetbets/comments/wv6e6g/the_gme_anomaly_and_the_slow_march/)
-- [[27M] It was nice trading by your side you awesome degens, but it looks like it&#39;s time to focus on school from now on](https://www.reddit.com/r/wallstreetbets/comments/wv5p39/27m_it_was_nice_trading_by_your_side_you_awesome/)
-- [Where them balls at?](https://www.reddit.com/r/wallstreetbets/comments/wv4qfj/where_them_balls_at/)
-- [What Are Your Moves Tomorrow, August 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/wv3j5x/what_are_your_moves_tomorrow_august_23_2022/)
+- [JIMMY CHILL HAS NO CHILL!!! $GME $BBBY 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ww2eit/jimmy_chill_has_no_chill_gme_bbby/)
+- [Victor in California knows what’s up](https://www.reddit.com/r/wallstreetbets/comments/ww2ckn/victor_in_california_knows_whats_up/)
+- [BBBY will rip to $10.5-12 tomorrow](https://www.reddit.com/r/wallstreetbets/comments/ww23yn/bbby_will_rip_to_10512_tomorrow/)
+- [BBBY LinkedIn jobs and why its disingenuous to say its bullish](https://www.reddit.com/r/wallstreetbets/comments/ww1k8i/bbby_linkedin_jobs_and_why_its_disingenuous_to/)
+- [Whole market confused now because whole market is now a meme and they don’t know what to do. 😂](https://www.reddit.com/r/wallstreetbets/comments/ww0fm5/whole_market_confused_now_because_whole_market_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
