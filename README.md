@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [JIMMY CHILL HAS NO CHILL!!! $GME $BBBY 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ww2eit/jimmy_chill_has_no_chill_gme_bbby/)
-- [Victor in California knows what’s up](https://www.reddit.com/r/wallstreetbets/comments/ww2ckn/victor_in_california_knows_whats_up/)
-- [BBBY will rip to $10.5-12 tomorrow](https://www.reddit.com/r/wallstreetbets/comments/ww23yn/bbby_will_rip_to_10512_tomorrow/)
-- [BBBY LinkedIn jobs and why its disingenuous to say its bullish](https://www.reddit.com/r/wallstreetbets/comments/ww1k8i/bbby_linkedin_jobs_and_why_its_disingenuous_to/)
-- [Whole market confused now because whole market is now a meme and they don’t know what to do. 😂](https://www.reddit.com/r/wallstreetbets/comments/ww0fm5/whole_market_confused_now_because_whole_market_is/)
+- [W BBBY](https://www.reddit.com/r/wallstreetbets/comments/wwyuro/w_bbby/)
+- [And tomorrow -$10](https://www.reddit.com/r/wallstreetbets/comments/wwxa8n/and_tomorrow_10/)
+- [GameStop Boosts Compensation for Some Store Employees With Shares and…](https://www.reddit.com/r/wallstreetbets/comments/wwvtah/gamestop_boosts_compensation_for_some_store/)
+- [SI Bbby 30,76M](https://www.reddit.com/r/wallstreetbets/comments/wwuhhx/si_bbby_3076m/)
+- [C&#39;mon guys, pull through!](https://www.reddit.com/r/wallstreetbets/comments/wwty3l/cmon_guys_pull_through/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
