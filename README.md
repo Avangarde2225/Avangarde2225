@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [😂](https://www.reddit.com/r/wallstreetbets/comments/wxtap4/_/)
-- [$BBBY ANNOUNCEMENT AUGUST 31st](https://www.reddit.com/r/wallstreetbets/comments/wxpkov/bbby_announcement_august_31st/)
-- [BED BATH &amp; BEYOND INC. TO PROVIDE STRATEGIC UPDATE ON AUGUST 31, 2022](https://www.reddit.com/r/wallstreetbets/comments/wxp6uz/bed_bath_beyond_inc_to_provide_strategic_update/)
-- [&amp;BBBY STRATEGIC UPDATE](https://www.reddit.com/r/wallstreetbets/comments/wxoo5h/bbby_strategic_update/)
-- [BBBY 🐳 -1.2M. I’m back](https://www.reddit.com/r/wallstreetbets/comments/wxocuk/bbby_12m_im_back/)
+- [This sub right now](https://www.reddit.com/r/wallstreetbets/comments/wym5q8/this_sub_right_now/)
+- [$BBBY hit $53.90 in 2021 on 121M shares. Same MKT Cap = $81.56 on 79.9M shares](https://www.reddit.com/r/wallstreetbets/comments/wym537/bbby_hit_5390_in_2021_on_121m_shares_same_mkt_cap/)
+- [A green dildo in a sea of red](https://www.reddit.com/r/wallstreetbets/comments/wyldva/a_green_dildo_in_a_sea_of_red/)
+- [BBBY green in a sea of red today. Can’t wait for Monday! Friday night about to be lit boys!](https://www.reddit.com/r/wallstreetbets/comments/wylbl8/bbby_green_in_a_sea_of_red_today_cant_wait_for/)
+- [Shorts never covered](https://www.reddit.com/r/wallstreetbets/comments/wykin6/shorts_never_covered/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
