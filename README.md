@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This sub right now](https://www.reddit.com/r/wallstreetbets/comments/wym5q8/this_sub_right_now/)
-- [$BBBY hit $53.90 in 2021 on 121M shares. Same MKT Cap = $81.56 on 79.9M shares](https://www.reddit.com/r/wallstreetbets/comments/wym537/bbby_hit_5390_in_2021_on_121m_shares_same_mkt_cap/)
-- [A green dildo in a sea of red](https://www.reddit.com/r/wallstreetbets/comments/wyldva/a_green_dildo_in_a_sea_of_red/)
-- [BBBY green in a sea of red today. Can’t wait for Monday! Friday night about to be lit boys!](https://www.reddit.com/r/wallstreetbets/comments/wylbl8/bbby_green_in_a_sea_of_red_today_cant_wait_for/)
-- [Shorts never covered](https://www.reddit.com/r/wallstreetbets/comments/wykin6/shorts_never_covered/)
+- [Bonfire &lpar;Sale&rpar; Of The Vanities &lpar;VSCO: Victoria&#39;s Secret &amp; Co.&rpar; 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/wzguzh/bonfire_sale_of_the_vanities_vsco_victorias/)
+- [So which one of you apes shared the street with me hahahaha](https://www.reddit.com/r/wallstreetbets/comments/wzcxfv/so_which_one_of_you_apes_shared_the_street_with/)
+- [All in.](https://www.reddit.com/r/wallstreetbets/comments/wzcn32/all_in/)
+- [After a red year I can relate.](https://www.reddit.com/r/wallstreetbets/comments/wzc7p9/after_a_red_year_i_can_relate/)
+- [DankDanielOG: Story Time](https://www.reddit.com/r/wallstreetbets/comments/wzbekj/dankdanielog_story_time/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
