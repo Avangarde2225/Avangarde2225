@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bonfire &lpar;Sale&rpar; Of The Vanities &lpar;VSCO: Victoria&#39;s Secret &amp; Co.&rpar; 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/wzguzh/bonfire_sale_of_the_vanities_vsco_victorias/)
-- [So which one of you apes shared the street with me hahahaha](https://www.reddit.com/r/wallstreetbets/comments/wzcxfv/so_which_one_of_you_apes_shared_the_street_with/)
-- [All in.](https://www.reddit.com/r/wallstreetbets/comments/wzcn32/all_in/)
-- [After a red year I can relate.](https://www.reddit.com/r/wallstreetbets/comments/wzc7p9/after_a_red_year_i_can_relate/)
-- [DankDanielOG: Story Time](https://www.reddit.com/r/wallstreetbets/comments/wzbekj/dankdanielog_story_time/)
+- [Buying my $BBBY at $30 visualized](https://www.reddit.com/r/wallstreetbets/comments/x09dvq/buying_my_bbby_at_30_visualized/)
+- [NASA going to the moon the same week as BBBY announcement?](https://www.reddit.com/r/wallstreetbets/comments/x08ly2/nasa_going_to_the_moon_the_same_week_as_bbby/)
+- [Lots of people are mixed up but Wednesday this is going to be Jammin!](https://www.reddit.com/r/wallstreetbets/comments/x070us/lots_of_people_are_mixed_up_but_wednesday_this_is/)
+- [Why stop at one watermelon?](https://www.reddit.com/r/wallstreetbets/comments/x06y5d/why_stop_at_one_watermelon/)
+- [Tips on how to recover besides Wendy’s?](https://www.reddit.com/r/wallstreetbets/comments/x06vsl/tips_on_how_to_recover_besides_wendys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
