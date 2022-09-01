@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If you wanna know how scared they are, here’s a look &lpar;BBBY&rpar;](https://www.reddit.com/r/wallstreetbets/comments/x1x97r/if_you_wanna_know_how_scared_they_are_heres_a/)
-- [Tomorrow we’re either going to get a lot of loss porn, or gain porn. Either way, we’re getting porn.](https://www.reddit.com/r/wallstreetbets/comments/x1x4a2/tomorrow_were_either_going_to_get_a_lot_of_loss/)
-- [Let&#39;s get ready for tomorrow regards and 🦍 🚀🚀BBBY🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/x1w3fb/lets_get_ready_for_tomorrow_regards_and_bbby/)
-- [BBBY gang rise up](https://www.reddit.com/r/wallstreetbets/comments/x1vbin/bbby_gang_rise_up/)
-- [Apes whenever there&#39;s a red day...](https://www.reddit.com/r/wallstreetbets/comments/x1u0v5/apes_whenever_theres_a_red_day/)
+- [Shorts trapped between a rock and a hard place... They can&#39;t bring the price down without high volume, but they can&#39;t get off Reg SHO without dropping the volume &lpar;which will cause price to skyrocket&rpar;.](https://www.reddit.com/r/wallstreetbets/comments/x2qync/shorts_trapped_between_a_rock_and_a_hard_place/)
+- [You’re all liars…](https://www.reddit.com/r/wallstreetbets/comments/x2q7e8/youre_all_liars/)
+- [Ohhh BBBY!](https://www.reddit.com/r/wallstreetbets/comments/x2pdsx/ohhh_bbby/)
+- [What Are Your Moves Tomorrow, September 01, 2022](https://www.reddit.com/r/wallstreetbets/comments/x2n2d9/what_are_your_moves_tomorrow_september_01_2022/)
+- [1000 BBBY - hope my wife’s boyfriend won’t leave me](https://www.reddit.com/r/wallstreetbets/comments/x2mgp3/1000_bbby_hope_my_wifes_boyfriend_wont_leave_me/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
