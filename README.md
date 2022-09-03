@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You know we in a recession when banks giving out free stuff](https://www.reddit.com/r/wallstreetbets/comments/x3myof/you_know_we_in_a_recession_when_banks_giving_out/)
-- [Uh oh…](https://www.reddit.com/r/wallstreetbets/comments/x3l9gu/uh_oh/)
-- [Just don&#39;t tell my husband](https://www.reddit.com/r/wallstreetbets/comments/x3k0ko/just_dont_tell_my_husband/)
-- [It be true though!](https://www.reddit.com/r/wallstreetbets/comments/x3hvd0/it_be_true_though/)
-- [that spy reversal wrecked me. loss half value. worst part is I&#39;m still holding these 390 puts that expire tomorrow. all 200 of them.](https://www.reddit.com/r/wallstreetbets/comments/x3hugy/that_spy_reversal_wrecked_me_loss_half_value/)
+- [Brokémon Trading Hard Game.](https://www.reddit.com/r/wallstreetbets/comments/x4e2jv/brokémon_trading_hard_game/)
+- [TLDR: $BBBY + URANUS = 🍉](https://www.reddit.com/r/wallstreetbets/comments/x4dtsn/tldr_bbby_uranus/)
+- [Fucking hell, can we have a karma/account age limit to fucking post here?](https://www.reddit.com/r/wallstreetbets/comments/x4cz1r/fucking_hell_can_we_have_a_karmaaccount_age_limit/)
+- [Added More BBBY](https://www.reddit.com/r/wallstreetbets/comments/x4bhmk/added_more_bbby/)
+- [If brick and mortar is dying, and online shopping is dying, then maybe no one&#39;s shopping and there&#39;s a recession.](https://www.reddit.com/r/wallstreetbets/comments/x4bg6z/if_brick_and_mortar_is_dying_and_online_shopping/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
