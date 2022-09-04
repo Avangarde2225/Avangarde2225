@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Brokémon Trading Hard Game.](https://www.reddit.com/r/wallstreetbets/comments/x4e2jv/brokémon_trading_hard_game/)
-- [TLDR: $BBBY + URANUS = 🍉](https://www.reddit.com/r/wallstreetbets/comments/x4dtsn/tldr_bbby_uranus/)
-- [Fucking hell, can we have a karma/account age limit to fucking post here?](https://www.reddit.com/r/wallstreetbets/comments/x4cz1r/fucking_hell_can_we_have_a_karmaaccount_age_limit/)
-- [Added More BBBY](https://www.reddit.com/r/wallstreetbets/comments/x4bhmk/added_more_bbby/)
-- [If brick and mortar is dying, and online shopping is dying, then maybe no one&#39;s shopping and there&#39;s a recession.](https://www.reddit.com/r/wallstreetbets/comments/x4bg6z/if_brick_and_mortar_is_dying_and_online_shopping/)
+- [High Inflation Or Recession?](https://www.reddit.com/r/wallstreetbets/comments/x584kx/high_inflation_or_recession/)
+- [pretty solid month I&#39;d say](https://www.reddit.com/r/wallstreetbets/comments/x57rfn/pretty_solid_month_id_say/)
+- [If I see this stupid chart one more time I will get it tattooed on my ass cheek you retards are annoying](https://www.reddit.com/r/wallstreetbets/comments/x5660s/if_i_see_this_stupid_chart_one_more_time_i_will/)
+- [‪Already down over 40K, have few buck left for 🍜, ready to roll the 🎲.. give me a good play! ‬](https://www.reddit.com/r/wallstreetbets/comments/x5636l/already_down_over_40k_have_few_buck_left_for/)
+- [Uranium Stocks- U.S. government request Billions of dollars for Uranium.](https://www.reddit.com/r/wallstreetbets/comments/x55ia8/uranium_stocks_us_government_request_billions_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
