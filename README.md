@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Someone explain for those of us that prefer facts rather than doomsday predictions how a CFO selling 1/6th of his shares that were awarded as compensation, at a price that is median for the past year even resembles a p&amp;d](https://www.reddit.com/r/wallstreetbets/comments/x61cwi/someone_explain_for_those_of_us_that_prefer_facts/)
-- [The greatest of all time 🐐](https://www.reddit.com/r/wallstreetbets/comments/x603a7/the_greatest_of_all_time/)
-- [Seriously, why do you guys still trade with them?](https://www.reddit.com/r/wallstreetbets/comments/x5zlcn/seriously_why_do_you_guys_still_trade_with_them/)
-- [A lot of you need help](https://www.reddit.com/r/wallstreetbets/comments/x5z9wj/a_lot_of_you_need_help/)
-- [10x your money](https://www.reddit.com/r/wallstreetbets/comments/x5yyc1/10x_your_money/)
+- [TOP 50 Companies by Market Capitalization 2022](https://www.reddit.com/r/wallstreetbets/comments/x6um1x/top_50_companies_by_market_capitalization_2022/)
+- [Shorting in the name of Greed](https://www.reddit.com/r/wallstreetbets/comments/x6speq/shorting_in_the_name_of_greed/)
+- [My Full Plan for this Week &lpar;5 Earnings Plays, 2 Economic Events, 4 Stocks &amp; 1 Lotto 10x Play&rpar;](https://www.reddit.com/r/wallstreetbets/comments/x6s01x/my_full_plan_for_this_week_5_earnings_plays_2/)
+- [BBBY YOLO, buying more tomorrow during the dip 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/x6r2j0/bbby_yolo_buying_more_tomorrow_during_the_dip/)
+- [Every Ape always](https://www.reddit.com/r/wallstreetbets/comments/x6pt85/every_ape_always/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
