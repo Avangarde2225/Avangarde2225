@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TOP 50 Companies by Market Capitalization 2022](https://www.reddit.com/r/wallstreetbets/comments/x6um1x/top_50_companies_by_market_capitalization_2022/)
-- [Shorting in the name of Greed](https://www.reddit.com/r/wallstreetbets/comments/x6speq/shorting_in_the_name_of_greed/)
-- [My Full Plan for this Week &lpar;5 Earnings Plays, 2 Economic Events, 4 Stocks &amp; 1 Lotto 10x Play&rpar;](https://www.reddit.com/r/wallstreetbets/comments/x6s01x/my_full_plan_for_this_week_5_earnings_plays_2/)
-- [BBBY YOLO, buying more tomorrow during the dip 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/x6r2j0/bbby_yolo_buying_more_tomorrow_during_the_dip/)
-- [Every Ape always](https://www.reddit.com/r/wallstreetbets/comments/x6pt85/every_ape_always/)
+- [Fixed it](https://www.reddit.com/r/wallstreetbets/comments/x7oshj/fixed_it/)
+- [Beyond Meat](https://www.reddit.com/r/wallstreetbets/comments/x7o88f/beyond_meat/)
+- [That bankrupt swag](https://www.reddit.com/r/wallstreetbets/comments/x7mz1r/that_bankrupt_swag/)
+- [Welcome, to the Investor Center.](https://www.reddit.com/r/wallstreetbets/comments/x7mx1m/welcome_to_the_investor_center/)
+- [Which one of you won&#39;t pay $7 for a hotdog at a baseball game?](https://www.reddit.com/r/wallstreetbets/comments/x7moho/which_one_of_you_wont_pay_7_for_a_hotdog_at_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
