@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fixed it](https://www.reddit.com/r/wallstreetbets/comments/x7oshj/fixed_it/)
-- [Beyond Meat](https://www.reddit.com/r/wallstreetbets/comments/x7o88f/beyond_meat/)
-- [That bankrupt swag](https://www.reddit.com/r/wallstreetbets/comments/x7mz1r/that_bankrupt_swag/)
-- [Welcome, to the Investor Center.](https://www.reddit.com/r/wallstreetbets/comments/x7mx1m/welcome_to_the_investor_center/)
-- [Which one of you won&#39;t pay $7 for a hotdog at a baseball game?](https://www.reddit.com/r/wallstreetbets/comments/x7moho/which_one_of_you_wont_pay_7_for_a_hotdog_at_a/)
+- [At this point I&#39;m coughing up hairballs.](https://www.reddit.com/r/wallstreetbets/comments/x8j5wg/at_this_point_im_coughing_up_hairballs/)
+- [Bought GME calls near the bottom. I may be early but I&#39;m definitely regarded. I think I timed the bottom...plz dont f@ck me on this Kenny](https://www.reddit.com/r/wallstreetbets/comments/x8h5j7/bought_gme_calls_near_the_bottom_i_may_be_early/)
+- [GameStop DRS numbers!](https://www.reddit.com/r/wallstreetbets/comments/x8h2ti/gamestop_drs_numbers/)
+- [Bad news boys, no more lambos](https://www.reddit.com/r/wallstreetbets/comments/x8gl0p/bad_news_boys_no_more_lambos/)
+- [jpow notes leaked](https://www.reddit.com/r/wallstreetbets/comments/x8gdbw/jpow_notes_leaked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
