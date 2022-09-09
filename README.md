@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [At this point I&#39;m coughing up hairballs.](https://www.reddit.com/r/wallstreetbets/comments/x8j5wg/at_this_point_im_coughing_up_hairballs/)
-- [Bought GME calls near the bottom. I may be early but I&#39;m definitely regarded. I think I timed the bottom...plz dont f@ck me on this Kenny](https://www.reddit.com/r/wallstreetbets/comments/x8h5j7/bought_gme_calls_near_the_bottom_i_may_be_early/)
-- [GameStop DRS numbers!](https://www.reddit.com/r/wallstreetbets/comments/x8h2ti/gamestop_drs_numbers/)
-- [Bad news boys, no more lambos](https://www.reddit.com/r/wallstreetbets/comments/x8gl0p/bad_news_boys_no_more_lambos/)
-- [jpow notes leaked](https://www.reddit.com/r/wallstreetbets/comments/x8gdbw/jpow_notes_leaked/)
+- [Uranium Stock play- From Rocks to Riches- Why they are up So much this month- Nuclear Energy Renaissance breakout](https://www.reddit.com/r/wallstreetbets/comments/x9euv7/uranium_stock_play_from_rocks_to_riches_why_they/)
+- [Averaged down 6 dollars I’d rather watch this stock hit the dirt than to sell](https://www.reddit.com/r/wallstreetbets/comments/x9epka/averaged_down_6_dollars_id_rather_watch_this/)
+- [$ASTS DD with $500 PT - The best DD I&#39;ve ever seen from an anon - no hyperbole. Literally better than the report from Barclay&#39;s and Desutche Bank. Summary inside.](https://www.reddit.com/r/wallstreetbets/comments/x9cztz/asts_dd_with_500_pt_the_best_dd_ive_ever_seen/)
+- [ohh jimmy](https://www.reddit.com/r/wallstreetbets/comments/x9cw9u/ohh_jimmy/)
+- [Thought I would post a BBBY loss, still positive but fuck greed is a crazy thing](https://www.reddit.com/r/wallstreetbets/comments/x9cauh/thought_i_would_post_a_bbby_loss_still_positive/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
