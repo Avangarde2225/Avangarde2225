@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Uranium Stock play- From Rocks to Riches- Why they are up So much this month- Nuclear Energy Renaissance breakout](https://www.reddit.com/r/wallstreetbets/comments/x9euv7/uranium_stock_play_from_rocks_to_riches_why_they/)
-- [Averaged down 6 dollars I’d rather watch this stock hit the dirt than to sell](https://www.reddit.com/r/wallstreetbets/comments/x9epka/averaged_down_6_dollars_id_rather_watch_this/)
-- [$ASTS DD with $500 PT - The best DD I&#39;ve ever seen from an anon - no hyperbole. Literally better than the report from Barclay&#39;s and Desutche Bank. Summary inside.](https://www.reddit.com/r/wallstreetbets/comments/x9cztz/asts_dd_with_500_pt_the_best_dd_ive_ever_seen/)
-- [ohh jimmy](https://www.reddit.com/r/wallstreetbets/comments/x9cw9u/ohh_jimmy/)
-- [Thought I would post a BBBY loss, still positive but fuck greed is a crazy thing](https://www.reddit.com/r/wallstreetbets/comments/x9cauh/thought_i_would_post_a_bbby_loss_still_positive/)
+- [&quot;Babe you know I don&#39;t get paid until next Friday!&quot;](https://www.reddit.com/r/wallstreetbets/comments/xa9jo1/babe_you_know_i_dont_get_paid_until_next_friday/)
+- [I’m I doing this right? At this point Imma just leave my cashapp on here and pray for the best. 💀 $momchilb](https://www.reddit.com/r/wallstreetbets/comments/xa9j21/im_i_doing_this_right_at_this_point_imma_just/)
+- [I know you’re in here. Show yourself](https://www.reddit.com/r/wallstreetbets/comments/xa8wbu/i_know_youre_in_here_show_yourself/)
+- [for real](https://www.reddit.com/r/wallstreetbets/comments/xa7ad6/for_real/)
+- [Increasingly delusional about my poots...](https://www.reddit.com/r/wallstreetbets/comments/xa6c3e/increasingly_delusional_about_my_poots/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
