@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;Babe you know I don&#39;t get paid until next Friday!&quot;](https://www.reddit.com/r/wallstreetbets/comments/xa9jo1/babe_you_know_i_dont_get_paid_until_next_friday/)
-- [I’m I doing this right? At this point Imma just leave my cashapp on here and pray for the best. 💀 $momchilb](https://www.reddit.com/r/wallstreetbets/comments/xa9j21/im_i_doing_this_right_at_this_point_imma_just/)
-- [I know you’re in here. Show yourself](https://www.reddit.com/r/wallstreetbets/comments/xa8wbu/i_know_youre_in_here_show_yourself/)
-- [for real](https://www.reddit.com/r/wallstreetbets/comments/xa7ad6/for_real/)
-- [Increasingly delusional about my poots...](https://www.reddit.com/r/wallstreetbets/comments/xa6c3e/increasingly_delusional_about_my_poots/)
+- [This is it boys.](https://www.reddit.com/r/wallstreetbets/comments/xb3vgx/this_is_it_boys/)
+- [Thats me fr](https://www.reddit.com/r/wallstreetbets/comments/xb3u4s/thats_me_fr/)
+- [Thought the loss porn been kinda soft core recently. Fear regret more than failure....?](https://www.reddit.com/r/wallstreetbets/comments/xb3gv5/thought_the_loss_porn_been_kinda_soft_core/)
+- [Legends in the game](https://www.reddit.com/r/wallstreetbets/comments/xb31j0/legends_in_the_game/)
+- [If you’re gonna use Robinhood, you should know how it works, here is some info I gained over the years.](https://www.reddit.com/r/wallstreetbets/comments/xb259n/if_youre_gonna_use_robinhood_you_should_know_how/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
