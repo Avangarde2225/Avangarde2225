@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is it boys.](https://www.reddit.com/r/wallstreetbets/comments/xb3vgx/this_is_it_boys/)
-- [Thats me fr](https://www.reddit.com/r/wallstreetbets/comments/xb3u4s/thats_me_fr/)
-- [Thought the loss porn been kinda soft core recently. Fear regret more than failure....?](https://www.reddit.com/r/wallstreetbets/comments/xb3gv5/thought_the_loss_porn_been_kinda_soft_core/)
-- [Legends in the game](https://www.reddit.com/r/wallstreetbets/comments/xb31j0/legends_in_the_game/)
-- [If you’re gonna use Robinhood, you should know how it works, here is some info I gained over the years.](https://www.reddit.com/r/wallstreetbets/comments/xb259n/if_youre_gonna_use_robinhood_you_should_know_how/)
+- [I still haven’t recovered my losses.](https://www.reddit.com/r/wallstreetbets/comments/xbwqdm/i_still_havent_recovered_my_losses/)
+- [Lost everything including job. Can’t pay rent. Flair me bitches.](https://www.reddit.com/r/wallstreetbets/comments/xbvegk/lost_everything_including_job_cant_pay_rent_flair/)
+- [You’re a piece of shit if you gamble other peoples money without their permission](https://www.reddit.com/r/wallstreetbets/comments/xbulw7/youre_a_piece_of_shit_if_you_gamble_other_peoples/)
+- [I told my wife that our house downpayment is safely invested in Robinhood…](https://www.reddit.com/r/wallstreetbets/comments/xbtcrd/i_told_my_wife_that_our_house_downpayment_is/)
+- [I reinstalled RH to get my money back to restart investing. It’s not working???? Who do I call?](https://www.reddit.com/r/wallstreetbets/comments/xbsmdy/i_reinstalled_rh_to_get_my_money_back_to_restart/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
