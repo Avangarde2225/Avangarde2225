@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I still haven’t recovered my losses.](https://www.reddit.com/r/wallstreetbets/comments/xbwqdm/i_still_havent_recovered_my_losses/)
-- [Lost everything including job. Can’t pay rent. Flair me bitches.](https://www.reddit.com/r/wallstreetbets/comments/xbvegk/lost_everything_including_job_cant_pay_rent_flair/)
-- [You’re a piece of shit if you gamble other peoples money without their permission](https://www.reddit.com/r/wallstreetbets/comments/xbulw7/youre_a_piece_of_shit_if_you_gamble_other_peoples/)
-- [I told my wife that our house downpayment is safely invested in Robinhood…](https://www.reddit.com/r/wallstreetbets/comments/xbtcrd/i_told_my_wife_that_our_house_downpayment_is/)
-- [I reinstalled RH to get my money back to restart investing. It’s not working???? Who do I call?](https://www.reddit.com/r/wallstreetbets/comments/xbsmdy/i_reinstalled_rh_to_get_my_money_back_to_restart/)
+- [Calls on generators and oil](https://www.reddit.com/r/wallstreetbets/comments/xcrqsy/calls_on_generators_and_oil/)
+- [BBBY new 8 K Filing](https://www.reddit.com/r/wallstreetbets/comments/xcpv54/bbby_new_8_k_filing/)
+- [yeah that other one was my play money account - this is my real account](https://www.reddit.com/r/wallstreetbets/comments/xcp8d4/yeah_that_other_one_was_my_play_money_account/)
+- [I lost everything today :&lpar;](https://www.reddit.com/r/wallstreetbets/comments/xcp3sb/i_lost_everything_today/)
+- [BBBY Bag holders🚀](https://www.reddit.com/r/wallstreetbets/comments/xcor87/bbby_bag_holders/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
