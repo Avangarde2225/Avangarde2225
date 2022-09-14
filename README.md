@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calls on generators and oil](https://www.reddit.com/r/wallstreetbets/comments/xcrqsy/calls_on_generators_and_oil/)
-- [BBBY new 8 K Filing](https://www.reddit.com/r/wallstreetbets/comments/xcpv54/bbby_new_8_k_filing/)
-- [yeah that other one was my play money account - this is my real account](https://www.reddit.com/r/wallstreetbets/comments/xcp8d4/yeah_that_other_one_was_my_play_money_account/)
-- [I lost everything today :&lpar;](https://www.reddit.com/r/wallstreetbets/comments/xcp3sb/i_lost_everything_today/)
-- [BBBY Bag holders🚀](https://www.reddit.com/r/wallstreetbets/comments/xcor87/bbby_bag_holders/)
+- [2022](https://www.reddit.com/r/wallstreetbets/comments/xdn0yo/2022/)
+- [Soon to be relevant again.](https://www.reddit.com/r/wallstreetbets/comments/xdm9i9/soon_to_be_relevant_again/)
+- [How today went](https://www.reddit.com/r/wallstreetbets/comments/xdlkd5/how_today_went/)
+- [Turned 1.6K to 57K in 2 hours with SPX 0 Day expiry Puts](https://www.reddit.com/r/wallstreetbets/comments/xdkigc/turned_16k_to_57k_in_2_hours_with_spx_0_day/)
+- [It can always get worse](https://www.reddit.com/r/wallstreetbets/comments/xdk7qf/it_can_always_get_worse/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
