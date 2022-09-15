@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [2022](https://www.reddit.com/r/wallstreetbets/comments/xdn0yo/2022/)
-- [Soon to be relevant again.](https://www.reddit.com/r/wallstreetbets/comments/xdm9i9/soon_to_be_relevant_again/)
-- [How today went](https://www.reddit.com/r/wallstreetbets/comments/xdlkd5/how_today_went/)
-- [Turned 1.6K to 57K in 2 hours with SPX 0 Day expiry Puts](https://www.reddit.com/r/wallstreetbets/comments/xdkigc/turned_16k_to_57k_in_2_hours_with_spx_0_day/)
-- [It can always get worse](https://www.reddit.com/r/wallstreetbets/comments/xdk7qf/it_can_always_get_worse/)
+- [How We’re All Feeling](https://www.reddit.com/r/wallstreetbets/comments/xefnzp/how_were_all_feeling/)
+- [Bait and switch](https://www.reddit.com/r/wallstreetbets/comments/xef3je/bait_and_switch/)
+- [YOLO 🚀](https://www.reddit.com/r/wallstreetbets/comments/xedyeh/yolo/)
+- [These people on Stocktwits Meme boards make Charlie Kelly look like a genius](https://www.reddit.com/r/wallstreetbets/comments/xedtoe/these_people_on_stocktwits_meme_boards_make/)
+- [When you call out a Banbet and accidentally create the Banbet yourself… see you guys in a week](https://www.reddit.com/r/wallstreetbets/comments/xed8fv/when_you_call_out_a_banbet_and_accidentally/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
