@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How We’re All Feeling](https://www.reddit.com/r/wallstreetbets/comments/xefnzp/how_were_all_feeling/)
-- [Bait and switch](https://www.reddit.com/r/wallstreetbets/comments/xef3je/bait_and_switch/)
-- [YOLO 🚀](https://www.reddit.com/r/wallstreetbets/comments/xedyeh/yolo/)
-- [These people on Stocktwits Meme boards make Charlie Kelly look like a genius](https://www.reddit.com/r/wallstreetbets/comments/xedtoe/these_people_on_stocktwits_meme_boards_make/)
-- [When you call out a Banbet and accidentally create the Banbet yourself… see you guys in a week](https://www.reddit.com/r/wallstreetbets/comments/xed8fv/when_you_call_out_a_banbet_and_accidentally/)
+- [$BBBY second half of August FTD data got released. I personally was hoping for higher FTD numbers, but we’ll see if the +35 has any impact still. I averaged down to 9.8. NFA](https://www.reddit.com/r/wallstreetbets/comments/xf98jr/bbby_second_half_of_august_ftd_data_got_released/)
+- [Inverse cramer never fails](https://www.reddit.com/r/wallstreetbets/comments/xf863a/inverse_cramer_never_fails/)
+- [I don&#39;t understonk it but de Capricorn is nice](https://www.reddit.com/r/wallstreetbets/comments/xf82dv/i_dont_understonk_it_but_de_capricorn_is_nice/)
+- [Even after a tough week, remember you CAN always come back. It&#39;s just math.](https://www.reddit.com/r/wallstreetbets/comments/xf7ply/even_after_a_tough_week_remember_you_can_always/)
+- [FedEx investors 2021 vs 2022](https://www.reddit.com/r/wallstreetbets/comments/xf7kgw/fedex_investors_2021_vs_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
