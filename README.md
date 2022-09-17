@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BBBY second half of August FTD data got released. I personally was hoping for higher FTD numbers, but we’ll see if the +35 has any impact still. I averaged down to 9.8. NFA](https://www.reddit.com/r/wallstreetbets/comments/xf98jr/bbby_second_half_of_august_ftd_data_got_released/)
-- [Inverse cramer never fails](https://www.reddit.com/r/wallstreetbets/comments/xf863a/inverse_cramer_never_fails/)
-- [I don&#39;t understonk it but de Capricorn is nice](https://www.reddit.com/r/wallstreetbets/comments/xf82dv/i_dont_understonk_it_but_de_capricorn_is_nice/)
-- [Even after a tough week, remember you CAN always come back. It&#39;s just math.](https://www.reddit.com/r/wallstreetbets/comments/xf7ply/even_after_a_tough_week_remember_you_can_always/)
-- [FedEx investors 2021 vs 2022](https://www.reddit.com/r/wallstreetbets/comments/xf7kgw/fedex_investors_2021_vs_2022/)
+- [🤣🤣](https://www.reddit.com/r/wallstreetbets/comments/xg6rls/_/)
+- [Still cheaper than college.](https://www.reddit.com/r/wallstreetbets/comments/xg53b2/still_cheaper_than_college/)
+- [Who&#39;s next?](https://www.reddit.com/r/wallstreetbets/comments/xg47aj/whos_next/)
+- [papa powell giv3th and papa powell tak3th away](https://www.reddit.com/r/wallstreetbets/comments/xg3ipn/papa_powell_giv3th_and_papa_powell_tak3th_away/)
+- [You can’t make this up](https://www.reddit.com/r/wallstreetbets/comments/xg35u8/you_cant_make_this_up/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
