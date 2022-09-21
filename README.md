@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [went to Wendy&#39;s for nuggets, found this little surprise in my bag](https://www.reddit.com/r/wallstreetbets/comments/xirhiq/went_to_wendys_for_nuggets_found_this_little/)
-- [Tired of eating fake meat. Puts on BYND](https://www.reddit.com/r/wallstreetbets/comments/xirav8/tired_of_eating_fake_meat_puts_on_bynd/)
-- [every technical analysis guy](https://www.reddit.com/r/wallstreetbets/comments/xiqcmm/every_technical_analysis_guy/)
-- [$bynd COO punched through a windshield and bites a man on the face](https://www.reddit.com/r/wallstreetbets/comments/xiorsm/bynd_coo_punched_through_a_windshield_and_bites_a/)
-- [Asking bears how the market closed today](https://www.reddit.com/r/wallstreetbets/comments/xio8cc/asking_bears_how_the_market_closed_today/)
+- [Fuck you and I&#39;ll see you tomorrow!](https://www.reddit.com/r/wallstreetbets/comments/xjnyxu/fuck_you_and_ill_see_you_tomorrow/)
+- [I guess he predicted it📈📉](https://www.reddit.com/r/wallstreetbets/comments/xjnso6/i_guess_he_predicted_it/)
+- [GME ? Gamestop? Its Time?](https://www.reddit.com/r/wallstreetbets/comments/xjmwr1/gme_gamestop_its_time/)
+- [Oh and I also let the COO of BYND borrow an extra 100k.](https://www.reddit.com/r/wallstreetbets/comments/xjmmmi/oh_and_i_also_let_the_coo_of_bynd_borrow_an_extra/)
+- [Hope you all have calls.](https://www.reddit.com/r/wallstreetbets/comments/xjl8wn/hope_you_all_have_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
