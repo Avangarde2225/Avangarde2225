@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fuck you and I&#39;ll see you tomorrow!](https://www.reddit.com/r/wallstreetbets/comments/xjnyxu/fuck_you_and_ill_see_you_tomorrow/)
-- [I guess he predicted it📈📉](https://www.reddit.com/r/wallstreetbets/comments/xjnso6/i_guess_he_predicted_it/)
-- [GME ? Gamestop? Its Time?](https://www.reddit.com/r/wallstreetbets/comments/xjmwr1/gme_gamestop_its_time/)
-- [Oh and I also let the COO of BYND borrow an extra 100k.](https://www.reddit.com/r/wallstreetbets/comments/xjmmmi/oh_and_i_also_let_the_coo_of_bynd_borrow_an_extra/)
-- [Hope you all have calls.](https://www.reddit.com/r/wallstreetbets/comments/xjl8wn/hope_you_all_have_calls/)
+- [Turned 3K into 33K in 30 mins with SPX 0 Day Puts](https://www.reddit.com/r/wallstreetbets/comments/xkgcl3/turned_3k_into_33k_in_30_mins_with_spx_0_day_puts/)
+- [JPOW must be house shopping](https://www.reddit.com/r/wallstreetbets/comments/xkfzk6/jpow_must_be_house_shopping/)
+- [Goodbye World, hopefully next life lottery spin will be worth it ❤️](https://www.reddit.com/r/wallstreetbets/comments/xkfwkg/goodbye_world_hopefully_next_life_lottery_spin/)
+- [rrrB oG retnirP yoneM](https://www.reddit.com/r/wallstreetbets/comments/xkfne5/rrrb_og_retnirp_yonem/)
+- [/u/monkeybeater26, your move](https://www.reddit.com/r/wallstreetbets/comments/xkfibz/umonkeybeater26_your_move/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
