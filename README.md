@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Turned 3K into 33K in 30 mins with SPX 0 Day Puts](https://www.reddit.com/r/wallstreetbets/comments/xkgcl3/turned_3k_into_33k_in_30_mins_with_spx_0_day_puts/)
-- [JPOW must be house shopping](https://www.reddit.com/r/wallstreetbets/comments/xkfzk6/jpow_must_be_house_shopping/)
-- [Goodbye World, hopefully next life lottery spin will be worth it ❤️](https://www.reddit.com/r/wallstreetbets/comments/xkfwkg/goodbye_world_hopefully_next_life_lottery_spin/)
-- [rrrB oG retnirP yoneM](https://www.reddit.com/r/wallstreetbets/comments/xkfne5/rrrb_og_retnirp_yonem/)
-- [/u/monkeybeater26, your move](https://www.reddit.com/r/wallstreetbets/comments/xkfibz/umonkeybeater26_your_move/)
+- [A whopping .03% yield IF you have savings account](https://www.reddit.com/r/wallstreetbets/comments/xlhdc9/a_whopping_03_yield_if_you_have_savings_account/)
+- [Buy dip, goes dip 🤔](https://www.reddit.com/r/wallstreetbets/comments/xlfuf3/buy_dip_goes_dip/)
+- [Well?](https://www.reddit.com/r/wallstreetbets/comments/xlfhku/well/)
+- [This guy won’t get out of my DMs](https://www.reddit.com/r/wallstreetbets/comments/xley3m/this_guy_wont_get_out_of_my_dms/)
+- [Friendly reminder that you were warned if you took the time to read the tea leaves.](https://www.reddit.com/r/wallstreetbets/comments/xldf1r/friendly_reminder_that_you_were_warned_if_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
