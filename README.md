@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A whopping .03% yield IF you have savings account](https://www.reddit.com/r/wallstreetbets/comments/xlhdc9/a_whopping_03_yield_if_you_have_savings_account/)
-- [Buy dip, goes dip 🤔](https://www.reddit.com/r/wallstreetbets/comments/xlfuf3/buy_dip_goes_dip/)
-- [Well?](https://www.reddit.com/r/wallstreetbets/comments/xlfhku/well/)
-- [This guy won’t get out of my DMs](https://www.reddit.com/r/wallstreetbets/comments/xley3m/this_guy_wont_get_out_of_my_dms/)
-- [Friendly reminder that you were warned if you took the time to read the tea leaves.](https://www.reddit.com/r/wallstreetbets/comments/xldf1r/friendly_reminder_that_you_were_warned_if_you/)
+- [Turned 5k to 60k in a week. All Spy puts. Cashed out and left 5k to gamble again.](https://www.reddit.com/r/wallstreetbets/comments/xmc22l/turned_5k_to_60k_in_a_week_all_spy_puts_cashed/)
+- [Economics 101](https://www.reddit.com/r/wallstreetbets/comments/xm9fb7/economics_101/)
+- [This seems fun](https://www.reddit.com/r/wallstreetbets/comments/xm86tg/this_seems_fun/)
+- [Weekend Discussion Thread for the Weekend of September 24, 2022](https://www.reddit.com/r/wallstreetbets/comments/xm7lfq/weekend_discussion_thread_for_the_weekend_of/)
+- [You just need to pick the right stonks](https://www.reddit.com/r/wallstreetbets/comments/xm7b9n/you_just_need_to_pick_the_right_stonks/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
