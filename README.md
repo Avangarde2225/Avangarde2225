@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Turned 5k to 60k in a week. All Spy puts. Cashed out and left 5k to gamble again.](https://www.reddit.com/r/wallstreetbets/comments/xmc22l/turned_5k_to_60k_in_a_week_all_spy_puts_cashed/)
-- [Economics 101](https://www.reddit.com/r/wallstreetbets/comments/xm9fb7/economics_101/)
-- [This seems fun](https://www.reddit.com/r/wallstreetbets/comments/xm86tg/this_seems_fun/)
-- [Weekend Discussion Thread for the Weekend of September 24, 2022](https://www.reddit.com/r/wallstreetbets/comments/xm7lfq/weekend_discussion_thread_for_the_weekend_of/)
-- [You just need to pick the right stonks](https://www.reddit.com/r/wallstreetbets/comments/xm7b9n/you_just_need_to_pick_the_right_stonks/)
+- [JPow surely cares about the people](https://www.reddit.com/r/wallstreetbets/comments/xn7x0b/jpow_surely_cares_about_the_people/)
+- [Me and the bois looking at our calls](https://www.reddit.com/r/wallstreetbets/comments/xn6lac/me_and_the_bois_looking_at_our_calls/)
+- [The Federal Reserve is Now Playing a Dangerous Game to Catch Runaway Inflation...](https://www.reddit.com/r/wallstreetbets/comments/xn4qlv/the_federal_reserve_is_now_playing_a_dangerous/)
+- [You&#39;re experiencing red, I live in it. We are not the same.](https://www.reddit.com/r/wallstreetbets/comments/xn4l9d/youre_experiencing_red_i_live_in_it_we_are_not/)
+- [Apes getting merch](https://www.reddit.com/r/wallstreetbets/comments/xn4f4l/apes_getting_merch/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
