@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [JPow surely cares about the people](https://www.reddit.com/r/wallstreetbets/comments/xn7x0b/jpow_surely_cares_about_the_people/)
-- [Me and the bois looking at our calls](https://www.reddit.com/r/wallstreetbets/comments/xn6lac/me_and_the_bois_looking_at_our_calls/)
-- [The Federal Reserve is Now Playing a Dangerous Game to Catch Runaway Inflation...](https://www.reddit.com/r/wallstreetbets/comments/xn4qlv/the_federal_reserve_is_now_playing_a_dangerous/)
-- [You&#39;re experiencing red, I live in it. We are not the same.](https://www.reddit.com/r/wallstreetbets/comments/xn4l9d/youre_experiencing_red_i_live_in_it_we_are_not/)
-- [Apes getting merch](https://www.reddit.com/r/wallstreetbets/comments/xn4f4l/apes_getting_merch/)
+- [Man, you&#39;re going to tell my old secret, man.](https://www.reddit.com/r/wallstreetbets/comments/xo23as/man_youre_going_to_tell_my_old_secret_man/)
+- [My PTSD input.](https://www.reddit.com/r/wallstreetbets/comments/xo1gy0/my_ptsd_input/)
+- [Great idea](https://www.reddit.com/r/wallstreetbets/comments/xnzuok/great_idea/)
+- [Fuck the new iPhone and fuck this market](https://www.reddit.com/r/wallstreetbets/comments/xnzbc2/fuck_the_new_iphone_and_fuck_this_market/)
+- [Bloomberg’s rejected headline](https://www.reddit.com/r/wallstreetbets/comments/xnz096/bloombergs_rejected_headline/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
