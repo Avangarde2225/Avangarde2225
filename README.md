@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Man, you&#39;re going to tell my old secret, man.](https://www.reddit.com/r/wallstreetbets/comments/xo23as/man_youre_going_to_tell_my_old_secret_man/)
-- [My PTSD input.](https://www.reddit.com/r/wallstreetbets/comments/xo1gy0/my_ptsd_input/)
-- [Great idea](https://www.reddit.com/r/wallstreetbets/comments/xnzuok/great_idea/)
-- [Fuck the new iPhone and fuck this market](https://www.reddit.com/r/wallstreetbets/comments/xnzbc2/fuck_the_new_iphone_and_fuck_this_market/)
-- [Bloomberg’s rejected headline](https://www.reddit.com/r/wallstreetbets/comments/xnz096/bloombergs_rejected_headline/)
+- [rest in fucking peace assholes](https://www.reddit.com/r/wallstreetbets/comments/xoyzie/rest_in_fucking_peace_assholes/)
+- [Best CEO ever!!!11!1](https://www.reddit.com/r/wallstreetbets/comments/xoxpyl/best_ceo_ever111/)
+- [Market still on a normal trendline. Just bled off some of the pandemic fluff.](https://www.reddit.com/r/wallstreetbets/comments/xoxo02/market_still_on_a_normal_trendline_just_bled_off/)
+- [AMC to 100, lol](https://www.reddit.com/r/wallstreetbets/comments/xowun3/amc_to_100_lol/)
+- [New 🍿graph as of today 😂](https://www.reddit.com/r/wallstreetbets/comments/xouyxq/new_graph_as_of_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
