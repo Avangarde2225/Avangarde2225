@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [rest in fucking peace assholes](https://www.reddit.com/r/wallstreetbets/comments/xoyzie/rest_in_fucking_peace_assholes/)
-- [Best CEO ever!!!11!1](https://www.reddit.com/r/wallstreetbets/comments/xoxpyl/best_ceo_ever111/)
-- [Market still on a normal trendline. Just bled off some of the pandemic fluff.](https://www.reddit.com/r/wallstreetbets/comments/xoxo02/market_still_on_a_normal_trendline_just_bled_off/)
-- [AMC to 100, lol](https://www.reddit.com/r/wallstreetbets/comments/xowun3/amc_to_100_lol/)
-- [New 🍿graph as of today 😂](https://www.reddit.com/r/wallstreetbets/comments/xouyxq/new_graph_as_of_today/)
+- [Couple hours after losing big on options🤷🏻‍♂️](https://www.reddit.com/r/wallstreetbets/comments/xpwdh2/couple_hours_after_losing_big_on_options/)
+- [Who got caught?](https://www.reddit.com/r/wallstreetbets/comments/xpuq6m/who_got_caught/)
+- [Never saw green when investing so I started gambling, I feel right at home](https://www.reddit.com/r/wallstreetbets/comments/xptit3/never_saw_green_when_investing_so_i_started/)
+- [GME gains](https://www.reddit.com/r/wallstreetbets/comments/xpsoe6/gme_gains/)
+- [For the newbies, JPOW at one point was our HERO. Here is his story. Some would say the greatest era of trading ever.](https://www.reddit.com/r/wallstreetbets/comments/xprejg/for_the_newbies_jpow_at_one_point_was_our_hero/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
