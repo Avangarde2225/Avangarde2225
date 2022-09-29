@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Couple hours after losing big on options🤷🏻‍♂️](https://www.reddit.com/r/wallstreetbets/comments/xpwdh2/couple_hours_after_losing_big_on_options/)
-- [Who got caught?](https://www.reddit.com/r/wallstreetbets/comments/xpuq6m/who_got_caught/)
-- [Never saw green when investing so I started gambling, I feel right at home](https://www.reddit.com/r/wallstreetbets/comments/xptit3/never_saw_green_when_investing_so_i_started/)
-- [GME gains](https://www.reddit.com/r/wallstreetbets/comments/xpsoe6/gme_gains/)
-- [For the newbies, JPOW at one point was our HERO. Here is his story. Some would say the greatest era of trading ever.](https://www.reddit.com/r/wallstreetbets/comments/xprejg/for_the_newbies_jpow_at_one_point_was_our_hero/)
+- [Tomorrow is September 29th . Anniversary of 2008 market crash .](https://www.reddit.com/r/wallstreetbets/comments/xqss4k/tomorrow_is_september_29th_anniversary_of_2008/)
+- [Well…](https://www.reddit.com/r/wallstreetbets/comments/xqsg24/well/)
+- [I like the stock.](https://www.reddit.com/r/wallstreetbets/comments/xqrx9z/i_like_the_stock/)
+- [30 Year Mortgage Rate is going to 18%](https://www.reddit.com/r/wallstreetbets/comments/xqqkby/30_year_mortgage_rate_is_going_to_18/)
+- [Take a breather](https://www.reddit.com/r/wallstreetbets/comments/xqpm35/take_a_breather/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
