@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tomorrow is September 29th . Anniversary of 2008 market crash .](https://www.reddit.com/r/wallstreetbets/comments/xqss4k/tomorrow_is_september_29th_anniversary_of_2008/)
-- [Well…](https://www.reddit.com/r/wallstreetbets/comments/xqsg24/well/)
-- [I like the stock.](https://www.reddit.com/r/wallstreetbets/comments/xqrx9z/i_like_the_stock/)
-- [30 Year Mortgage Rate is going to 18%](https://www.reddit.com/r/wallstreetbets/comments/xqqkby/30_year_mortgage_rate_is_going_to_18/)
-- [Take a breather](https://www.reddit.com/r/wallstreetbets/comments/xqpm35/take_a_breather/)
+- [I REALLY F******’D Up boys. My dad passed away and left me $100,000 to have. I decided to trade it this week on the way down. I hammered puts on Wednesday and swung them. Work up the the Bank of England bailing the market out and the S&amp;P50 rose 2% that day. I realized the Losses and now have shit](https://www.reddit.com/r/wallstreetbets/comments/xrlpte/i_really_fd_up_boys_my_dad_passed_away_and_left/)
+- [Even this &quot;Regard&quot; is trying to Yolo and diamond hand turning down a billion, he is definitely one of us!](https://www.reddit.com/r/wallstreetbets/comments/xrkxla/even_this_regard_is_trying_to_yolo_and_diamond/)
+- [No bottom in sight](https://www.reddit.com/r/wallstreetbets/comments/xrkhjd/no_bottom_in_sight/)
+- [My life savings...](https://www.reddit.com/r/wallstreetbets/comments/xri04m/my_life_savings/)
+- [Dildo of Consequences rarely arrives lubed~ some user](https://www.reddit.com/r/wallstreetbets/comments/xrhmdz/dildo_of_consequences_rarely_arrives_lubed_some/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
