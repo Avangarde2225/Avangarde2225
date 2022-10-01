@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I REALLY F******’D Up boys. My dad passed away and left me $100,000 to have. I decided to trade it this week on the way down. I hammered puts on Wednesday and swung them. Work up the the Bank of England bailing the market out and the S&amp;P50 rose 2% that day. I realized the Losses and now have shit](https://www.reddit.com/r/wallstreetbets/comments/xrlpte/i_really_fd_up_boys_my_dad_passed_away_and_left/)
-- [Even this &quot;Regard&quot; is trying to Yolo and diamond hand turning down a billion, he is definitely one of us!](https://www.reddit.com/r/wallstreetbets/comments/xrkxla/even_this_regard_is_trying_to_yolo_and_diamond/)
-- [No bottom in sight](https://www.reddit.com/r/wallstreetbets/comments/xrkhjd/no_bottom_in_sight/)
-- [My life savings...](https://www.reddit.com/r/wallstreetbets/comments/xri04m/my_life_savings/)
-- [Dildo of Consequences rarely arrives lubed~ some user](https://www.reddit.com/r/wallstreetbets/comments/xrhmdz/dildo_of_consequences_rarely_arrives_lubed_some/)
+- [Whats your move](https://www.reddit.com/r/wallstreetbets/comments/xsgqmo/whats_your_move/)
+- [Made some money last year trading but lost it all this year. Will I break even next tax period ?](https://www.reddit.com/r/wallstreetbets/comments/xsff1u/made_some_money_last_year_trading_but_lost_it_all/)
+- [D0gE tWo ThE mOoN!](https://www.reddit.com/r/wallstreetbets/comments/xsf8qt/d0ge_two_the_moon/)
+- [Happy Oktober from Germany. I will be drinking hot water instead of tea as my engery bill has gone tits up.](https://www.reddit.com/r/wallstreetbets/comments/xsf0m2/happy_oktober_from_germany_i_will_be_drinking_hot/)
+- [Anyone else notice this at Costco?](https://www.reddit.com/r/wallstreetbets/comments/xsep3d/anyone_else_notice_this_at_costco/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
