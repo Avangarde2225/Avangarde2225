@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Whats your move](https://www.reddit.com/r/wallstreetbets/comments/xsgqmo/whats_your_move/)
-- [Made some money last year trading but lost it all this year. Will I break even next tax period ?](https://www.reddit.com/r/wallstreetbets/comments/xsff1u/made_some_money_last_year_trading_but_lost_it_all/)
-- [D0gE tWo ThE mOoN!](https://www.reddit.com/r/wallstreetbets/comments/xsf8qt/d0ge_two_the_moon/)
-- [Happy Oktober from Germany. I will be drinking hot water instead of tea as my engery bill has gone tits up.](https://www.reddit.com/r/wallstreetbets/comments/xsf0m2/happy_oktober_from_germany_i_will_be_drinking_hot/)
-- [Anyone else notice this at Costco?](https://www.reddit.com/r/wallstreetbets/comments/xsep3d/anyone_else_notice_this_at_costco/)
+- [I don’t get it](https://www.reddit.com/r/wallstreetbets/comments/xt9o0r/i_dont_get_it/)
+- [This weekend in a nutshell](https://www.reddit.com/r/wallstreetbets/comments/xt8nuj/this_weekend_in_a_nutshell/)
+- [🗿](https://www.reddit.com/r/wallstreetbets/comments/xt8ko3/_/)
+- [Does this guy trade or does he just pose for photos?](https://www.reddit.com/r/wallstreetbets/comments/xt7gc2/does_this_guy_trade_or_does_he_just_pose_for/)
+- [We&#39;ll Get Back to Stalling This Bill Further... Immediately After Our Six Week Vacation](https://www.reddit.com/r/wallstreetbets/comments/xt67i0/well_get_back_to_stalling_this_bill_further/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
