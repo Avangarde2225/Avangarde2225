@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I don’t get it](https://www.reddit.com/r/wallstreetbets/comments/xt9o0r/i_dont_get_it/)
-- [This weekend in a nutshell](https://www.reddit.com/r/wallstreetbets/comments/xt8nuj/this_weekend_in_a_nutshell/)
-- [🗿](https://www.reddit.com/r/wallstreetbets/comments/xt8ko3/_/)
-- [Does this guy trade or does he just pose for photos?](https://www.reddit.com/r/wallstreetbets/comments/xt7gc2/does_this_guy_trade_or_does_he_just_pose_for/)
-- [We&#39;ll Get Back to Stalling This Bill Further... Immediately After Our Six Week Vacation](https://www.reddit.com/r/wallstreetbets/comments/xt67i0/well_get_back_to_stalling_this_bill_further/)
+- [Vladimir PUTin](https://www.reddit.com/r/wallstreetbets/comments/xu2i8w/vladimir_putin/)
+- [Coming for TSLA](https://www.reddit.com/r/wallstreetbets/comments/xu19wy/coming_for_tsla/)
+- [Hwang in there Credit Suisse!](https://www.reddit.com/r/wallstreetbets/comments/xtzwt8/hwang_in_there_credit_suisse/)
+- [Credit Suisse is Fucked](https://www.reddit.com/r/wallstreetbets/comments/xtymyy/credit_suisse_is_fucked/)
+- [What Are Your Moves Tomorrow, October 03, 2022](https://www.reddit.com/r/wallstreetbets/comments/xty8oq/what_are_your_moves_tomorrow_october_03_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
