@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Vladimir PUTin](https://www.reddit.com/r/wallstreetbets/comments/xu2i8w/vladimir_putin/)
-- [Coming for TSLA](https://www.reddit.com/r/wallstreetbets/comments/xu19wy/coming_for_tsla/)
-- [Hwang in there Credit Suisse!](https://www.reddit.com/r/wallstreetbets/comments/xtzwt8/hwang_in_there_credit_suisse/)
-- [Credit Suisse is Fucked](https://www.reddit.com/r/wallstreetbets/comments/xtymyy/credit_suisse_is_fucked/)
-- [What Are Your Moves Tomorrow, October 03, 2022](https://www.reddit.com/r/wallstreetbets/comments/xty8oq/what_are_your_moves_tomorrow_october_03_2022/)
+- [Logic checks out](https://www.reddit.com/r/wallstreetbets/comments/xuycw8/logic_checks_out/)
+- [Modern monetary theory and Monopoly money](https://www.reddit.com/r/wallstreetbets/comments/xuxx0z/modern_monetary_theory_and_monopoly_money/)
+- [Powell talking to the UN](https://www.reddit.com/r/wallstreetbets/comments/xuxgbp/powell_talking_to_the_un/)
+- [$35k Profit on Tesla Puts / Shorts YTD](https://www.reddit.com/r/wallstreetbets/comments/xux6q4/35k_profit_on_tesla_puts_shorts_ytd/)
+- [Time To Take Some Extra Shifts At Wendys](https://www.reddit.com/r/wallstreetbets/comments/xux0hv/time_to_take_some_extra_shifts_at_wendys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
