@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Gentlemen, it has been a privilege and an honor gambling with you.](https://www.reddit.com/r/wallstreetbets/comments/xvvds2/gentlemen_it_has_been_a_privilege_and_an_honor/)
-- [Meet the new twitter team](https://www.reddit.com/r/wallstreetbets/comments/xvv8ey/meet_the_new_twitter_team/)
-- [Tesla Robot Finally Unveiled](https://www.reddit.com/r/wallstreetbets/comments/xvucr6/tesla_robot_finally_unveiled/)
-- [I can’t wait to finally meet the mastermind behind my alcoholism](https://www.reddit.com/r/wallstreetbets/comments/xvshst/i_cant_wait_to_finally_meet_the_mastermind_behind/)
-- [Me asf 🤣🤣🥲](https://www.reddit.com/r/wallstreetbets/comments/xvrmb9/me_asf/)
+- [TWTR deal just fully financed and finalized](https://www.reddit.com/r/wallstreetbets/comments/xwpgdo/twtr_deal_just_fully_financed_and_finalized/)
+- [First gain porn: Bye bye corporate life :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/xwp0gq/first_gain_porn_bye_bye_corporate_life/)
+- [We finally have our inverse Cramer ETF! The ticker will be SJIM once approved.](https://www.reddit.com/r/wallstreetbets/comments/xwns4h/we_finally_have_our_inverse_cramer_etf_the_ticker/)
+- [Hmmm wonder if this follows suit](https://www.reddit.com/r/wallstreetbets/comments/xwmr0r/hmmm_wonder_if_this_follows_suit/)
+- [Current status of housing market](https://www.reddit.com/r/wallstreetbets/comments/xwmmod/current_status_of_housing_market/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
