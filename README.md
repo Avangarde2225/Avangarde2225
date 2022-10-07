@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TWTR deal just fully financed and finalized](https://www.reddit.com/r/wallstreetbets/comments/xwpgdo/twtr_deal_just_fully_financed_and_finalized/)
-- [First gain porn: Bye bye corporate life :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/xwp0gq/first_gain_porn_bye_bye_corporate_life/)
-- [We finally have our inverse Cramer ETF! The ticker will be SJIM once approved.](https://www.reddit.com/r/wallstreetbets/comments/xwns4h/we_finally_have_our_inverse_cramer_etf_the_ticker/)
-- [Hmmm wonder if this follows suit](https://www.reddit.com/r/wallstreetbets/comments/xwmr0r/hmmm_wonder_if_this_follows_suit/)
-- [Current status of housing market](https://www.reddit.com/r/wallstreetbets/comments/xwmmod/current_status_of_housing_market/)
+- [How do I buy Puts on productivity?](https://www.reddit.com/r/wallstreetbets/comments/xxkbba/how_do_i_buy_puts_on_productivity/)
+- [My fellow BBBY holders over the last 3 months](https://www.reddit.com/r/wallstreetbets/comments/xxkaa3/my_fellow_bbby_holders_over_the_last_3_months/)
+- [Joe your buddy Jim said you forgot something](https://www.reddit.com/r/wallstreetbets/comments/xxjrqe/joe_your_buddy_jim_said_you_forgot_something/)
+- [Where are you bag holders at?](https://www.reddit.com/r/wallstreetbets/comments/xxivag/where_are_you_bag_holders_at/)
+- [Look what you idiots did.](https://www.reddit.com/r/wallstreetbets/comments/xxisom/look_what_you_idiots_did/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
