@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [my life be like](https://www.reddit.com/r/wallstreetbets/comments/xyas13/my_life_be_like/)
-- [It’s ok bulls](https://www.reddit.com/r/wallstreetbets/comments/xyaqw8/its_ok_bulls/)
-- [wtf is going up in canada?](https://www.reddit.com/r/wallstreetbets/comments/xya5pk/wtf_is_going_up_in_canada/)
-- [Yes. I think it is funny and I’m tired of pretending that it’s not.](https://www.reddit.com/r/wallstreetbets/comments/xy9525/yes_i_think_it_is_funny_and_im_tired_of/)
-- [That&#39;s describes every government right now.](https://www.reddit.com/r/wallstreetbets/comments/xy8ueq/thats_describes_every_government_right_now/)
+- [My life has changed in 2 weeks](https://www.reddit.com/r/wallstreetbets/comments/xz6e15/my_life_has_changed_in_2_weeks/)
+- [LMAO](https://www.reddit.com/r/wallstreetbets/comments/xz49up/lmao/)
+- [Hopefully my wife’s boyfriend will let me sleep in the middle tonight.](https://www.reddit.com/r/wallstreetbets/comments/xz3yxx/hopefully_my_wifes_boyfriend_will_let_me_sleep_in/)
+- [At least someone sold the top on $ZM](https://www.reddit.com/r/wallstreetbets/comments/xz3j36/at_least_someone_sold_the_top_on_zm/)
+- [Oh god.](https://www.reddit.com/r/wallstreetbets/comments/xz15hs/oh_god/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
