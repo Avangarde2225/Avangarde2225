@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My life has changed in 2 weeks](https://www.reddit.com/r/wallstreetbets/comments/xz6e15/my_life_has_changed_in_2_weeks/)
-- [LMAO](https://www.reddit.com/r/wallstreetbets/comments/xz49up/lmao/)
-- [Hopefully my wife’s boyfriend will let me sleep in the middle tonight.](https://www.reddit.com/r/wallstreetbets/comments/xz3yxx/hopefully_my_wifes_boyfriend_will_let_me_sleep_in/)
-- [At least someone sold the top on $ZM](https://www.reddit.com/r/wallstreetbets/comments/xz3j36/at_least_someone_sold_the_top_on_zm/)
-- [Oh god.](https://www.reddit.com/r/wallstreetbets/comments/xz15hs/oh_god/)
+- [Tell me the Giants trainer is on WSB without telling me they&#39;re on WSB.](https://www.reddit.com/r/wallstreetbets/comments/xzznqq/tell_me_the_giants_trainer_is_on_wsb_without/)
+- [#Grindset WSB, I worked hard at my Wendy&#39;s job and recently got offered my dream job! #blessed](https://www.reddit.com/r/wallstreetbets/comments/xzz3cg/grindset_wsb_i_worked_hard_at_my_wendys_job_and/)
+- [Felt cute, might short PayPal later idk](https://www.reddit.com/r/wallstreetbets/comments/xzz0zs/felt_cute_might_short_paypal_later_idk/)
+- [Crash confirmed… nice knowing ya’ll.](https://www.reddit.com/r/wallstreetbets/comments/xzxf5h/crash_confirmed_nice_knowing_yall/)
+- [I guess?](https://www.reddit.com/r/wallstreetbets/comments/xzx6as/i_guess/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
