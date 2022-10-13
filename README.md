@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dad is back](https://www.reddit.com/r/wallstreetbets/comments/y1nfwr/dad_is_back/)
-- [My Regards: This time is different](https://www.reddit.com/r/wallstreetbets/comments/y1n1ip/my_regards_this_time_is_different/)
-- [Financial Problems](https://www.reddit.com/r/wallstreetbets/comments/y1mjel/financial_problems/)
-- [&quot;PeyPal retains customer base by hiring sex workers as customer service representatives.&quot; - Insider at Forbez](https://www.reddit.com/r/wallstreetbets/comments/y1mi4a/peypal_retains_customer_base_by_hiring_sex/)
-- [This can&#39;t be good](https://www.reddit.com/r/wallstreetbets/comments/y1maow/this_cant_be_good/)
+- [JP Morgan Chase cancelled Kanye and told him to take his money elsewhere](https://www.reddit.com/r/wallstreetbets/comments/y2jtu1/jp_morgan_chase_cancelled_kanye_and_told_him_to/)
+- [Just FYI in case your not rich yet](https://www.reddit.com/r/wallstreetbets/comments/y2j1xu/just_fyi_in_case_your_not_rich_yet/)
+- [The market has only seen two days in the green following a CPI report. Godspeed everyone.](https://www.reddit.com/r/wallstreetbets/comments/y2id9z/the_market_has_only_seen_two_days_in_the_green/)
+- [For your consideration : MMTLP - +52% Today, in the last 5 days .. +329% since Oct. 4](https://www.reddit.com/r/wallstreetbets/comments/y2hl1l/for_your_consideration_mmtlp_52_today_in_the_last/)
+- [NO STFU YOU DEVIL](https://www.reddit.com/r/wallstreetbets/comments/y2hcck/no_stfu_you_devil/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
