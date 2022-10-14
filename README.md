@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [JP Morgan Chase cancelled Kanye and told him to take his money elsewhere](https://www.reddit.com/r/wallstreetbets/comments/y2jtu1/jp_morgan_chase_cancelled_kanye_and_told_him_to/)
-- [Just FYI in case your not rich yet](https://www.reddit.com/r/wallstreetbets/comments/y2j1xu/just_fyi_in_case_your_not_rich_yet/)
-- [The market has only seen two days in the green following a CPI report. Godspeed everyone.](https://www.reddit.com/r/wallstreetbets/comments/y2id9z/the_market_has_only_seen_two_days_in_the_green/)
-- [For your consideration : MMTLP - +52% Today, in the last 5 days .. +329% since Oct. 4](https://www.reddit.com/r/wallstreetbets/comments/y2hl1l/for_your_consideration_mmtlp_52_today_in_the_last/)
-- [NO STFU YOU DEVIL](https://www.reddit.com/r/wallstreetbets/comments/y2hcck/no_stfu_you_devil/)
+- [tesla risky gains](https://www.reddit.com/r/wallstreetbets/comments/y3bftq/tesla_risky_gains/)
+- [Bought the open cpi fake news](https://www.reddit.com/r/wallstreetbets/comments/y39te1/bought_the_open_cpi_fake_news/)
+- [BUY HARDER](https://www.reddit.com/r/wallstreetbets/comments/y39k7n/buy_harder/)
+- [A Real Regard only preoccupied with his midterm](https://www.reddit.com/r/wallstreetbets/comments/y397io/a_real_regard_only_preoccupied_with_his_midterm/)
+- [What Are Your Moves Tomorrow, October 14, 2022](https://www.reddit.com/r/wallstreetbets/comments/y38di8/what_are_your_moves_tomorrow_october_14_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
