@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [tesla risky gains](https://www.reddit.com/r/wallstreetbets/comments/y3bftq/tesla_risky_gains/)
-- [Bought the open cpi fake news](https://www.reddit.com/r/wallstreetbets/comments/y39te1/bought_the_open_cpi_fake_news/)
-- [BUY HARDER](https://www.reddit.com/r/wallstreetbets/comments/y39k7n/buy_harder/)
-- [A Real Regard only preoccupied with his midterm](https://www.reddit.com/r/wallstreetbets/comments/y397io/a_real_regard_only_preoccupied_with_his_midterm/)
-- [What Are Your Moves Tomorrow, October 14, 2022](https://www.reddit.com/r/wallstreetbets/comments/y38di8/what_are_your_moves_tomorrow_october_14_2022/)
+- [10/17/22 will forever be known as Black Monday](https://www.reddit.com/r/wallstreetbets/comments/y484au/101722_will_forever_be_known_as_black_monday/)
+- [Only .01% of us can speak of this](https://www.reddit.com/r/wallstreetbets/comments/y4613r/only_01_of_us_can_speak_of_this/)
+- [RIP 💔](https://www.reddit.com/r/wallstreetbets/comments/y4594k/rip/)
+- [Why would the FED do this us?](https://www.reddit.com/r/wallstreetbets/comments/y456it/why_would_the_fed_do_this_us/)
+- [This truck is gonna roll downhill real fast. Puts on Nikola](https://www.reddit.com/r/wallstreetbets/comments/y44vs7/this_truck_is_gonna_roll_downhill_real_fast_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
