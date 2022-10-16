@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [10/17/22 will forever be known as Black Monday](https://www.reddit.com/r/wallstreetbets/comments/y484au/101722_will_forever_be_known_as_black_monday/)
-- [Only .01% of us can speak of this](https://www.reddit.com/r/wallstreetbets/comments/y4613r/only_01_of_us_can_speak_of_this/)
-- [RIP 💔](https://www.reddit.com/r/wallstreetbets/comments/y4594k/rip/)
-- [Why would the FED do this us?](https://www.reddit.com/r/wallstreetbets/comments/y456it/why_would_the_fed_do_this_us/)
-- [This truck is gonna roll downhill real fast. Puts on Nikola](https://www.reddit.com/r/wallstreetbets/comments/y44vs7/this_truck_is_gonna_roll_downhill_real_fast_puts/)
+- [“There is no Real Estate bubble”](https://www.reddit.com/r/wallstreetbets/comments/y51rqx/there_is_no_real_estate_bubble/)
+- [When is Elon gonna make an account here? Believe it or not, he has probably the biggest loss porn in a single trade in history](https://www.reddit.com/r/wallstreetbets/comments/y50mmy/when_is_elon_gonna_make_an_account_here_believe/)
+- [How do I tell my wife’s boyfriend](https://www.reddit.com/r/wallstreetbets/comments/y4zi2e/how_do_i_tell_my_wifes_boyfriend/)
+- [Regard goes from 2k to 68k in 2 weeks](https://www.reddit.com/r/wallstreetbets/comments/y4z2wb/regard_goes_from_2k_to_68k_in_2_weeks/)
+- [One of the worst time for Student Loan Forgiveness](https://www.reddit.com/r/wallstreetbets/comments/y4y00g/one_of_the_worst_time_for_student_loan_forgiveness/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
