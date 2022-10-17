@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [“There is no Real Estate bubble”](https://www.reddit.com/r/wallstreetbets/comments/y51rqx/there_is_no_real_estate_bubble/)
-- [When is Elon gonna make an account here? Believe it or not, he has probably the biggest loss porn in a single trade in history](https://www.reddit.com/r/wallstreetbets/comments/y50mmy/when_is_elon_gonna_make_an_account_here_believe/)
-- [How do I tell my wife’s boyfriend](https://www.reddit.com/r/wallstreetbets/comments/y4zi2e/how_do_i_tell_my_wifes_boyfriend/)
-- [Regard goes from 2k to 68k in 2 weeks](https://www.reddit.com/r/wallstreetbets/comments/y4z2wb/regard_goes_from_2k_to_68k_in_2_weeks/)
-- [One of the worst time for Student Loan Forgiveness](https://www.reddit.com/r/wallstreetbets/comments/y4y00g/one_of_the_worst_time_for_student_loan_forgiveness/)
+- [IT’S ABOUT TO GO DOWN!](https://www.reddit.com/r/wallstreetbets/comments/y5vic7/its_about_to_go_down/)
+- [More goofy ahh yachts in the downtown NYC marina 💀](https://www.reddit.com/r/wallstreetbets/comments/y5ug71/more_goofy_ahh_yachts_in_the_downtown_nyc_marina/)
+- [The name of the game](https://www.reddit.com/r/wallstreetbets/comments/y5sjhw/the_name_of_the_game/)
+- [The end is near.](https://www.reddit.com/r/wallstreetbets/comments/y5rre3/the_end_is_near/)
+- [Dumb money has bought historic amount of puts 🤔](https://www.reddit.com/r/wallstreetbets/comments/y5rlts/dumb_money_has_bought_historic_amount_of_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
