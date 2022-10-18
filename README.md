@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [IT’S ABOUT TO GO DOWN!](https://www.reddit.com/r/wallstreetbets/comments/y5vic7/its_about_to_go_down/)
-- [More goofy ahh yachts in the downtown NYC marina 💀](https://www.reddit.com/r/wallstreetbets/comments/y5ug71/more_goofy_ahh_yachts_in_the_downtown_nyc_marina/)
-- [The name of the game](https://www.reddit.com/r/wallstreetbets/comments/y5sjhw/the_name_of_the_game/)
-- [The end is near.](https://www.reddit.com/r/wallstreetbets/comments/y5rre3/the_end_is_near/)
-- [Dumb money has bought historic amount of puts 🤔](https://www.reddit.com/r/wallstreetbets/comments/y5rlts/dumb_money_has_bought_historic_amount_of_puts/)
+- [How many monitors do you guys have ?🤣](https://www.reddit.com/r/wallstreetbets/comments/y6qq59/how_many_monitors_do_you_guys_have/)
+- [I blame this sub entirely](https://www.reddit.com/r/wallstreetbets/comments/y6qcsl/i_blame_this_sub_entirely/)
+- [BABA Put Holders Cheering Today&#39;s News](https://www.reddit.com/r/wallstreetbets/comments/y6os3u/baba_put_holders_cheering_todays_news/)
+- [GameStonk 🚀](https://www.reddit.com/r/wallstreetbets/comments/y6lfdr/gamestonk/)
+- [Video recreation of trading day: 10/17/2022](https://www.reddit.com/r/wallstreetbets/comments/y6lewt/video_recreation_of_trading_day_10172022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
