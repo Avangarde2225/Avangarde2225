@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How many monitors do you guys have ?🤣](https://www.reddit.com/r/wallstreetbets/comments/y6qq59/how_many_monitors_do_you_guys_have/)
-- [I blame this sub entirely](https://www.reddit.com/r/wallstreetbets/comments/y6qcsl/i_blame_this_sub_entirely/)
-- [BABA Put Holders Cheering Today&#39;s News](https://www.reddit.com/r/wallstreetbets/comments/y6os3u/baba_put_holders_cheering_todays_news/)
-- [GameStonk 🚀](https://www.reddit.com/r/wallstreetbets/comments/y6lfdr/gamestonk/)
-- [Video recreation of trading day: 10/17/2022](https://www.reddit.com/r/wallstreetbets/comments/y6lewt/video_recreation_of_trading_day_10172022/)
+- [We&#39;re so back](https://www.reddit.com/r/wallstreetbets/comments/y7ki6w/were_so_back/)
+- [Can’t touch this JPow](https://www.reddit.com/r/wallstreetbets/comments/y7jtuk/cant_touch_this_jpow/)
+- [Only the Fed matters](https://www.reddit.com/r/wallstreetbets/comments/y7j2tj/only_the_fed_matters/)
+- [Make the printer go Brrrrr again!](https://www.reddit.com/r/wallstreetbets/comments/y7ix8q/make_the_printer_go_brrrrr_again/)
+- [just started investing a few days ago.](https://www.reddit.com/r/wallstreetbets/comments/y7ig97/just_started_investing_a_few_days_ago/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
