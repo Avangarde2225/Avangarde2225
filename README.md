@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We&#39;re so back](https://www.reddit.com/r/wallstreetbets/comments/y7ki6w/were_so_back/)
-- [Can’t touch this JPow](https://www.reddit.com/r/wallstreetbets/comments/y7jtuk/cant_touch_this_jpow/)
-- [Only the Fed matters](https://www.reddit.com/r/wallstreetbets/comments/y7j2tj/only_the_fed_matters/)
-- [Make the printer go Brrrrr again!](https://www.reddit.com/r/wallstreetbets/comments/y7ix8q/make_the_printer_go_brrrrr_again/)
-- [just started investing a few days ago.](https://www.reddit.com/r/wallstreetbets/comments/y7ig97/just_started_investing_a_few_days_ago/)
+- [My 1987 Crash Experience](https://www.reddit.com/r/wallstreetbets/comments/y8ia9y/my_1987_crash_experience/)
+- [When you pretend too have read all the DD but can&#39;t actually read](https://www.reddit.com/r/wallstreetbets/comments/y8gwrm/when_you_pretend_too_have_read_all_the_dd_but/)
+- [When my wife asks me if I lost money trading this year](https://www.reddit.com/r/wallstreetbets/comments/y8glrp/when_my_wife_asks_me_if_i_lost_money_trading_this/)
+- [First time home buyers are fuckked](https://www.reddit.com/r/wallstreetbets/comments/y8ggaw/first_time_home_buyers_are_fuckked/)
+- [I think this fortune cookie really understands me...](https://www.reddit.com/r/wallstreetbets/comments/y8g777/i_think_this_fortune_cookie_really_understands_me/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
