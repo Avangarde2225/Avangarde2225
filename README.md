@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My 1987 Crash Experience](https://www.reddit.com/r/wallstreetbets/comments/y8ia9y/my_1987_crash_experience/)
-- [When you pretend too have read all the DD but can&#39;t actually read](https://www.reddit.com/r/wallstreetbets/comments/y8gwrm/when_you_pretend_too_have_read_all_the_dd_but/)
-- [When my wife asks me if I lost money trading this year](https://www.reddit.com/r/wallstreetbets/comments/y8glrp/when_my_wife_asks_me_if_i_lost_money_trading_this/)
-- [First time home buyers are fuckked](https://www.reddit.com/r/wallstreetbets/comments/y8ggaw/first_time_home_buyers_are_fuckked/)
-- [I think this fortune cookie really understands me...](https://www.reddit.com/r/wallstreetbets/comments/y8g777/i_think_this_fortune_cookie_really_understands_me/)
+- [Elon&#39;s first move as owner of twitter](https://www.reddit.com/r/wallstreetbets/comments/y9cvxi/elons_first_move_as_owner_of_twitter/)
+- [Excellent!](https://www.reddit.com/r/wallstreetbets/comments/y9bu64/excellent/)
+- [Snapchat be like](https://www.reddit.com/r/wallstreetbets/comments/y990mi/snapchat_be_like/)
+- [SNAP tanking minutes before earnings report](https://www.reddit.com/r/wallstreetbets/comments/y98omz/snap_tanking_minutes_before_earnings_report/)
+- [Wall Street admits they have gone full regard.](https://www.reddit.com/r/wallstreetbets/comments/y98jnf/wall_street_admits_they_have_gone_full_regard/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
