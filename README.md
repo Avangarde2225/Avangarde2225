@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Elon&#39;s first move as owner of twitter](https://www.reddit.com/r/wallstreetbets/comments/y9cvxi/elons_first_move_as_owner_of_twitter/)
-- [Excellent!](https://www.reddit.com/r/wallstreetbets/comments/y9bu64/excellent/)
-- [Snapchat be like](https://www.reddit.com/r/wallstreetbets/comments/y990mi/snapchat_be_like/)
-- [SNAP tanking minutes before earnings report](https://www.reddit.com/r/wallstreetbets/comments/y98omz/snap_tanking_minutes_before_earnings_report/)
-- [Wall Street admits they have gone full regard.](https://www.reddit.com/r/wallstreetbets/comments/y98jnf/wall_street_admits_they_have_gone_full_regard/)
+- [We are going to zero](https://www.reddit.com/r/wallstreetbets/comments/ya96ku/we_are_going_to_zero/)
+- [My Puts are saved!!](https://www.reddit.com/r/wallstreetbets/comments/ya6bdy/my_puts_are_saved/)
+- [This aged like fine milk](https://www.reddit.com/r/wallstreetbets/comments/ya58xj/this_aged_like_fine_milk/)
+- [2021 gains all gone lol. Whoops.](https://www.reddit.com/r/wallstreetbets/comments/ya3yha/2021_gains_all_gone_lol_whoops/)
+- [Thanks AMD](https://www.reddit.com/r/wallstreetbets/comments/ya3j2r/thanks_amd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
