@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We are going to zero](https://www.reddit.com/r/wallstreetbets/comments/ya96ku/we_are_going_to_zero/)
-- [My Puts are saved!!](https://www.reddit.com/r/wallstreetbets/comments/ya6bdy/my_puts_are_saved/)
-- [This aged like fine milk](https://www.reddit.com/r/wallstreetbets/comments/ya58xj/this_aged_like_fine_milk/)
-- [2021 gains all gone lol. Whoops.](https://www.reddit.com/r/wallstreetbets/comments/ya3yha/2021_gains_all_gone_lol_whoops/)
-- [Thanks AMD](https://www.reddit.com/r/wallstreetbets/comments/ya3j2r/thanks_amd/)
+- [Life story of a financial advisor](https://www.reddit.com/r/wallstreetbets/comments/yb1tyx/life_story_of_a_financial_advisor/)
+- [Papa Jerome Powell save some for the rest of us too, bro 👴🏻](https://www.reddit.com/r/wallstreetbets/comments/yaylvv/papa_jerome_powell_save_some_for_the_rest_of_us/)
+- [Looks like it didn&#39;t work out.](https://www.reddit.com/r/wallstreetbets/comments/yaxkfr/looks_like_it_didnt_work_out/)
+- [Anyway I can get back my 200k ?](https://www.reddit.com/r/wallstreetbets/comments/yawsz0/anyway_i_can_get_back_my_200k/)
+- [Twitter board of directors meeting after Elon buys it](https://www.reddit.com/r/wallstreetbets/comments/yawhb0/twitter_board_of_directors_meeting_after_elon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
