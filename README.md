@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Life story of a financial advisor](https://www.reddit.com/r/wallstreetbets/comments/yb1tyx/life_story_of_a_financial_advisor/)
-- [Papa Jerome Powell save some for the rest of us too, bro 👴🏻](https://www.reddit.com/r/wallstreetbets/comments/yaylvv/papa_jerome_powell_save_some_for_the_rest_of_us/)
-- [Looks like it didn&#39;t work out.](https://www.reddit.com/r/wallstreetbets/comments/yaxkfr/looks_like_it_didnt_work_out/)
-- [Anyway I can get back my 200k ?](https://www.reddit.com/r/wallstreetbets/comments/yawsz0/anyway_i_can_get_back_my_200k/)
-- [Twitter board of directors meeting after Elon buys it](https://www.reddit.com/r/wallstreetbets/comments/yawhb0/twitter_board_of_directors_meeting_after_elon/)
+- [me jumping into options investing](https://www.reddit.com/r/wallstreetbets/comments/ybxmz9/me_jumping_into_options_investing/)
+- [Wait till you see what happens next year when the market reposts hit for 2022](https://www.reddit.com/r/wallstreetbets/comments/ybwiv1/wait_till_you_see_what_happens_next_year_when_the/)
+- [+$300&#39;000 lost in the last three weeks](https://www.reddit.com/r/wallstreetbets/comments/ybw1w0/300000_lost_in_the_last_three_weeks/)
+- [Inversing Wallstreetbets AND Cramer this week. it&#39;s basically free money. Will post again with my position.](https://www.reddit.com/r/wallstreetbets/comments/ybvw4b/inversing_wallstreetbets_and_cramer_this_week_its/)
+- [WSB trading last week, get ready for next week | Performed by Xander Berkeley](https://www.reddit.com/r/wallstreetbets/comments/ybvut7/wsb_trading_last_week_get_ready_for_next_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
