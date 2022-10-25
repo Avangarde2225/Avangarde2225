@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [me jumping into options investing](https://www.reddit.com/r/wallstreetbets/comments/ybxmz9/me_jumping_into_options_investing/)
-- [Wait till you see what happens next year when the market reposts hit for 2022](https://www.reddit.com/r/wallstreetbets/comments/ybwiv1/wait_till_you_see_what_happens_next_year_when_the/)
-- [+$300&#39;000 lost in the last three weeks](https://www.reddit.com/r/wallstreetbets/comments/ybw1w0/300000_lost_in_the_last_three_weeks/)
-- [Inversing Wallstreetbets AND Cramer this week. it&#39;s basically free money. Will post again with my position.](https://www.reddit.com/r/wallstreetbets/comments/ybvw4b/inversing_wallstreetbets_and_cramer_this_week_its/)
-- [WSB trading last week, get ready for next week | Performed by Xander Berkeley](https://www.reddit.com/r/wallstreetbets/comments/ybvut7/wsb_trading_last_week_get_ready_for_next_week/)
+- [Down over 50%. No other choice but to ride it out. That&#39;s all my money.](https://www.reddit.com/r/wallstreetbets/comments/ycqknn/down_over_50_no_other_choice_but_to_ride_it_out/)
+- [Surely you go with a different name](https://www.reddit.com/r/wallstreetbets/comments/ycoqni/surely_you_go_with_a_different_name/)
+- [Apple will tank the market](https://www.reddit.com/r/wallstreetbets/comments/ycmmk9/apple_will_tank_the_market/)
+- [I used to laugh at your loss porn, now here I am…](https://www.reddit.com/r/wallstreetbets/comments/yclmom/i_used_to_laugh_at_your_loss_porn_now_here_i_am/)
+- [What Are Your Moves Tomorrow, October 25, 2022](https://www.reddit.com/r/wallstreetbets/comments/ycl0nt/what_are_your_moves_tomorrow_october_25_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
