@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Down over 50%. No other choice but to ride it out. That&#39;s all my money.](https://www.reddit.com/r/wallstreetbets/comments/ycqknn/down_over_50_no_other_choice_but_to_ride_it_out/)
-- [Surely you go with a different name](https://www.reddit.com/r/wallstreetbets/comments/ycoqni/surely_you_go_with_a_different_name/)
-- [Apple will tank the market](https://www.reddit.com/r/wallstreetbets/comments/ycmmk9/apple_will_tank_the_market/)
-- [I used to laugh at your loss porn, now here I am…](https://www.reddit.com/r/wallstreetbets/comments/yclmom/i_used_to_laugh_at_your_loss_porn_now_here_i_am/)
-- [What Are Your Moves Tomorrow, October 25, 2022](https://www.reddit.com/r/wallstreetbets/comments/ycl0nt/what_are_your_moves_tomorrow_october_25_2022/)
+- [This Sub has Historically Supported Autism. Let Me Introduce you to Carson. He Makes the BEST Pickles in NC 👩‍🌾 🥒](https://www.reddit.com/r/wallstreetbets/comments/ydii8z/this_sub_has_historically_supported_autism_let_me/)
+- [The big tech fall](https://www.reddit.com/r/wallstreetbets/comments/ydhmik/the_big_tech_fall/)
+- [Market will bleed tomorrow!](https://www.reddit.com/r/wallstreetbets/comments/ydgom8/market_will_bleed_tomorrow/)
+- [I’ve lost a lot of money watching this show too](https://www.reddit.com/r/wallstreetbets/comments/ydg2qa/ive_lost_a_lot_of_money_watching_this_show_too/)
+- [She Said Do You Love Me I Tell Her Only Partly](https://www.reddit.com/r/wallstreetbets/comments/ydexjv/she_said_do_you_love_me_i_tell_her_only_partly/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
