@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This Sub has Historically Supported Autism. Let Me Introduce you to Carson. He Makes the BEST Pickles in NC 👩‍🌾 🥒](https://www.reddit.com/r/wallstreetbets/comments/ydii8z/this_sub_has_historically_supported_autism_let_me/)
-- [The big tech fall](https://www.reddit.com/r/wallstreetbets/comments/ydhmik/the_big_tech_fall/)
-- [Market will bleed tomorrow!](https://www.reddit.com/r/wallstreetbets/comments/ydgom8/market_will_bleed_tomorrow/)
-- [I’ve lost a lot of money watching this show too](https://www.reddit.com/r/wallstreetbets/comments/ydg2qa/ive_lost_a_lot_of_money_watching_this_show_too/)
-- [She Said Do You Love Me I Tell Her Only Partly](https://www.reddit.com/r/wallstreetbets/comments/ydexjv/she_said_do_you_love_me_i_tell_her_only_partly/)
+- [I found a picture of my mothers womb](https://www.reddit.com/r/wallstreetbets/comments/yebhb7/i_found_a_picture_of_my_mothers_womb/)
+- [$META stock sink: explained in 30 seconds. Lowest prices in more than 6 years](https://www.reddit.com/r/wallstreetbets/comments/yeaxn3/meta_stock_sink_explained_in_30_seconds_lowest/)
+- [META HQ AH](https://www.reddit.com/r/wallstreetbets/comments/yea0v2/meta_hq_ah/)
+- [The results were so shocking. I really thought a huge unpopulated 1990&#39;s era polygon world would boost revenue.](https://www.reddit.com/r/wallstreetbets/comments/ye9ry6/the_results_were_so_shocking_i_really_thought_a/)
+- [Inverse Cramer strikes again](https://www.reddit.com/r/wallstreetbets/comments/ye9m24/inverse_cramer_strikes_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
