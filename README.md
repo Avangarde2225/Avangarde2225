@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I found a picture of my mothers womb](https://www.reddit.com/r/wallstreetbets/comments/yebhb7/i_found_a_picture_of_my_mothers_womb/)
-- [$META stock sink: explained in 30 seconds. Lowest prices in more than 6 years](https://www.reddit.com/r/wallstreetbets/comments/yeaxn3/meta_stock_sink_explained_in_30_seconds_lowest/)
-- [META HQ AH](https://www.reddit.com/r/wallstreetbets/comments/yea0v2/meta_hq_ah/)
-- [The results were so shocking. I really thought a huge unpopulated 1990&#39;s era polygon world would boost revenue.](https://www.reddit.com/r/wallstreetbets/comments/ye9ry6/the_results_were_so_shocking_i_really_thought_a/)
-- [Inverse Cramer strikes again](https://www.reddit.com/r/wallstreetbets/comments/ye9m24/inverse_cramer_strikes_again/)
+- [Oh Mark, ive never $META nother man like you and it&#39;s a shame it had to end this way. It appears im shit out of luck, and at hands of Zuck my viewers have once again been fucked.](https://www.reddit.com/r/wallstreetbets/comments/yf7afq/oh_mark_ive_never_meta_nother_man_like_you_and/)
+- [Hmmmmmmmmmm](https://www.reddit.com/r/wallstreetbets/comments/yf4tfr/hmmmmmmmmmm/)
+- [My god Apple is unstoppable](https://www.reddit.com/r/wallstreetbets/comments/yf4hi0/my_god_apple_is_unstoppable/)
+- [$AMZN 2020 vs $AMZN 2022](https://www.reddit.com/r/wallstreetbets/comments/yf3z0l/amzn_2020_vs_amzn_2022/)
+- [SMOKING GUN: Ortex knew this was coming and requested approval to post 16 hours ago.](https://www.reddit.com/r/wallstreetbets/comments/yf3wtq/smoking_gun_ortex_knew_this_was_coming_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
