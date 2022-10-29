@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Oh Mark, ive never $META nother man like you and it&#39;s a shame it had to end this way. It appears im shit out of luck, and at hands of Zuck my viewers have once again been fucked.](https://www.reddit.com/r/wallstreetbets/comments/yf7afq/oh_mark_ive_never_meta_nother_man_like_you_and/)
-- [Hmmmmmmmmmm](https://www.reddit.com/r/wallstreetbets/comments/yf4tfr/hmmmmmmmmmm/)
-- [My god Apple is unstoppable](https://www.reddit.com/r/wallstreetbets/comments/yf4hi0/my_god_apple_is_unstoppable/)
-- [$AMZN 2020 vs $AMZN 2022](https://www.reddit.com/r/wallstreetbets/comments/yf3z0l/amzn_2020_vs_amzn_2022/)
-- [SMOKING GUN: Ortex knew this was coming and requested approval to post 16 hours ago.](https://www.reddit.com/r/wallstreetbets/comments/yf3wtq/smoking_gun_ortex_knew_this_was_coming_and/)
+- [Screw that... PUTS ON GM](https://www.reddit.com/r/wallstreetbets/comments/yg20ca/screw_that_puts_on_gm/)
+- [I think it’s time I leave the casino](https://www.reddit.com/r/wallstreetbets/comments/yg1jhz/i_think_its_time_i_leave_the_casino/)
+- [Modern problems requires modern Solutions !!](https://www.reddit.com/r/wallstreetbets/comments/yg15v5/modern_problems_requires_modern_solutions/)
+- [My friend dressed up as something scary on Halloween 😂](https://www.reddit.com/r/wallstreetbets/comments/yg0kvm/my_friend_dressed_up_as_something_scary_on/)
+- [Which one of you regards conned CNBC by pretending to be a fired Twitter employee named Rahul LIGMA?](https://www.reddit.com/r/wallstreetbets/comments/yg0gmq/which_one_of_you_regards_conned_cnbc_by/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
