@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Screw that... PUTS ON GM](https://www.reddit.com/r/wallstreetbets/comments/yg20ca/screw_that_puts_on_gm/)
-- [I think it’s time I leave the casino](https://www.reddit.com/r/wallstreetbets/comments/yg1jhz/i_think_its_time_i_leave_the_casino/)
-- [Modern problems requires modern Solutions !!](https://www.reddit.com/r/wallstreetbets/comments/yg15v5/modern_problems_requires_modern_solutions/)
-- [My friend dressed up as something scary on Halloween 😂](https://www.reddit.com/r/wallstreetbets/comments/yg0kvm/my_friend_dressed_up_as_something_scary_on/)
-- [Which one of you regards conned CNBC by pretending to be a fired Twitter employee named Rahul LIGMA?](https://www.reddit.com/r/wallstreetbets/comments/yg0gmq/which_one_of_you_regards_conned_cnbc_by/)
+- [Californian GDP is poised to overtake Germany](https://www.reddit.com/r/wallstreetbets/comments/ygyg3i/californian_gdp_is_poised_to_overtake_germany/)
+- [Time for rebranding?](https://www.reddit.com/r/wallstreetbets/comments/ygxi1c/time_for_rebranding/)
+- [Next Week will be a BLOODBATH for SHORTS](https://www.reddit.com/r/wallstreetbets/comments/yguooq/next_week_will_be_a_bloodbath_for_shorts/)
+- [When NVDA was 330, Cramer said the stock price was heading to 4000 😂](https://www.reddit.com/r/wallstreetbets/comments/ygul7b/when_nvda_was_330_cramer_said_the_stock_price_was/)
+- [&quot;Financial Expert&quot;](https://www.reddit.com/r/wallstreetbets/comments/ygu61x/financial_expert/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
