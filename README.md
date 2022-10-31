@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Californian GDP is poised to overtake Germany](https://www.reddit.com/r/wallstreetbets/comments/ygyg3i/californian_gdp_is_poised_to_overtake_germany/)
-- [Time for rebranding?](https://www.reddit.com/r/wallstreetbets/comments/ygxi1c/time_for_rebranding/)
-- [Next Week will be a BLOODBATH for SHORTS](https://www.reddit.com/r/wallstreetbets/comments/yguooq/next_week_will_be_a_bloodbath_for_shorts/)
-- [When NVDA was 330, Cramer said the stock price was heading to 4000 😂](https://www.reddit.com/r/wallstreetbets/comments/ygul7b/when_nvda_was_330_cramer_said_the_stock_price_was/)
-- [&quot;Financial Expert&quot;](https://www.reddit.com/r/wallstreetbets/comments/ygu61x/financial_expert/)
+- [hello investor friends, I&#39;m Brazilian, and with that I&#39;m going to give you a unique opportunity. Open a short position in petrobras &lpar;PETR4&rpar; on Monday in the pre-market.](https://www.reddit.com/r/wallstreetbets/comments/yhuex4/hello_investor_friends_im_brazilian_and_with_that/)
+- [Stay safe everybody](https://www.reddit.com/r/wallstreetbets/comments/yhto89/stay_safe_everybody/)
+- [Lehman moments](https://www.reddit.com/r/wallstreetbets/comments/yhs16s/lehman_moments/)
+- [First day vs Last day at work](https://www.reddit.com/r/wallstreetbets/comments/yhrw92/first_day_vs_last_day_at_work/)
+- [I hate it when mommy and daddy fight](https://www.reddit.com/r/wallstreetbets/comments/yhrnob/i_hate_it_when_mommy_and_daddy_fight/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
