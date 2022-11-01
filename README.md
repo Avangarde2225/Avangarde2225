@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [hello investor friends, I&#39;m Brazilian, and with that I&#39;m going to give you a unique opportunity. Open a short position in petrobras &lpar;PETR4&rpar; on Monday in the pre-market.](https://www.reddit.com/r/wallstreetbets/comments/yhuex4/hello_investor_friends_im_brazilian_and_with_that/)
-- [Stay safe everybody](https://www.reddit.com/r/wallstreetbets/comments/yhto89/stay_safe_everybody/)
-- [Lehman moments](https://www.reddit.com/r/wallstreetbets/comments/yhs16s/lehman_moments/)
-- [First day vs Last day at work](https://www.reddit.com/r/wallstreetbets/comments/yhrw92/first_day_vs_last_day_at_work/)
-- [I hate it when mommy and daddy fight](https://www.reddit.com/r/wallstreetbets/comments/yhrnob/i_hate_it_when_mommy_and_daddy_fight/)
+- [GME, i&#39;m doing my part with what i have 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/yiriok/gme_im_doing_my_part_with_what_i_have/)
+- [Visualmod](https://www.reddit.com/r/wallstreetbets/comments/yiraq2/visualmod/)
+- [Rents due tomorrow but 100 shares of GME sounds more enticing. Housing is optional.](https://www.reddit.com/r/wallstreetbets/comments/yiqavr/rents_due_tomorrow_but_100_shares_of_gme_sounds/)
+- [Tesla&#39;s autopilot software engineers are working for Twitter now](https://www.reddit.com/r/wallstreetbets/comments/yipnvx/teslas_autopilot_software_engineers_are_working/)
+- [Wrong. 100% in GME.](https://www.reddit.com/r/wallstreetbets/comments/yipdcy/wrong_100_in_gme/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
