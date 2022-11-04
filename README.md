@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [+60k in a couple of hours, thank you Powell &lt;3](https://www.reddit.com/r/wallstreetbets/comments/yklumk/60k_in_a_couple_of_hours_thank_you_powell_3/)
-- [Tough love from PaPa Powell, did any of us have puts?](https://www.reddit.com/r/wallstreetbets/comments/ykld5a/tough_love_from_papa_powell_did_any_of_us_have/)
-- [When there’s no pivot](https://www.reddit.com/r/wallstreetbets/comments/ykjw7s/when_theres_no_pivot/)
-- [Fed meeting today](https://www.reddit.com/r/wallstreetbets/comments/yki8e0/fed_meeting_today/)
-- [Seriously tho](https://www.reddit.com/r/wallstreetbets/comments/ykhl3m/seriously_tho/)
+- [They are the same picture](https://www.reddit.com/r/wallstreetbets/comments/ylh5k2/they_are_the_same_picture/)
+- [GME big bull flag](https://www.reddit.com/r/wallstreetbets/comments/ylgurm/gme_big_bull_flag/)
+- [They did it! Zuck belong here.](https://www.reddit.com/r/wallstreetbets/comments/ylgqmp/they_did_it_zuck_belong_here/)
+- [How low will Meta go](https://www.reddit.com/r/wallstreetbets/comments/ylfsei/how_low_will_meta_go/)
+- [Balls deep in GME 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ylemnh/balls_deep_in_gme/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
