@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [They are the same picture](https://www.reddit.com/r/wallstreetbets/comments/ylh5k2/they_are_the_same_picture/)
-- [GME big bull flag](https://www.reddit.com/r/wallstreetbets/comments/ylgurm/gme_big_bull_flag/)
-- [They did it! Zuck belong here.](https://www.reddit.com/r/wallstreetbets/comments/ylgqmp/they_did_it_zuck_belong_here/)
-- [How low will Meta go](https://www.reddit.com/r/wallstreetbets/comments/ylfsei/how_low_will_meta_go/)
-- [Balls deep in GME 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/ylemnh/balls_deep_in_gme/)
+- [If any of you are her BF, don&#39;t tell my wife. It still has time to rebound, right? Right?](https://www.reddit.com/r/wallstreetbets/comments/ymbnji/if_any_of_you_are_her_bf_dont_tell_my_wife_it/)
+- [This is why they make the big bucks folks.](https://www.reddit.com/r/wallstreetbets/comments/yma57m/this_is_why_they_make_the_big_bucks_folks/)
+- [me this entire year](https://www.reddit.com/r/wallstreetbets/comments/ym9avz/me_this_entire_year/)
+- [Weekend Discussion Thread for the Weekend of November 05, 2022](https://www.reddit.com/r/wallstreetbets/comments/ym8r8n/weekend_discussion_thread_for_the_weekend_of/)
+- [$2,000 to $50,000: 0DTE TSLA Puts](https://www.reddit.com/r/wallstreetbets/comments/ym7e18/2000_to_50000_0dte_tsla_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
