@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If any of you are her BF, don&#39;t tell my wife. It still has time to rebound, right? Right?](https://www.reddit.com/r/wallstreetbets/comments/ymbnji/if_any_of_you_are_her_bf_dont_tell_my_wife_it/)
-- [This is why they make the big bucks folks.](https://www.reddit.com/r/wallstreetbets/comments/yma57m/this_is_why_they_make_the_big_bucks_folks/)
-- [me this entire year](https://www.reddit.com/r/wallstreetbets/comments/ym9avz/me_this_entire_year/)
-- [Weekend Discussion Thread for the Weekend of November 05, 2022](https://www.reddit.com/r/wallstreetbets/comments/ym8r8n/weekend_discussion_thread_for_the_weekend_of/)
-- [$2,000 to $50,000: 0DTE TSLA Puts](https://www.reddit.com/r/wallstreetbets/comments/ym7e18/2000_to_50000_0dte_tsla_puts/)
+- [Investors hard at work.](https://www.reddit.com/r/wallstreetbets/comments/ynb3tk/investors_hard_at_work/)
+- [Which one of your wrote this after your shift behind Wendy&#39;s! YOLO!](https://www.reddit.com/r/wallstreetbets/comments/yn8o32/which_one_of_your_wrote_this_after_your_shift/)
+- [things are gettin tough out there!](https://www.reddit.com/r/wallstreetbets/comments/yn8973/things_are_gettin_tough_out_there/)
+- [Gotta have commitment.](https://www.reddit.com/r/wallstreetbets/comments/yn595c/gotta_have_commitment/)
+- [Long Term Investing is Cool-u/Loose-Ventures](https://www.reddit.com/r/wallstreetbets/comments/yn4lc4/long_term_investing_is_coolulooseventures/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
