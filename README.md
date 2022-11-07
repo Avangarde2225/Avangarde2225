@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Investors hard at work.](https://www.reddit.com/r/wallstreetbets/comments/ynb3tk/investors_hard_at_work/)
-- [Which one of your wrote this after your shift behind Wendy&#39;s! YOLO!](https://www.reddit.com/r/wallstreetbets/comments/yn8o32/which_one_of_your_wrote_this_after_your_shift/)
-- [things are gettin tough out there!](https://www.reddit.com/r/wallstreetbets/comments/yn8973/things_are_gettin_tough_out_there/)
-- [Gotta have commitment.](https://www.reddit.com/r/wallstreetbets/comments/yn595c/gotta_have_commitment/)
-- [Long Term Investing is Cool-u/Loose-Ventures](https://www.reddit.com/r/wallstreetbets/comments/yn4lc4/long_term_investing_is_coolulooseventures/)
+- [Vegas will take care of you Twitter kittens.](https://www.reddit.com/r/wallstreetbets/comments/yo6w12/vegas_will_take_care_of_you_twitter_kittens/)
+- [$TTD is expensive trash and it will show this earnings.](https://www.reddit.com/r/wallstreetbets/comments/yo6uyy/ttd_is_expensive_trash_and_it_will_show_this/)
+- [Guys - they figured out how to solve inflation](https://www.reddit.com/r/wallstreetbets/comments/yo6tdx/guys_they_figured_out_how_to_solve_inflation/)
+- [&quot;The Titanic is unsinkable&quot; they said](https://www.reddit.com/r/wallstreetbets/comments/yo6ej5/the_titanic_is_unsinkable_they_said/)
+- [Facebook Parent Meta Is Preparing to Notify Employees of Large-Scale Layoffs This Week](https://www.reddit.com/r/wallstreetbets/comments/yo4dgi/facebook_parent_meta_is_preparing_to_notify/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
