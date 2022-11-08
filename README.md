@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Vegas will take care of you Twitter kittens.](https://www.reddit.com/r/wallstreetbets/comments/yo6w12/vegas_will_take_care_of_you_twitter_kittens/)
-- [$TTD is expensive trash and it will show this earnings.](https://www.reddit.com/r/wallstreetbets/comments/yo6uyy/ttd_is_expensive_trash_and_it_will_show_this/)
-- [Guys - they figured out how to solve inflation](https://www.reddit.com/r/wallstreetbets/comments/yo6tdx/guys_they_figured_out_how_to_solve_inflation/)
-- [&quot;The Titanic is unsinkable&quot; they said](https://www.reddit.com/r/wallstreetbets/comments/yo6ej5/the_titanic_is_unsinkable_they_said/)
-- [Facebook Parent Meta Is Preparing to Notify Employees of Large-Scale Layoffs This Week](https://www.reddit.com/r/wallstreetbets/comments/yo4dgi/facebook_parent_meta_is_preparing_to_notify/)
+- [Smells like 2008 in here](https://www.reddit.com/r/wallstreetbets/comments/yp22u3/smells_like_2008_in_here/)
+- [I figured out how to balance trading and making a living!](https://www.reddit.com/r/wallstreetbets/comments/yp1vfp/i_figured_out_how_to_balance_trading_and_making_a/)
+- [What in the actual is this? And why can I not reapply in a whole fucking year](https://www.reddit.com/r/wallstreetbets/comments/yp0xfk/what_in_the_actual_is_this_and_why_can_i_not/)
+- [What Are Your Moves Tomorrow, November 08, 2022](https://www.reddit.com/r/wallstreetbets/comments/yp07a8/what_are_your_moves_tomorrow_november_08_2022/)
+- [Me opening Reddit to see gains. It ain’t as easy as I thought it was](https://www.reddit.com/r/wallstreetbets/comments/yozwge/me_opening_reddit_to_see_gains_it_aint_as_easy_as/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
