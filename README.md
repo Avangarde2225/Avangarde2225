@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Smells like 2008 in here](https://www.reddit.com/r/wallstreetbets/comments/yp22u3/smells_like_2008_in_here/)
-- [I figured out how to balance trading and making a living!](https://www.reddit.com/r/wallstreetbets/comments/yp1vfp/i_figured_out_how_to_balance_trading_and_making_a/)
-- [What in the actual is this? And why can I not reapply in a whole fucking year](https://www.reddit.com/r/wallstreetbets/comments/yp0xfk/what_in_the_actual_is_this_and_why_can_i_not/)
-- [What Are Your Moves Tomorrow, November 08, 2022](https://www.reddit.com/r/wallstreetbets/comments/yp07a8/what_are_your_moves_tomorrow_november_08_2022/)
-- [Me opening Reddit to see gains. It ain’t as easy as I thought it was](https://www.reddit.com/r/wallstreetbets/comments/yozwge/me_opening_reddit_to_see_gains_it_aint_as_easy_as/)
+- [He belongs here](https://www.reddit.com/r/wallstreetbets/comments/yq277n/he_belongs_here/)
+- [The layoffs have begun boys](https://www.reddit.com/r/wallstreetbets/comments/yq22fn/the_layoffs_have_begun_boys/)
+- [Have to hand it to Elon, even TSLA had to pay $8 today](https://www.reddit.com/r/wallstreetbets/comments/yq19s9/have_to_hand_it_to_elon_even_tsla_had_to_pay_8/)
+- [Meet the &quot;Legend&quot; he is way ahead of us and belongs in the &quot;Hall of Fame&quot; he has lost 15 billion or near 95 percent in under 24 hours. Who can top that?](https://www.reddit.com/r/wallstreetbets/comments/yq0lia/meet_the_legend_he_is_way_ahead_of_us_and_belongs/)
+- [Added more $ASTS with the extra margin I got. I might be in the top 0.01% of autism but I am not regarded. Now it&#39;s a 1.2 M dollar+ YOLO OVER 7 diff accounts. $ASTS WILL GET ME SOME BICHES GOD WILLING🦍🚀 🦍](https://www.reddit.com/r/wallstreetbets/comments/ypzsug/added_more_asts_with_the_extra_margin_i_got_i/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
