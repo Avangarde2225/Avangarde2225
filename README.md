@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [He belongs here](https://www.reddit.com/r/wallstreetbets/comments/yq277n/he_belongs_here/)
-- [The layoffs have begun boys](https://www.reddit.com/r/wallstreetbets/comments/yq22fn/the_layoffs_have_begun_boys/)
-- [Have to hand it to Elon, even TSLA had to pay $8 today](https://www.reddit.com/r/wallstreetbets/comments/yq19s9/have_to_hand_it_to_elon_even_tsla_had_to_pay_8/)
-- [Meet the &quot;Legend&quot; he is way ahead of us and belongs in the &quot;Hall of Fame&quot; he has lost 15 billion or near 95 percent in under 24 hours. Who can top that?](https://www.reddit.com/r/wallstreetbets/comments/yq0lia/meet_the_legend_he_is_way_ahead_of_us_and_belongs/)
-- [Added more $ASTS with the extra margin I got. I might be in the top 0.01% of autism but I am not regarded. Now it&#39;s a 1.2 M dollar+ YOLO OVER 7 diff accounts. $ASTS WILL GET ME SOME BICHES GOD WILLING🦍🚀 🦍](https://www.reddit.com/r/wallstreetbets/comments/ypzsug/added_more_asts_with_the_extra_margin_i_got_i/)
+- [Wonder how Sammy’s feeling](https://www.reddit.com/r/wallstreetbets/comments/yqxoh6/wonder_how_sammys_feeling/)
+- [This motherfucker…](https://www.reddit.com/r/wallstreetbets/comments/yqxlt8/this_motherfucker/)
+- [Any chance for a comeback?](https://www.reddit.com/r/wallstreetbets/comments/yqxhr1/any_chance_for_a_comeback/)
+- [What Are Your Moves Tomorrow, November 10, 2022](https://www.reddit.com/r/wallstreetbets/comments/yqveq1/what_are_your_moves_tomorrow_november_10_2022/)
+- [Tesla owners trying to pay rent this month.](https://www.reddit.com/r/wallstreetbets/comments/yqtlcg/tesla_owners_trying_to_pay_rent_this_month/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
