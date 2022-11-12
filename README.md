@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [1.7 million dollar day](https://www.reddit.com/r/wallstreetbets/comments/yrujfa/17_million_dollar_day/)
-- [😂](https://www.reddit.com/r/wallstreetbets/comments/yru9dm/_/)
-- [Winning](https://www.reddit.com/r/wallstreetbets/comments/yrs0xo/winning/)
-- [What Are Your Moves Tomorrow, November 11, 2022](https://www.reddit.com/r/wallstreetbets/comments/yrrobk/what_are_your_moves_tomorrow_november_11_2022/)
-- [I think this post belongs here.](https://www.reddit.com/r/wallstreetbets/comments/yrnj5f/i_think_this_post_belongs_here/)
+- [You’re all a bunch of sheep](https://www.reddit.com/r/wallstreetbets/comments/ysrao5/youre_all_a_bunch_of_sheep/)
+- [Why does the stock market think 10.9% Food and 17.6% Energy Inflation signals a buy?](https://www.reddit.com/r/wallstreetbets/comments/ysok2d/why_does_the_stock_market_think_109_food_and_176/)
+- [Elon being Elon!](https://www.reddit.com/r/wallstreetbets/comments/ysngrw/elon_being_elon/)
+- [Weekend Discussion Thread for the Weekend of November 12, 2022](https://www.reddit.com/r/wallstreetbets/comments/ysmz67/weekend_discussion_thread_for_the_weekend_of/)
+- [Musk proposes turning Twitter into a bank to avoid bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/yslizv/musk_proposes_turning_twitter_into_a_bank_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
