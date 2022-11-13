@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You’re all a bunch of sheep](https://www.reddit.com/r/wallstreetbets/comments/ysrao5/youre_all_a_bunch_of_sheep/)
-- [Why does the stock market think 10.9% Food and 17.6% Energy Inflation signals a buy?](https://www.reddit.com/r/wallstreetbets/comments/ysok2d/why_does_the_stock_market_think_109_food_and_176/)
-- [Elon being Elon!](https://www.reddit.com/r/wallstreetbets/comments/ysngrw/elon_being_elon/)
-- [Weekend Discussion Thread for the Weekend of November 12, 2022](https://www.reddit.com/r/wallstreetbets/comments/ysmz67/weekend_discussion_thread_for_the_weekend_of/)
-- [Musk proposes turning Twitter into a bank to avoid bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/yslizv/musk_proposes_turning_twitter_into_a_bank_to/)
+- [2 Lawsuit 2 Secured: how to cause 2x$8+ billion in damages for just 2x$8!](https://www.reddit.com/r/wallstreetbets/comments/ytmkid/2_lawsuit_2_secured_how_to_cause_2x8_billion_in/)
+- [Bear Market Rally: SPY 340 EOY](https://www.reddit.com/r/wallstreetbets/comments/ytlz9y/bear_market_rally_spy_340_eoy/)
+- [Parenting Just Got a Whole Lot Easier For Tom Brady](https://www.reddit.com/r/wallstreetbets/comments/ytl3bp/parenting_just_got_a_whole_lot_easier_for_tom/)
+- [Rumble $RUM is currently valued at 3.65 Billion. It reports it&#39;s first earnings ever on Monday after close. Revenue is expected to be 6 Million and EPS negative](https://www.reddit.com/r/wallstreetbets/comments/ytjwac/rumble_rum_is_currently_valued_at_365_billion_it/)
+- [GME and AMC YOLO — Nov 12 2022](https://www.reddit.com/r/wallstreetbets/comments/ytjit2/gme_and_amc_yolo_nov_12_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
