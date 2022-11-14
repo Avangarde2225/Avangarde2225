@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [2 Lawsuit 2 Secured: how to cause 2x$8+ billion in damages for just 2x$8!](https://www.reddit.com/r/wallstreetbets/comments/ytmkid/2_lawsuit_2_secured_how_to_cause_2x8_billion_in/)
-- [Bear Market Rally: SPY 340 EOY](https://www.reddit.com/r/wallstreetbets/comments/ytlz9y/bear_market_rally_spy_340_eoy/)
-- [Parenting Just Got a Whole Lot Easier For Tom Brady](https://www.reddit.com/r/wallstreetbets/comments/ytl3bp/parenting_just_got_a_whole_lot_easier_for_tom/)
-- [Rumble $RUM is currently valued at 3.65 Billion. It reports it&#39;s first earnings ever on Monday after close. Revenue is expected to be 6 Million and EPS negative](https://www.reddit.com/r/wallstreetbets/comments/ytjwac/rumble_rum_is_currently_valued_at_365_billion_it/)
-- [GME and AMC YOLO — Nov 12 2022](https://www.reddit.com/r/wallstreetbets/comments/ytjit2/gme_and_amc_yolo_nov_12_2022/)
+- [Promise me you won&#39;t get mad..](https://www.reddit.com/r/wallstreetbets/comments/yuj9gy/promise_me_you_wont_get_mad/)
+- [Record institutional put option hedging](https://www.reddit.com/r/wallstreetbets/comments/yuikuh/record_institutional_put_option_hedging/)
+- [The OG meme stock warming up...](https://www.reddit.com/r/wallstreetbets/comments/yuhk4c/the_og_meme_stock_warming_up/)
+- [Isn’t it?](https://www.reddit.com/r/wallstreetbets/comments/yufzi3/isnt_it/)
+- [I like meme stocks right now. BOUGHT ~$218,000 | First Update Nov 13, 2022](https://www.reddit.com/r/wallstreetbets/comments/yuey2v/i_like_meme_stocks_right_now_bought_218000_first/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
