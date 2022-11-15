@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Promise me you won&#39;t get mad..](https://www.reddit.com/r/wallstreetbets/comments/yuj9gy/promise_me_you_wont_get_mad/)
-- [Record institutional put option hedging](https://www.reddit.com/r/wallstreetbets/comments/yuikuh/record_institutional_put_option_hedging/)
-- [The OG meme stock warming up...](https://www.reddit.com/r/wallstreetbets/comments/yuhk4c/the_og_meme_stock_warming_up/)
-- [Isn’t it?](https://www.reddit.com/r/wallstreetbets/comments/yufzi3/isnt_it/)
-- [I like meme stocks right now. BOUGHT ~$218,000 | First Update Nov 13, 2022](https://www.reddit.com/r/wallstreetbets/comments/yuey2v/i_like_meme_stocks_right_now_bought_218000_first/)
+- [This FTX situation gets more insane by the minute 💀 Where does it go from here? How will this effect related stocks &amp; those who were heavily invested once their info becomes public knowledge?](https://www.reddit.com/r/wallstreetbets/comments/yvf9ti/this_ftx_situation_gets_more_insane_by_the_minute/)
+- [I inversed myself](https://www.reddit.com/r/wallstreetbets/comments/yvet5j/i_inversed_myself/)
+- [The end of philosophy.](https://www.reddit.com/r/wallstreetbets/comments/yvem5a/the_end_of_philosophy/)
+- [Thanks For Playing: +1,134.59% 😂](https://www.reddit.com/r/wallstreetbets/comments/yvdbek/thanks_for_playing_113459/)
+- [hello my fellow regards](https://www.reddit.com/r/wallstreetbets/comments/yvcvtv/hello_my_fellow_regards/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
