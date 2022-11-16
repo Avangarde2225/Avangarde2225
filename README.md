@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This FTX situation gets more insane by the minute 💀 Where does it go from here? How will this effect related stocks &amp; those who were heavily invested once their info becomes public knowledge?](https://www.reddit.com/r/wallstreetbets/comments/yvf9ti/this_ftx_situation_gets_more_insane_by_the_minute/)
-- [I inversed myself](https://www.reddit.com/r/wallstreetbets/comments/yvet5j/i_inversed_myself/)
-- [The end of philosophy.](https://www.reddit.com/r/wallstreetbets/comments/yvem5a/the_end_of_philosophy/)
-- [Thanks For Playing: +1,134.59% 😂](https://www.reddit.com/r/wallstreetbets/comments/yvdbek/thanks_for_playing_113459/)
-- [hello my fellow regards](https://www.reddit.com/r/wallstreetbets/comments/yvcvtv/hello_my_fellow_regards/)
+- [MEME STOCK YOLO — NOV 15th YOLO UPDATE +201,000](https://www.reddit.com/r/wallstreetbets/comments/ywcxtu/meme_stock_yolo_nov_15th_yolo_update_201000/)
+- [Welp this is it](https://www.reddit.com/r/wallstreetbets/comments/ywb5p1/welp_this_is_it/)
+- [Are we gonna see blood red tomorrow!?](https://www.reddit.com/r/wallstreetbets/comments/ywaooz/are_we_gonna_see_blood_red_tomorrow/)
+- [Are you people fucking blind? Jean Ralphio from Parks and Rec is the spitting image of him](https://www.reddit.com/r/wallstreetbets/comments/ywaemz/are_you_people_fucking_blind_jean_ralphio_from/)
+- [my 🌈🐻 copium](https://www.reddit.com/r/wallstreetbets/comments/ywa2u8/my_copium/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
