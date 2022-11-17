@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [MEME STOCK YOLO — NOV 15th YOLO UPDATE +201,000](https://www.reddit.com/r/wallstreetbets/comments/ywcxtu/meme_stock_yolo_nov_15th_yolo_update_201000/)
-- [Welp this is it](https://www.reddit.com/r/wallstreetbets/comments/ywb5p1/welp_this_is_it/)
-- [Are we gonna see blood red tomorrow!?](https://www.reddit.com/r/wallstreetbets/comments/ywaooz/are_we_gonna_see_blood_red_tomorrow/)
-- [Are you people fucking blind? Jean Ralphio from Parks and Rec is the spitting image of him](https://www.reddit.com/r/wallstreetbets/comments/ywaemz/are_you_people_fucking_blind_jean_ralphio_from/)
-- [my 🌈🐻 copium](https://www.reddit.com/r/wallstreetbets/comments/ywa2u8/my_copium/)
+- [Open to the idea.. Now, market&#39;s next bull trap drama begins?](https://www.reddit.com/r/wallstreetbets/comments/yx9kaj/open_to_the_idea_now_markets_next_bull_trap_drama/)
+- [[Confirmed] VisualMod has an OF](https://www.reddit.com/r/wallstreetbets/comments/yx9gsq/confirmed_visualmod_has_an_of/)
+- [GME is about to have a positive crossover on the 1 Week scale. This means GME has a very good chance of going on a rip soon.](https://www.reddit.com/r/wallstreetbets/comments/yx9brz/gme_is_about_to_have_a_positive_crossover_on_the/)
+- [Update on my anti wsb portfolio. All stocks bought jan 2021](https://www.reddit.com/r/wallstreetbets/comments/yx85ln/update_on_my_anti_wsb_portfolio_all_stocks_bought/)
+- [Account hitting ath! My revenge has not stopped!](https://www.reddit.com/r/wallstreetbets/comments/yx7x8z/account_hitting_ath_my_revenge_has_not_stopped/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
