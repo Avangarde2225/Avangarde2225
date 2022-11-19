@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bahamas GOVERNMENT ordered Sam Bankman-Fried to hack FTX systems and transfer assets to the island nation AFTER he filed for bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/yy5262/bahamas_government_ordered_sam_bankmanfried_to/)
-- [UPST YOLO! My last saving for multi-baggers.](https://www.reddit.com/r/wallstreetbets/comments/yy4oj7/upst_yolo_my_last_saving_for_multibaggers/)
-- [Don’t feel bad if you’re in the red even the best of the best have bad months](https://www.reddit.com/r/wallstreetbets/comments/yy4k5l/dont_feel_bad_if_youre_in_the_red_even_the_best/)
-- [Vix 2008 vs 2022 , courtesy twitter.](https://www.reddit.com/r/wallstreetbets/comments/yy3sau/vix_2008_vs_2022_courtesy_twitter/)
-- [UPST: 88 million dollars worth of Deep ITM Puts traded in last 30 minutes of the day](https://www.reddit.com/r/wallstreetbets/comments/yy34nl/upst_88_million_dollars_worth_of_deep_itm_puts/)
+- [Bear Markets:](https://www.reddit.com/r/wallstreetbets/comments/yyxa0e/bear_markets/)
+- [SBF added: &#39;I have two weeks to raise $8 billion, that&#39;s basically all that matters for the rest of my life.&#39; &lpar;FTX&rpar;](https://www.reddit.com/r/wallstreetbets/comments/yyw5l5/sbf_added_i_have_two_weeks_to_raise_8_billion/)
+- [GRINDR GAIN PORN $69 🥴💦🍆](https://www.reddit.com/r/wallstreetbets/comments/yyv1v4/grindr_gain_porn_69/)
+- [No Negative November ruined by meta puts](https://www.reddit.com/r/wallstreetbets/comments/yyujci/no_negative_november_ruined_by_meta_puts/)
+- [Weekend Discussion Thread for the Weekend of November 19, 2022](https://www.reddit.com/r/wallstreetbets/comments/yyuh8p/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
