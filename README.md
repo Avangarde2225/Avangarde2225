@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bear Markets:](https://www.reddit.com/r/wallstreetbets/comments/yyxa0e/bear_markets/)
-- [SBF added: &#39;I have two weeks to raise $8 billion, that&#39;s basically all that matters for the rest of my life.&#39; &lpar;FTX&rpar;](https://www.reddit.com/r/wallstreetbets/comments/yyw5l5/sbf_added_i_have_two_weeks_to_raise_8_billion/)
-- [GRINDR GAIN PORN $69 🥴💦🍆](https://www.reddit.com/r/wallstreetbets/comments/yyv1v4/grindr_gain_porn_69/)
-- [No Negative November ruined by meta puts](https://www.reddit.com/r/wallstreetbets/comments/yyujci/no_negative_november_ruined_by_meta_puts/)
-- [Weekend Discussion Thread for the Weekend of November 19, 2022](https://www.reddit.com/r/wallstreetbets/comments/yyuh8p/weekend_discussion_thread_for_the_weekend_of/)
+- [The All Star Team of Scamming.](https://www.reddit.com/r/wallstreetbets/comments/yzqb6e/the_all_star_team_of_scamming/)
+- [Watch This Video And Tell Me Meta’s Metaverse Has A Future](https://www.reddit.com/r/wallstreetbets/comments/yzmiox/watch_this_video_and_tell_me_metas_metaverse_has/)
+- [It’s all part of the plan](https://www.reddit.com/r/wallstreetbets/comments/yzm02s/its_all_part_of_the_plan/)
+- [To the ones that swing trade spy calls or puts or get massive huge gains](https://www.reddit.com/r/wallstreetbets/comments/yzlcb7/to_the_ones_that_swing_trade_spy_calls_or_puts_or/)
+- [Someone is blowing up Russian Gas lines](https://www.reddit.com/r/wallstreetbets/comments/yzkrr8/someone_is_blowing_up_russian_gas_lines/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
