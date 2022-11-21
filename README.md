@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The All Star Team of Scamming.](https://www.reddit.com/r/wallstreetbets/comments/yzqb6e/the_all_star_team_of_scamming/)
-- [Watch This Video And Tell Me Meta’s Metaverse Has A Future](https://www.reddit.com/r/wallstreetbets/comments/yzmiox/watch_this_video_and_tell_me_metas_metaverse_has/)
-- [It’s all part of the plan](https://www.reddit.com/r/wallstreetbets/comments/yzm02s/its_all_part_of_the_plan/)
-- [To the ones that swing trade spy calls or puts or get massive huge gains](https://www.reddit.com/r/wallstreetbets/comments/yzlcb7/to_the_ones_that_swing_trade_spy_calls_or_puts_or/)
-- [Someone is blowing up Russian Gas lines](https://www.reddit.com/r/wallstreetbets/comments/yzkrr8/someone_is_blowing_up_russian_gas_lines/)
+- [Target Expected to Lose 600m in 2022 due to theft. Lets look at the financials.](https://www.reddit.com/r/wallstreetbets/comments/z0ge1m/target_expected_to_lose_600m_in_2022_due_to_theft/)
+- [A Ryan Cohen interview](https://www.reddit.com/r/wallstreetbets/comments/z0g9qb/a_ryan_cohen_interview/)
+- [Ryan Cohen speaks about selling his BBBY stake 🍉](https://www.reddit.com/r/wallstreetbets/comments/z0fzif/ryan_cohen_speaks_about_selling_his_bbby_stake/)
+- [What Are Your Moves Tomorrow, November 21, 2022](https://www.reddit.com/r/wallstreetbets/comments/z0f4jv/what_are_your_moves_tomorrow_november_21_2022/)
+- [Jeff Bezos, Elon Musk, and Ken Griffin are sounding the alarm on US recession. Here are 12 economic warnings from BSDs. Idiots or agree?](https://www.reddit.com/r/wallstreetbets/comments/z0eplx/jeff_bezos_elon_musk_and_ken_griffin_are_sounding/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
