@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Target Expected to Lose 600m in 2022 due to theft. Lets look at the financials.](https://www.reddit.com/r/wallstreetbets/comments/z0ge1m/target_expected_to_lose_600m_in_2022_due_to_theft/)
-- [A Ryan Cohen interview](https://www.reddit.com/r/wallstreetbets/comments/z0g9qb/a_ryan_cohen_interview/)
-- [Ryan Cohen speaks about selling his BBBY stake 🍉](https://www.reddit.com/r/wallstreetbets/comments/z0fzif/ryan_cohen_speaks_about_selling_his_bbby_stake/)
-- [What Are Your Moves Tomorrow, November 21, 2022](https://www.reddit.com/r/wallstreetbets/comments/z0f4jv/what_are_your_moves_tomorrow_november_21_2022/)
-- [Jeff Bezos, Elon Musk, and Ken Griffin are sounding the alarm on US recession. Here are 12 economic warnings from BSDs. Idiots or agree?](https://www.reddit.com/r/wallstreetbets/comments/z0eplx/jeff_bezos_elon_musk_and_ken_griffin_are_sounding/)
+- [i&#39;m just gonna leave this here](https://www.reddit.com/r/wallstreetbets/comments/z1e0vp/im_just_gonna_leave_this_here/)
+- [Nobody is joking..](https://www.reddit.com/r/wallstreetbets/comments/z1duon/nobody_is_joking/)
+- [Carl Icahn Is Betting Against GameStop](https://www.reddit.com/r/wallstreetbets/comments/z1dl0f/carl_icahn_is_betting_against_gamestop/)
+- [Lie to me](https://www.reddit.com/r/wallstreetbets/comments/z1ct3n/lie_to_me/)
+- [I’m slow](https://www.reddit.com/r/wallstreetbets/comments/z1cb75/im_slow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
