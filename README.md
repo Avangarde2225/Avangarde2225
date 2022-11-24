@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Coinbase bankruptcy risk increasing...](https://www.reddit.com/r/wallstreetbets/comments/z299pm/coinbase_bankruptcy_risk_increasing/)
-- [Our prophet has spoken. Bad fortune shall befall all who hold SPY through the month of December](https://www.reddit.com/r/wallstreetbets/comments/z25di1/our_prophet_has_spoken_bad_fortune_shall_befall/)
-- [🚀🧑‍🚀🧑‍🚀🚀 GAMESTOP MEGATHREAD 🚀🧑‍🚀🧑‍🚀🚀 💎🤚💎🤚💎🤚💎](https://www.reddit.com/r/wallstreetbets/comments/z24vou/gamestop_megathread/)
-- [What Are Your Moves Tomorrow, November 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/z24uxn/what_are_your_moves_tomorrow_november_23_2022/)
-- [FED- Household savings are elevated! Household savings:](https://www.reddit.com/r/wallstreetbets/comments/z24b62/fed_household_savings_are_elevated_household/)
+- [Justin Hammer of EVs](https://www.reddit.com/r/wallstreetbets/comments/z34y86/justin_hammer_of_evs/)
+- [All in spy puts baby📉📉 update: Wendy’s for Thanksgiving!](https://www.reddit.com/r/wallstreetbets/comments/z32k6s/all_in_spy_puts_baby_update_wendys_for/)
+- [Buy the dip!](https://www.reddit.com/r/wallstreetbets/comments/z311t4/buy_the_dip/)
+- [What Are Your Recipes Tomorrow, November 24th, 2022](https://www.reddit.com/r/wallstreetbets/comments/z30krw/what_are_your_recipes_tomorrow_november_24th_2022/)
+- [Key points from the FOMC Minutes: participants growing increasingly bearish - stark contradiction from all these bullish headlines](https://www.reddit.com/r/wallstreetbets/comments/z2zmp4/key_points_from_the_fomc_minutes_participants/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
