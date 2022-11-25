@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Justin Hammer of EVs](https://www.reddit.com/r/wallstreetbets/comments/z34y86/justin_hammer_of_evs/)
-- [All in spy puts baby📉📉 update: Wendy’s for Thanksgiving!](https://www.reddit.com/r/wallstreetbets/comments/z32k6s/all_in_spy_puts_baby_update_wendys_for/)
-- [Buy the dip!](https://www.reddit.com/r/wallstreetbets/comments/z311t4/buy_the_dip/)
-- [What Are Your Recipes Tomorrow, November 24th, 2022](https://www.reddit.com/r/wallstreetbets/comments/z30krw/what_are_your_recipes_tomorrow_november_24th_2022/)
-- [Key points from the FOMC Minutes: participants growing increasingly bearish - stark contradiction from all these bullish headlines](https://www.reddit.com/r/wallstreetbets/comments/z2zmp4/key_points_from_the_fomc_minutes_participants/)
+- [China doesn&#39;t seem like it&#39;s opening up again... big implications for many US stocks](https://www.reddit.com/r/wallstreetbets/comments/z3ychb/china_doesnt_seem_like_its_opening_up_again_big/)
+- [Blackrock](https://www.reddit.com/r/wallstreetbets/comments/z3xk5y/blackrock/)
+- [Ever wonder where inflation originates?](https://www.reddit.com/r/wallstreetbets/comments/z3xd2s/ever_wonder_where_inflation_originates/)
+- [Mama always said, no one likes a quitter](https://www.reddit.com/r/wallstreetbets/comments/z3xa79/mama_always_said_no_one_likes_a_quitter/)
+- [WB&#39;s portfolio 2012 Vs 2022](https://www.reddit.com/r/wallstreetbets/comments/z3x7a7/wbs_portfolio_2012_vs_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
