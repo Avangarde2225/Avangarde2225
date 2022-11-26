@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [China doesn&#39;t seem like it&#39;s opening up again... big implications for many US stocks](https://www.reddit.com/r/wallstreetbets/comments/z3ychb/china_doesnt_seem_like_its_opening_up_again_big/)
-- [Blackrock](https://www.reddit.com/r/wallstreetbets/comments/z3xk5y/blackrock/)
-- [Ever wonder where inflation originates?](https://www.reddit.com/r/wallstreetbets/comments/z3xd2s/ever_wonder_where_inflation_originates/)
-- [Mama always said, no one likes a quitter](https://www.reddit.com/r/wallstreetbets/comments/z3xa79/mama_always_said_no_one_likes_a_quitter/)
-- [WB&#39;s portfolio 2012 Vs 2022](https://www.reddit.com/r/wallstreetbets/comments/z3x7a7/wbs_portfolio_2012_vs_2022/)
+- [Weekend Discussion Thread for the Weekend of November 26, 2022](https://www.reddit.com/r/wallstreetbets/comments/z4o1hy/weekend_discussion_thread_for_the_weekend_of/)
+- [11-25-22 SPY/ ES Futures and Tesla Weekly Market Recap and Analysis](https://www.reddit.com/r/wallstreetbets/comments/z4ntqf/112522_spy_es_futures_and_tesla_weekly_market/)
+- [NYSE Xmas tree going up. Let the Santa Rally begin!!!](https://www.reddit.com/r/wallstreetbets/comments/z4n8b9/nyse_xmas_tree_going_up_let_the_santa_rally_begin/)
+- [Chinese citizens are revolting against the new COVID lockdown and clash with COVID police](https://www.reddit.com/r/wallstreetbets/comments/z4moid/chinese_citizens_are_revolting_against_the_new/)
+- [For everyone who wished they bought Disney back in 2015 when it was $100…… You’re welcome!](https://www.reddit.com/r/wallstreetbets/comments/z4l5bp/for_everyone_who_wished_they_bought_disney_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
