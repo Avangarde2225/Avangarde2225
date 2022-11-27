@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Weekend Discussion Thread for the Weekend of November 26, 2022](https://www.reddit.com/r/wallstreetbets/comments/z4o1hy/weekend_discussion_thread_for_the_weekend_of/)
-- [11-25-22 SPY/ ES Futures and Tesla Weekly Market Recap and Analysis](https://www.reddit.com/r/wallstreetbets/comments/z4ntqf/112522_spy_es_futures_and_tesla_weekly_market/)
-- [NYSE Xmas tree going up. Let the Santa Rally begin!!!](https://www.reddit.com/r/wallstreetbets/comments/z4n8b9/nyse_xmas_tree_going_up_let_the_santa_rally_begin/)
-- [Chinese citizens are revolting against the new COVID lockdown and clash with COVID police](https://www.reddit.com/r/wallstreetbets/comments/z4moid/chinese_citizens_are_revolting_against_the_new/)
-- [For everyone who wished they bought Disney back in 2015 when it was $100…… You’re welcome!](https://www.reddit.com/r/wallstreetbets/comments/z4l5bp/for_everyone_who_wished_they_bought_disney_back/)
+- [VIX is close to bottoming out - possible upward inflection in the coming days?](https://www.reddit.com/r/wallstreetbets/comments/z5l9ol/vix_is_close_to_bottoming_out_possible_upward/)
+- [Some call it crazy](https://www.reddit.com/r/wallstreetbets/comments/z5l4l7/some_call_it_crazy/)
+- [MOVE-VIX divergence...](https://www.reddit.com/r/wallstreetbets/comments/z5kwb6/movevix_divergence/)
+- [Calls on Rivian? Saw two of these stupid looking things in my neighborhood today.](https://www.reddit.com/r/wallstreetbets/comments/z5kd8l/calls_on_rivian_saw_two_of_these_stupid_looking/)
+- [I think I f*cked up](https://www.reddit.com/r/wallstreetbets/comments/z5k7hl/i_think_i_fcked_up/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
