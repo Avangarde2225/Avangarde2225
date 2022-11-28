@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [VIX is close to bottoming out - possible upward inflection in the coming days?](https://www.reddit.com/r/wallstreetbets/comments/z5l9ol/vix_is_close_to_bottoming_out_possible_upward/)
-- [Some call it crazy](https://www.reddit.com/r/wallstreetbets/comments/z5l4l7/some_call_it_crazy/)
-- [MOVE-VIX divergence...](https://www.reddit.com/r/wallstreetbets/comments/z5kwb6/movevix_divergence/)
-- [Calls on Rivian? Saw two of these stupid looking things in my neighborhood today.](https://www.reddit.com/r/wallstreetbets/comments/z5kd8l/calls_on_rivian_saw_two_of_these_stupid_looking/)
-- [I think I f*cked up](https://www.reddit.com/r/wallstreetbets/comments/z5k7hl/i_think_i_fcked_up/)
+- [COVID protests sweeping China. Any thoughts on supply chain impact?](https://www.reddit.com/r/wallstreetbets/comments/z6fpda/covid_protests_sweeping_china_any_thoughts_on/)
+- [Shopify Merchants Break Black Friday Records with $3.36 Billion in Sales &lpar;17% increase over 2021&rpar;.](https://www.reddit.com/r/wallstreetbets/comments/z6fint/shopify_merchants_break_black_friday_records_with/)
+- [Consumer CC Debt is going to hit a peak, how do we play it?](https://www.reddit.com/r/wallstreetbets/comments/z6f1lz/consumer_cc_debt_is_going_to_hit_a_peak_how_do_we/)
+- [What Are Your Moves Tomorrow, November 28, 2022](https://www.reddit.com/r/wallstreetbets/comments/z6cfw8/what_are_your_moves_tomorrow_november_28_2022/)
+- [Only $4.20 more this week thanks to Black Friday!](https://www.reddit.com/r/wallstreetbets/comments/z6bpmb/only_420_more_this_week_thanks_to_black_friday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
