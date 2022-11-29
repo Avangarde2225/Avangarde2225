@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [COVID protests sweeping China. Any thoughts on supply chain impact?](https://www.reddit.com/r/wallstreetbets/comments/z6fpda/covid_protests_sweeping_china_any_thoughts_on/)
-- [Shopify Merchants Break Black Friday Records with $3.36 Billion in Sales &lpar;17% increase over 2021&rpar;.](https://www.reddit.com/r/wallstreetbets/comments/z6fint/shopify_merchants_break_black_friday_records_with/)
-- [Consumer CC Debt is going to hit a peak, how do we play it?](https://www.reddit.com/r/wallstreetbets/comments/z6f1lz/consumer_cc_debt_is_going_to_hit_a_peak_how_do_we/)
-- [What Are Your Moves Tomorrow, November 28, 2022](https://www.reddit.com/r/wallstreetbets/comments/z6cfw8/what_are_your_moves_tomorrow_november_28_2022/)
-- [Only $4.20 more this week thanks to Black Friday!](https://www.reddit.com/r/wallstreetbets/comments/z6bpmb/only_420_more_this_week_thanks_to_black_friday/)
+- [One of us](https://www.reddit.com/r/wallstreetbets/comments/z7d2on/one_of_us/)
+- [I NEEEEEED ITTTTTTT](https://www.reddit.com/r/wallstreetbets/comments/z7au59/i_neeeeeed_ittttttt/)
+- [1 day vs 1 month after joining this sub](https://www.reddit.com/r/wallstreetbets/comments/z7ac35/1_day_vs_1_month_after_joining_this_sub/)
+- [What Are Your Moves Tomorrow, November 29, 2022](https://www.reddit.com/r/wallstreetbets/comments/z78cuj/what_are_your_moves_tomorrow_november_29_2022/)
+- [The first Elon Apple war has started](https://www.reddit.com/r/wallstreetbets/comments/z77wrh/the_first_elon_apple_war_has_started/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
