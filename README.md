@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One of us](https://www.reddit.com/r/wallstreetbets/comments/z7d2on/one_of_us/)
-- [I NEEEEEED ITTTTTTT](https://www.reddit.com/r/wallstreetbets/comments/z7au59/i_neeeeeed_ittttttt/)
-- [1 day vs 1 month after joining this sub](https://www.reddit.com/r/wallstreetbets/comments/z7ac35/1_day_vs_1_month_after_joining_this_sub/)
-- [What Are Your Moves Tomorrow, November 29, 2022](https://www.reddit.com/r/wallstreetbets/comments/z78cuj/what_are_your_moves_tomorrow_november_29_2022/)
-- [The first Elon Apple war has started](https://www.reddit.com/r/wallstreetbets/comments/z77wrh/the_first_elon_apple_war_has_started/)
+- [Tim Cook to Elon Musk right now](https://www.reddit.com/r/wallstreetbets/comments/z8baqq/tim_cook_to_elon_musk_right_now/)
+- [what&#39;s the move?](https://www.reddit.com/r/wallstreetbets/comments/z88xva/whats_the_move/)
+- [11-29-22 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/z86uqt/112922_spy_es_futures_and_tesla_daily_market/)
+- [Chinese analyst sees $AAPL iPhone 14 Pro demand “wiped out” in 4Q 2022](https://www.reddit.com/r/wallstreetbets/comments/z86ir5/chinese_analyst_sees_aapl_iphone_14_pro_demand/)
+- [What Are Your Moves Tomorrow, November 30, 2022](https://www.reddit.com/r/wallstreetbets/comments/z85zyn/what_are_your_moves_tomorrow_november_30_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
