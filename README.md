@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🌈 🐻 🪦 Time to hibernate](https://www.reddit.com/r/wallstreetbets/comments/z962tz/time_to_hibernate/)
-- [Turned $3k into $51k by inversing WSB](https://www.reddit.com/r/wallstreetbets/comments/z95q3a/turned_3k_into_51k_by_inversing_wsb/)
-- [$500 to $51,100](https://www.reddit.com/r/wallstreetbets/comments/z95g9g/500_to_51100/)
-- [I’m so fucked for believe in JPow and his words](https://www.reddit.com/r/wallstreetbets/comments/z93e1q/im_so_fucked_for_believe_in_jpow_and_his_words/)
-- [$20k to $300](https://www.reddit.com/r/wallstreetbets/comments/z93cgi/20k_to_300/)
+- [BB update. Bought $40k more in calls today for 12/9.](https://www.reddit.com/r/wallstreetbets/comments/za54sw/bb_update_bought_40k_more_in_calls_today_for_129/)
+- [Lord help us all](https://www.reddit.com/r/wallstreetbets/comments/za4lo6/lord_help_us_all/)
+- [He doesn&#39;t have a gaming chair... that must be it!](https://www.reddit.com/r/wallstreetbets/comments/za3fnw/he_doesnt_have_a_gaming_chair_that_must_be_it/)
+- [Woke up today and for a second I thought I witnessed history.](https://www.reddit.com/r/wallstreetbets/comments/za2keo/woke_up_today_and_for_a_second_i_thought_i/)
+- [$COST puts turned $1.6k to $27.7k overnight](https://www.reddit.com/r/wallstreetbets/comments/za1n5z/cost_puts_turned_16k_to_277k_overnight/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
