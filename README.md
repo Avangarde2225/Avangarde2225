@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BB update. Bought $40k more in calls today for 12/9.](https://www.reddit.com/r/wallstreetbets/comments/za54sw/bb_update_bought_40k_more_in_calls_today_for_129/)
-- [Lord help us all](https://www.reddit.com/r/wallstreetbets/comments/za4lo6/lord_help_us_all/)
-- [He doesn&#39;t have a gaming chair... that must be it!](https://www.reddit.com/r/wallstreetbets/comments/za3fnw/he_doesnt_have_a_gaming_chair_that_must_be_it/)
-- [Woke up today and for a second I thought I witnessed history.](https://www.reddit.com/r/wallstreetbets/comments/za2keo/woke_up_today_and_for_a_second_i_thought_i/)
-- [$COST puts turned $1.6k to $27.7k overnight](https://www.reddit.com/r/wallstreetbets/comments/za1n5z/cost_puts_turned_16k_to_277k_overnight/)
+- [Even Wendy’s knows about Inverse Cramer!](https://www.reddit.com/r/wallstreetbets/comments/zb1c49/even_wendys_knows_about_inverse_cramer/)
+- [Declared bankruptcy after a certain e-commerce meme stonk destroyed my portfolio. My finance career in NZ is over; Canada work visa pending.](https://www.reddit.com/r/wallstreetbets/comments/zb0jdi/declared_bankruptcy_after_a_certain_ecommerce/)
+- [Is the bottom in? or is the next &quot;top&quot; in? ..... 12-2-22 SPY Weekly Market Recap and Analysis](https://www.reddit.com/r/wallstreetbets/comments/zazoex/is_the_bottom_in_or_is_the_next_top_in_12222_spy/)
+- [Weekend Discussion Thread for the Weekend of December 03, 2022](https://www.reddit.com/r/wallstreetbets/comments/zaxgmd/weekend_discussion_thread_for_the_weekend_of/)
+- [Let the sufferage begin 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/zaxav6/let_the_sufferage_begin/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
