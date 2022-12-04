@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Even Wendy’s knows about Inverse Cramer!](https://www.reddit.com/r/wallstreetbets/comments/zb1c49/even_wendys_knows_about_inverse_cramer/)
-- [Declared bankruptcy after a certain e-commerce meme stonk destroyed my portfolio. My finance career in NZ is over; Canada work visa pending.](https://www.reddit.com/r/wallstreetbets/comments/zb0jdi/declared_bankruptcy_after_a_certain_ecommerce/)
-- [Is the bottom in? or is the next &quot;top&quot; in? ..... 12-2-22 SPY Weekly Market Recap and Analysis](https://www.reddit.com/r/wallstreetbets/comments/zazoex/is_the_bottom_in_or_is_the_next_top_in_12222_spy/)
-- [Weekend Discussion Thread for the Weekend of December 03, 2022](https://www.reddit.com/r/wallstreetbets/comments/zaxgmd/weekend_discussion_thread_for_the_weekend_of/)
-- [Let the sufferage begin 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/zaxav6/let_the_sufferage_begin/)
+- [Amazon layoffs now expected to mount to 20,000, including top managers](https://www.reddit.com/r/wallstreetbets/comments/zbv48g/amazon_layoffs_now_expected_to_mount_to_20000/)
+- [Apple makes plans to move production out of China](https://www.reddit.com/r/wallstreetbets/comments/zbt09f/apple_makes_plans_to_move_production_out_of_china/)
+- [Gap up Monday starting our parabolic Xmas rally.](https://www.reddit.com/r/wallstreetbets/comments/zbqglj/gap_up_monday_starting_our_parabolic_xmas_rally/)
+- [Market indicators flaring bearish: suggests the top is coming or has already been reached](https://www.reddit.com/r/wallstreetbets/comments/zbniiv/market_indicators_flaring_bearish_suggests_the/)
+- [Bank of America](https://www.reddit.com/r/wallstreetbets/comments/zbkob9/bank_of_america/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
