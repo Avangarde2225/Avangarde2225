@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Amazon layoffs now expected to mount to 20,000, including top managers](https://www.reddit.com/r/wallstreetbets/comments/zbv48g/amazon_layoffs_now_expected_to_mount_to_20000/)
-- [Apple makes plans to move production out of China](https://www.reddit.com/r/wallstreetbets/comments/zbt09f/apple_makes_plans_to_move_production_out_of_china/)
-- [Gap up Monday starting our parabolic Xmas rally.](https://www.reddit.com/r/wallstreetbets/comments/zbqglj/gap_up_monday_starting_our_parabolic_xmas_rally/)
-- [Market indicators flaring bearish: suggests the top is coming or has already been reached](https://www.reddit.com/r/wallstreetbets/comments/zbniiv/market_indicators_flaring_bearish_suggests_the/)
-- [Bank of America](https://www.reddit.com/r/wallstreetbets/comments/zbkob9/bank_of_america/)
+- [VIX yearly average](https://www.reddit.com/r/wallstreetbets/comments/zcqfyc/vix_yearly_average/)
+- [Someone purchased $1.3 BILLION worth of $AAPL stock on Friday at the close😮](https://www.reddit.com/r/wallstreetbets/comments/zcpv08/someone_purchased_13_billion_worth_of_aapl_stock/)
+- [Made +$1,000,000 This Week!!!! Should I quit my job and continue trading or stay at my 9-5?](https://www.reddit.com/r/wallstreetbets/comments/zcp1og/made_1000000_this_week_should_i_quit_my_job_and/)
+- [China&#39;s market might be bouncing back](https://www.reddit.com/r/wallstreetbets/comments/zcoz3m/chinas_market_might_be_bouncing_back/)
+- [True Love](https://www.reddit.com/r/wallstreetbets/comments/zcoq8d/true_love/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
