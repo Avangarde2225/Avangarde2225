@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [VIX yearly average](https://www.reddit.com/r/wallstreetbets/comments/zcqfyc/vix_yearly_average/)
-- [Someone purchased $1.3 BILLION worth of $AAPL stock on Friday at the close😮](https://www.reddit.com/r/wallstreetbets/comments/zcpv08/someone_purchased_13_billion_worth_of_aapl_stock/)
-- [Made +$1,000,000 This Week!!!! Should I quit my job and continue trading or stay at my 9-5?](https://www.reddit.com/r/wallstreetbets/comments/zcp1og/made_1000000_this_week_should_i_quit_my_job_and/)
-- [China&#39;s market might be bouncing back](https://www.reddit.com/r/wallstreetbets/comments/zcoz3m/chinas_market_might_be_bouncing_back/)
-- [True Love](https://www.reddit.com/r/wallstreetbets/comments/zcoq8d/true_love/)
+- [This is what I get for trading SPY and SPX options](https://www.reddit.com/r/wallstreetbets/comments/zdo979/this_is_what_i_get_for_trading_spy_and_spx_options/)
+- [Scariest 15 minutes of my life. +$18,000 SPX gain.](https://www.reddit.com/r/wallstreetbets/comments/zdleeg/scariest_15_minutes_of_my_life_18000_spx_gain/)
+- [US seniors to get an 8.7% increase in their social security payments &amp; next week&#39;s FOMC](https://www.reddit.com/r/wallstreetbets/comments/zdk8m3/us_seniors_to_get_an_87_increase_in_their_social/)
+- [What Are Your Moves Tomorrow, December 06, 2022](https://www.reddit.com/r/wallstreetbets/comments/zdjiax/what_are_your_moves_tomorrow_december_06_2022/)
+- [What the fuck does “Pivot” mean?](https://www.reddit.com/r/wallstreetbets/comments/zdj6q4/what_the_fuck_does_pivot_mean/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
