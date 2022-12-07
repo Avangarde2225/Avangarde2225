@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is what I get for trading SPY and SPX options](https://www.reddit.com/r/wallstreetbets/comments/zdo979/this_is_what_i_get_for_trading_spy_and_spx_options/)
-- [Scariest 15 minutes of my life. +$18,000 SPX gain.](https://www.reddit.com/r/wallstreetbets/comments/zdleeg/scariest_15_minutes_of_my_life_18000_spx_gain/)
-- [US seniors to get an 8.7% increase in their social security payments &amp; next week&#39;s FOMC](https://www.reddit.com/r/wallstreetbets/comments/zdk8m3/us_seniors_to_get_an_87_increase_in_their_social/)
-- [What Are Your Moves Tomorrow, December 06, 2022](https://www.reddit.com/r/wallstreetbets/comments/zdjiax/what_are_your_moves_tomorrow_december_06_2022/)
-- [What the fuck does “Pivot” mean?](https://www.reddit.com/r/wallstreetbets/comments/zdj6q4/what_the_fuck_does_pivot_mean/)
+- [No risk it no biscuit](https://www.reddit.com/r/wallstreetbets/comments/zelvjt/no_risk_it_no_biscuit/)
+- [&#39;Shark Tank&#39; investor Kevin O&#39;Leary says that he&#39;ll get his money back from FTX ...LOL....](https://www.reddit.com/r/wallstreetbets/comments/zeku4v/shark_tank_investor_kevin_oleary_says_that_hell/)
+- [One of my best days.](https://www.reddit.com/r/wallstreetbets/comments/zekrca/one_of_my_best_days/)
+- [Remember this quote](https://www.reddit.com/r/wallstreetbets/comments/zejs3k/remember_this_quote/)
+- [Waiting for all of two seconds](https://www.reddit.com/r/wallstreetbets/comments/zejbbo/waiting_for_all_of_two_seconds/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
