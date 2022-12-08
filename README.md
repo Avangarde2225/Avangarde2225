@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [No risk it no biscuit](https://www.reddit.com/r/wallstreetbets/comments/zelvjt/no_risk_it_no_biscuit/)
-- [&#39;Shark Tank&#39; investor Kevin O&#39;Leary says that he&#39;ll get his money back from FTX ...LOL....](https://www.reddit.com/r/wallstreetbets/comments/zeku4v/shark_tank_investor_kevin_oleary_says_that_hell/)
-- [One of my best days.](https://www.reddit.com/r/wallstreetbets/comments/zekrca/one_of_my_best_days/)
-- [Remember this quote](https://www.reddit.com/r/wallstreetbets/comments/zejs3k/remember_this_quote/)
-- [Waiting for all of two seconds](https://www.reddit.com/r/wallstreetbets/comments/zejbbo/waiting_for_all_of_two_seconds/)
+- [Time to panic?](https://www.reddit.com/r/wallstreetbets/comments/zfinjb/time_to_panic/)
+- [My grandma once told me:” Money is like hair, it grows back!”. And she is right. Shame I’m bald…](https://www.reddit.com/r/wallstreetbets/comments/zfh38c/my_grandma_once_told_me_money_is_like_hair_it/)
+- [Who’s is hiring? What type of work you guys got that can hire me](https://www.reddit.com/r/wallstreetbets/comments/zfgnvz/whos_is_hiring_what_type_of_work_you_guys_got/)
+- [GETS YOUR PUTS IN BOYS! I’m literally always wrong and this final CPI Yolo won’t be any different.](https://www.reddit.com/r/wallstreetbets/comments/zfeiv1/gets_your_puts_in_boys_im_literally_always_wrong/)
+- [What Are Your Moves Tomorrow, December 08, 2022](https://www.reddit.com/r/wallstreetbets/comments/zfdncr/what_are_your_moves_tomorrow_december_08_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
