@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Time to panic?](https://www.reddit.com/r/wallstreetbets/comments/zfinjb/time_to_panic/)
-- [My grandma once told me:” Money is like hair, it grows back!”. And she is right. Shame I’m bald…](https://www.reddit.com/r/wallstreetbets/comments/zfh38c/my_grandma_once_told_me_money_is_like_hair_it/)
-- [Who’s is hiring? What type of work you guys got that can hire me](https://www.reddit.com/r/wallstreetbets/comments/zfgnvz/whos_is_hiring_what_type_of_work_you_guys_got/)
-- [GETS YOUR PUTS IN BOYS! I’m literally always wrong and this final CPI Yolo won’t be any different.](https://www.reddit.com/r/wallstreetbets/comments/zfeiv1/gets_your_puts_in_boys_im_literally_always_wrong/)
-- [What Are Your Moves Tomorrow, December 08, 2022](https://www.reddit.com/r/wallstreetbets/comments/zfdncr/what_are_your_moves_tomorrow_december_08_2022/)
+- [WallStreetBets Recap! Thanks for being on WSB 💖](https://www.reddit.com/r/wallstreetbets/comments/zgf0jt/wallstreetbets_recap_thanks_for_being_on_wsb/)
+- [Holding $35K+ in SPY calls expiring EOD tomorrow.. YOLO](https://www.reddit.com/r/wallstreetbets/comments/zgedvj/holding_35k_in_spy_calls_expiring_eod_tomorrow/)
+- [2021 SPAC returns. How heavy are your bags](https://www.reddit.com/r/wallstreetbets/comments/zgcx3g/2021_spac_returns_how_heavy_are_your_bags/)
+- [Tried to call J Pow’s bluff, went bankrupt instead.](https://www.reddit.com/r/wallstreetbets/comments/zgc1hn/tried_to_call_j_pows_bluff_went_bankrupt_instead/)
+- [Not sure if I’m actually getting the hang of options or just getting luckier? Back to green y’all!](https://www.reddit.com/r/wallstreetbets/comments/zgbgau/not_sure_if_im_actually_getting_the_hang_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
