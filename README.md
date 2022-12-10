@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WallStreetBets Recap! Thanks for being on WSB 💖](https://www.reddit.com/r/wallstreetbets/comments/zgf0jt/wallstreetbets_recap_thanks_for_being_on_wsb/)
-- [Holding $35K+ in SPY calls expiring EOD tomorrow.. YOLO](https://www.reddit.com/r/wallstreetbets/comments/zgedvj/holding_35k_in_spy_calls_expiring_eod_tomorrow/)
-- [2021 SPAC returns. How heavy are your bags](https://www.reddit.com/r/wallstreetbets/comments/zgcx3g/2021_spac_returns_how_heavy_are_your_bags/)
-- [Tried to call J Pow’s bluff, went bankrupt instead.](https://www.reddit.com/r/wallstreetbets/comments/zgc1hn/tried_to_call_j_pows_bluff_went_bankrupt_instead/)
-- [Not sure if I’m actually getting the hang of options or just getting luckier? Back to green y’all!](https://www.reddit.com/r/wallstreetbets/comments/zgbgau/not_sure_if_im_actually_getting_the_hang_of/)
+- [GUH - love this man](https://www.reddit.com/r/wallstreetbets/comments/zhceti/guh_love_this_man/)
+- [Splunk &lpar;SPLK&rpar; Due Diligence](https://www.reddit.com/r/wallstreetbets/comments/zhbe03/splunk_splk_due_diligence/)
+- [Hey, how to fix this?](https://www.reddit.com/r/wallstreetbets/comments/zh9l7a/hey_how_to_fix_this/)
+- [It is what it is…](https://www.reddit.com/r/wallstreetbets/comments/zh8t1d/it_is_what_it_is/)
+- [Weekend Discussion Thread for the Weekend of December 10, 2022](https://www.reddit.com/r/wallstreetbets/comments/zh8kto/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
