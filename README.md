@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GUH - love this man](https://www.reddit.com/r/wallstreetbets/comments/zhceti/guh_love_this_man/)
-- [Splunk &lpar;SPLK&rpar; Due Diligence](https://www.reddit.com/r/wallstreetbets/comments/zhbe03/splunk_splk_due_diligence/)
-- [Hey, how to fix this?](https://www.reddit.com/r/wallstreetbets/comments/zh9l7a/hey_how_to_fix_this/)
-- [It is what it is…](https://www.reddit.com/r/wallstreetbets/comments/zh8t1d/it_is_what_it_is/)
-- [Weekend Discussion Thread for the Weekend of December 10, 2022](https://www.reddit.com/r/wallstreetbets/comments/zh8kto/weekend_discussion_thread_for_the_weekend_of/)
+- [Loaded up on CVNA Puts for next week](https://www.reddit.com/r/wallstreetbets/comments/zi7q0c/loaded_up_on_cvna_puts_for_next_week/)
+- [The good ol’ days… before everything went regarded](https://www.reddit.com/r/wallstreetbets/comments/zi7fzi/the_good_ol_days_before_everything_went_regarded/)
+- [New Strategy of Norway&#39;s $1.2 trillion fund](https://www.reddit.com/r/wallstreetbets/comments/zi538z/new_strategy_of_norways_12_trillion_fund/)
+- [Why December Could be a Bloodbath: Limited Upside, Volatile Downside](https://www.reddit.com/r/wallstreetbets/comments/zi51ir/why_december_could_be_a_bloodbath_limited_upside/)
+- [Companies Wants This to be 2008 So Bad](https://www.reddit.com/r/wallstreetbets/comments/zi4zbo/companies_wants_this_to_be_2008_so_bad/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
