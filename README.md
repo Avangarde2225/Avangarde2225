@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Loaded up on CVNA Puts for next week](https://www.reddit.com/r/wallstreetbets/comments/zi7q0c/loaded_up_on_cvna_puts_for_next_week/)
-- [The good ol’ days… before everything went regarded](https://www.reddit.com/r/wallstreetbets/comments/zi7fzi/the_good_ol_days_before_everything_went_regarded/)
-- [New Strategy of Norway&#39;s $1.2 trillion fund](https://www.reddit.com/r/wallstreetbets/comments/zi538z/new_strategy_of_norways_12_trillion_fund/)
-- [Why December Could be a Bloodbath: Limited Upside, Volatile Downside](https://www.reddit.com/r/wallstreetbets/comments/zi51ir/why_december_could_be_a_bloodbath_limited_upside/)
-- [Companies Wants This to be 2008 So Bad](https://www.reddit.com/r/wallstreetbets/comments/zi4zbo/companies_wants_this_to_be_2008_so_bad/)
+- [Wife said bear market was driving me crazy. Step outside she said ...](https://www.reddit.com/r/wallstreetbets/comments/zjg0jg/wife_said_bear_market_was_driving_me_crazy_step/)
+- [First year in the market. 7K to 50K+](https://www.reddit.com/r/wallstreetbets/comments/zj9jjz/first_year_in_the_market_7k_to_50k/)
+- [How to time the market](https://www.reddit.com/r/wallstreetbets/comments/zj8zdv/how_to_time_the_market/)
+- [What Are Your Moves Tomorrow, December 12, 2022](https://www.reddit.com/r/wallstreetbets/comments/zj8nmc/what_are_your_moves_tomorrow_december_12_2022/)
+- [Someone sold $1.18 BILLION worth of AAPL stock on Friday at the close 😮](https://www.reddit.com/r/wallstreetbets/comments/zj7xbo/someone_sold_118_billion_worth_of_aapl_stock_on/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
