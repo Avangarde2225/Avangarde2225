@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wife said bear market was driving me crazy. Step outside she said ...](https://www.reddit.com/r/wallstreetbets/comments/zjg0jg/wife_said_bear_market_was_driving_me_crazy_step/)
-- [First year in the market. 7K to 50K+](https://www.reddit.com/r/wallstreetbets/comments/zj9jjz/first_year_in_the_market_7k_to_50k/)
-- [How to time the market](https://www.reddit.com/r/wallstreetbets/comments/zj8zdv/how_to_time_the_market/)
-- [What Are Your Moves Tomorrow, December 12, 2022](https://www.reddit.com/r/wallstreetbets/comments/zj8nmc/what_are_your_moves_tomorrow_december_12_2022/)
-- [Someone sold $1.18 BILLION worth of AAPL stock on Friday at the close 😮](https://www.reddit.com/r/wallstreetbets/comments/zj7xbo/someone_sold_118_billion_worth_of_aapl_stock_on/)
+- [SB F in the chat](https://www.reddit.com/r/wallstreetbets/comments/zkgaws/sb_f_in_the_chat/)
+- [It’s either a soup kitchen or a lambo tomorrow there is no in between](https://www.reddit.com/r/wallstreetbets/comments/zkfvod/its_either_a_soup_kitchen_or_a_lambo_tomorrow/)
+- [SBF Arrested by Bahamian authorities.](https://www.reddit.com/r/wallstreetbets/comments/zkfn15/sbf_arrested_by_bahamian_authorities/)
+- [🐻](https://www.reddit.com/r/wallstreetbets/comments/zkfdb4/_/)
+- [He&#39;s talking about us!](https://www.reddit.com/r/wallstreetbets/comments/zkecm4/hes_talking_about_us/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
