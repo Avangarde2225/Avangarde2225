@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SB F in the chat](https://www.reddit.com/r/wallstreetbets/comments/zkgaws/sb_f_in_the_chat/)
-- [It’s either a soup kitchen or a lambo tomorrow there is no in between](https://www.reddit.com/r/wallstreetbets/comments/zkfvod/its_either_a_soup_kitchen_or_a_lambo_tomorrow/)
-- [SBF Arrested by Bahamian authorities.](https://www.reddit.com/r/wallstreetbets/comments/zkfn15/sbf_arrested_by_bahamian_authorities/)
-- [🐻](https://www.reddit.com/r/wallstreetbets/comments/zkfdb4/_/)
-- [He&#39;s talking about us!](https://www.reddit.com/r/wallstreetbets/comments/zkecm4/hes_talking_about_us/)
+- [Send it](https://www.reddit.com/r/wallstreetbets/comments/zlbg0b/send_it/)
+- [Powell deciding what to wear](https://www.reddit.com/r/wallstreetbets/comments/zlaxib/powell_deciding_what_to_wear/)
+- [Dad set up a nice fund for me and I’ve tried to succeed but I’m too impulsive](https://www.reddit.com/r/wallstreetbets/comments/zl9gm3/dad_set_up_a_nice_fund_for_me_and_ive_tried_to/)
+- [She doesn’t understand.](https://www.reddit.com/r/wallstreetbets/comments/zl8c98/she_doesnt_understand/)
+- [The cult is still buying no wonder Tesla is in tank mode](https://www.reddit.com/r/wallstreetbets/comments/zl7oq8/the_cult_is_still_buying_no_wonder_tesla_is_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
