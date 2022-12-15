@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Send it](https://www.reddit.com/r/wallstreetbets/comments/zlbg0b/send_it/)
-- [Powell deciding what to wear](https://www.reddit.com/r/wallstreetbets/comments/zlaxib/powell_deciding_what_to_wear/)
-- [Dad set up a nice fund for me and I’ve tried to succeed but I’m too impulsive](https://www.reddit.com/r/wallstreetbets/comments/zl9gm3/dad_set_up_a_nice_fund_for_me_and_ive_tried_to/)
-- [She doesn’t understand.](https://www.reddit.com/r/wallstreetbets/comments/zl8c98/she_doesnt_understand/)
-- [The cult is still buying no wonder Tesla is in tank mode](https://www.reddit.com/r/wallstreetbets/comments/zl7oq8/the_cult_is_still_buying_no_wonder_tesla_is_in/)
+- [Very sus](https://www.reddit.com/r/wallstreetbets/comments/zm6p8f/very_sus/)
+- [in response to the fortune cover I saw posted](https://www.reddit.com/r/wallstreetbets/comments/zm61el/in_response_to_the_fortune_cover_i_saw_posted/)
+- [My calls are fuked](https://www.reddit.com/r/wallstreetbets/comments/zm37nb/my_calls_are_fuked/)
+- [What Are Your Moves Tomorrow, December 15, 2022](https://www.reddit.com/r/wallstreetbets/comments/zm223i/what_are_your_moves_tomorrow_december_15_2022/)
+- [And here I was thinking this was gonna end with my options printing on the volatility](https://www.reddit.com/r/wallstreetbets/comments/zm1bqd/and_here_i_was_thinking_this_was_gonna_end_with/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
