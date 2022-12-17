@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Every single time…](https://www.reddit.com/r/wallstreetbets/comments/zn0hx9/every_single_time/)
-- [Guess that didn’t work out](https://www.reddit.com/r/wallstreetbets/comments/zmzm8o/guess_that_didnt_work_out/)
-- [Apes go broke squeezing their poles: an explainer](https://www.reddit.com/r/wallstreetbets/comments/zmx4i9/apes_go_broke_squeezing_their_poles_an_explainer/)
-- [Exactly](https://www.reddit.com/r/wallstreetbets/comments/zmwvz0/exactly/)
-- [hope these guys go away for a long time](https://www.reddit.com/r/wallstreetbets/comments/zmw3ia/hope_these_guys_go_away_for_a_long_time/)
+- [Sorry Tesla Bagholders.](https://www.reddit.com/r/wallstreetbets/comments/znshtp/sorry_tesla_bagholders/)
+- [Loss porn - just got 50K personal loan approved so I’m gonna get it back. Wish me luck](https://www.reddit.com/r/wallstreetbets/comments/znsd2r/loss_porn_just_got_50k_personal_loan_approved_so/)
+- [$KO investor relations campaign to target WSB users](https://www.reddit.com/r/wallstreetbets/comments/znru2y/ko_investor_relations_campaign_to_target_wsb_users/)
+- [Weekend Discussion Thread for the Weekend of December 17, 2022](https://www.reddit.com/r/wallstreetbets/comments/znoyvz/weekend_discussion_thread_for_the_weekend_of/)
+- [Tesla&#39;s order backlog drops to its lowest less 200,000. Let THAT sink in.](https://www.reddit.com/r/wallstreetbets/comments/zno6j3/teslas_order_backlog_drops_to_its_lowest_less/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
