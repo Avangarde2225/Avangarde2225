@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sorry Tesla Bagholders.](https://www.reddit.com/r/wallstreetbets/comments/znshtp/sorry_tesla_bagholders/)
-- [Loss porn - just got 50K personal loan approved so I’m gonna get it back. Wish me luck](https://www.reddit.com/r/wallstreetbets/comments/znsd2r/loss_porn_just_got_50k_personal_loan_approved_so/)
-- [$KO investor relations campaign to target WSB users](https://www.reddit.com/r/wallstreetbets/comments/znru2y/ko_investor_relations_campaign_to_target_wsb_users/)
-- [Weekend Discussion Thread for the Weekend of December 17, 2022](https://www.reddit.com/r/wallstreetbets/comments/znoyvz/weekend_discussion_thread_for_the_weekend_of/)
-- [Tesla&#39;s order backlog drops to its lowest less 200,000. Let THAT sink in.](https://www.reddit.com/r/wallstreetbets/comments/zno6j3/teslas_order_backlog_drops_to_its_lowest_less/)
+- [Crypto scammer on Pinterest](https://www.reddit.com/r/wallstreetbets/comments/zoksff/crypto_scammer_on_pinterest/)
+- [Never Forget 6/22/22](https://www.reddit.com/r/wallstreetbets/comments/zokpgr/never_forget_62222/)
+- [Buy the dip they said 😢](https://www.reddit.com/r/wallstreetbets/comments/zoi3hi/buy_the_dip_they_said/)
+- [When stocks go up it&#39;s because I&#39;m a brilliant businessman. When they go down it&#39;s the government&#39;s fault.](https://www.reddit.com/r/wallstreetbets/comments/zofnrn/when_stocks_go_up_its_because_im_a_brilliant/)
+- [Market up or market down, the ending is always the same.](https://www.reddit.com/r/wallstreetbets/comments/zof4k0/market_up_or_market_down_the_ending_is_always_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
