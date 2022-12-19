@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Crypto scammer on Pinterest](https://www.reddit.com/r/wallstreetbets/comments/zoksff/crypto_scammer_on_pinterest/)
-- [Never Forget 6/22/22](https://www.reddit.com/r/wallstreetbets/comments/zokpgr/never_forget_62222/)
-- [Buy the dip they said 😢](https://www.reddit.com/r/wallstreetbets/comments/zoi3hi/buy_the_dip_they_said/)
-- [When stocks go up it&#39;s because I&#39;m a brilliant businessman. When they go down it&#39;s the government&#39;s fault.](https://www.reddit.com/r/wallstreetbets/comments/zofnrn/when_stocks_go_up_its_because_im_a_brilliant/)
-- [Market up or market down, the ending is always the same.](https://www.reddit.com/r/wallstreetbets/comments/zof4k0/market_up_or_market_down_the_ending_is_always_the/)
+- [exited for the future](https://www.reddit.com/r/wallstreetbets/comments/zpceah/exited_for_the_future/)
+- [In 12 hours, Trump will be the CEO of Twitter.](https://www.reddit.com/r/wallstreetbets/comments/zpc5dp/in_12_hours_trump_will_be_the_ceo_of_twitter/)
+- [Santa isn&#39;t coming this year](https://www.reddit.com/r/wallstreetbets/comments/zp9mz4/santa_isnt_coming_this_year/)
+- [2021 vs 2022](https://www.reddit.com/r/wallstreetbets/comments/zp9gec/2021_vs_2022/)
+- [First time since I started investing that I won&#39;t be able to claim a capital loss on my taxes. Pretty much all from 0DTE CPI strangles.](https://www.reddit.com/r/wallstreetbets/comments/zp9alx/first_time_since_i_started_investing_that_i_wont/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
