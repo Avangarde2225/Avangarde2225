@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [exited for the future](https://www.reddit.com/r/wallstreetbets/comments/zpceah/exited_for_the_future/)
-- [In 12 hours, Trump will be the CEO of Twitter.](https://www.reddit.com/r/wallstreetbets/comments/zpc5dp/in_12_hours_trump_will_be_the_ceo_of_twitter/)
-- [Santa isn&#39;t coming this year](https://www.reddit.com/r/wallstreetbets/comments/zp9mz4/santa_isnt_coming_this_year/)
-- [2021 vs 2022](https://www.reddit.com/r/wallstreetbets/comments/zp9gec/2021_vs_2022/)
-- [First time since I started investing that I won&#39;t be able to claim a capital loss on my taxes. Pretty much all from 0DTE CPI strangles.](https://www.reddit.com/r/wallstreetbets/comments/zp9alx/first_time_since_i_started_investing_that_i_wont/)
+- [12 rounds for 2023](https://www.reddit.com/r/wallstreetbets/comments/zq6bzl/12_rounds_for_2023/)
+- [Elon Musk has stepped down as head of Twitter &amp; announced the new CEO .😉](https://www.reddit.com/r/wallstreetbets/comments/zq50bo/elon_musk_has_stepped_down_as_head_of_twitter/)
+- [How I’m eating in 2023](https://www.reddit.com/r/wallstreetbets/comments/zq4ss0/how_im_eating_in_2023/)
+- [S&amp;P hasn’t even begun to correct - You’re welcome!](https://www.reddit.com/r/wallstreetbets/comments/zq3ujz/sp_hasnt_even_begun_to_correct_youre_welcome/)
+- [1k &gt; 30k in a week with SPY FDs](https://www.reddit.com/r/wallstreetbets/comments/zq3h4q/1k_30k_in_a_week_with_spy_fds/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
