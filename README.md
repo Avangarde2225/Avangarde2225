@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [12 rounds for 2023](https://www.reddit.com/r/wallstreetbets/comments/zq6bzl/12_rounds_for_2023/)
-- [Elon Musk has stepped down as head of Twitter &amp; announced the new CEO .😉](https://www.reddit.com/r/wallstreetbets/comments/zq50bo/elon_musk_has_stepped_down_as_head_of_twitter/)
-- [How I’m eating in 2023](https://www.reddit.com/r/wallstreetbets/comments/zq4ss0/how_im_eating_in_2023/)
-- [S&amp;P hasn’t even begun to correct - You’re welcome!](https://www.reddit.com/r/wallstreetbets/comments/zq3ujz/sp_hasnt_even_begun_to_correct_youre_welcome/)
-- [1k &gt; 30k in a week with SPY FDs](https://www.reddit.com/r/wallstreetbets/comments/zq3h4q/1k_30k_in_a_week_with_spy_fds/)
+- [3 Years buying regular shares. No Options. I took 50k to buy a house and 15k for a downpayment on my Tesla.](https://www.reddit.com/r/wallstreetbets/comments/zr3gag/3_years_buying_regular_shares_no_options_i_took/)
+- [Sorry Elon, it’s not personal, it’s just a really need a W in my life right now.](https://www.reddit.com/r/wallstreetbets/comments/zr2417/sorry_elon_its_not_personal_its_just_a_really/)
+- [People in the daily thread were asking someone to post TESLA short gains...](https://www.reddit.com/r/wallstreetbets/comments/zr0mcj/people_in_the_daily_thread_were_asking_someone_to/)
+- [Race to the bottom. Who&#39;ll win?](https://www.reddit.com/r/wallstreetbets/comments/zqzx3c/race_to_the_bottom_wholl_win/)
+- [What Are Your Moves Tomorrow, December 21, 2022](https://www.reddit.com/r/wallstreetbets/comments/zqziol/what_are_your_moves_tomorrow_december_21_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
