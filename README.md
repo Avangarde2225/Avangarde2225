@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [3 Years buying regular shares. No Options. I took 50k to buy a house and 15k for a downpayment on my Tesla.](https://www.reddit.com/r/wallstreetbets/comments/zr3gag/3_years_buying_regular_shares_no_options_i_took/)
-- [Sorry Elon, it’s not personal, it’s just a really need a W in my life right now.](https://www.reddit.com/r/wallstreetbets/comments/zr2417/sorry_elon_its_not_personal_its_just_a_really/)
-- [People in the daily thread were asking someone to post TESLA short gains...](https://www.reddit.com/r/wallstreetbets/comments/zr0mcj/people_in_the_daily_thread_were_asking_someone_to/)
-- [Race to the bottom. Who&#39;ll win?](https://www.reddit.com/r/wallstreetbets/comments/zqzx3c/race_to_the_bottom_wholl_win/)
-- [What Are Your Moves Tomorrow, December 21, 2022](https://www.reddit.com/r/wallstreetbets/comments/zqziol/what_are_your_moves_tomorrow_december_21_2022/)
+- [Just when it seemed to be leveling off, the printer started up again.](https://www.reddit.com/r/wallstreetbets/comments/zs50yv/just_when_it_seemed_to_be_leveling_off_the/)
+- [Wallstreetbets this year be like:](https://www.reddit.com/r/wallstreetbets/comments/zs3x8n/wallstreetbets_this_year_be_like/)
+- [am i doing it right??](https://www.reddit.com/r/wallstreetbets/comments/zs3njp/am_i_doing_it_right/)
+- [Am I doing this right? I turn 530-11.9k in 3 days. Am I lucky or what?](https://www.reddit.com/r/wallstreetbets/comments/zs3mll/am_i_doing_this_right_i_turn_530119k_in_3_days_am/)
+- [Gambled big to get back to even. Yolo on the SPY again, ended with 200K in gains, up 20% all time, 13%YTD](https://www.reddit.com/r/wallstreetbets/comments/zs2cpm/gambled_big_to_get_back_to_even_yolo_on_the_spy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
