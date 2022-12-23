@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Just when it seemed to be leveling off, the printer started up again.](https://www.reddit.com/r/wallstreetbets/comments/zs50yv/just_when_it_seemed_to_be_leveling_off_the/)
-- [Wallstreetbets this year be like:](https://www.reddit.com/r/wallstreetbets/comments/zs3x8n/wallstreetbets_this_year_be_like/)
-- [am i doing it right??](https://www.reddit.com/r/wallstreetbets/comments/zs3njp/am_i_doing_it_right/)
-- [Am I doing this right? I turn 530-11.9k in 3 days. Am I lucky or what?](https://www.reddit.com/r/wallstreetbets/comments/zs3mll/am_i_doing_this_right_i_turn_530119k_in_3_days_am/)
-- [Gambled big to get back to even. Yolo on the SPY again, ended with 200K in gains, up 20% all time, 13%YTD](https://www.reddit.com/r/wallstreetbets/comments/zs2cpm/gambled_big_to_get_back_to_even_yolo_on_the_spy/)
+- [Update: Got 50K SOFI loan today and YOLO’ed. Lost everything. Thinking of nothing but how to give up living cleanly. I’m done](https://www.reddit.com/r/wallstreetbets/comments/zszr9t/update_got_50k_sofi_loan_today_and_yoloed_lost/)
+- [50k Loss and Recovery](https://www.reddit.com/r/wallstreetbets/comments/zswz87/50k_loss_and_recovery/)
+- [What Are Your Moves Tomorrow, December 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/zswpcb/what_are_your_moves_tomorrow_december_23_2022/)
+- [That margin call is coming fast..](https://www.reddit.com/r/wallstreetbets/comments/zswn3o/that_margin_call_is_coming_fast/)
+- [Santa Rally 2022](https://www.reddit.com/r/wallstreetbets/comments/zsw3ks/santa_rally_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
