@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Update: Got 50K SOFI loan today and YOLO’ed. Lost everything. Thinking of nothing but how to give up living cleanly. I’m done](https://www.reddit.com/r/wallstreetbets/comments/zszr9t/update_got_50k_sofi_loan_today_and_yoloed_lost/)
-- [50k Loss and Recovery](https://www.reddit.com/r/wallstreetbets/comments/zswz87/50k_loss_and_recovery/)
-- [What Are Your Moves Tomorrow, December 23, 2022](https://www.reddit.com/r/wallstreetbets/comments/zswpcb/what_are_your_moves_tomorrow_december_23_2022/)
-- [That margin call is coming fast..](https://www.reddit.com/r/wallstreetbets/comments/zswn3o/that_margin_call_is_coming_fast/)
-- [Santa Rally 2022](https://www.reddit.com/r/wallstreetbets/comments/zsw3ks/santa_rally_2022/)
+- [Turkey’s people get a return in their money of -94% over a decade. Surprise that they didn’t post loss porn yet](https://www.reddit.com/r/wallstreetbets/comments/ztvt29/turkeys_people_get_a_return_in_their_money_of_94/)
+- [Bill Ackman slams Sam Bankman-Fried’s bond deal, says he thinks SBF’s posting of $250 million bail ‘is itself a criminal indictment’](https://www.reddit.com/r/wallstreetbets/comments/ztvo5p/bill_ackman_slams_sam_bankmanfrieds_bond_deal/)
+- [Christmas 🎄 came early for my folks. Over 1500% for some people. 100k 💥](https://www.reddit.com/r/wallstreetbets/comments/ztvo3w/christmas_came_early_for_my_folks_over_1500_for/)
+- [Made 100k with 10k in one day after loosing all my savings. &lpar;300k&rpar; I WILL RAISE FROM THE ASHES LIKE A PHOENIX!](https://www.reddit.com/r/wallstreetbets/comments/ztulap/made_100k_with_10k_in_one_day_after_loosing_all/)
+- [Weekend Discussion Thread for the Weekend of December 24, 2022](https://www.reddit.com/r/wallstreetbets/comments/ztshtx/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
