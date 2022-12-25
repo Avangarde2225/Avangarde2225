@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Turkey’s people get a return in their money of -94% over a decade. Surprise that they didn’t post loss porn yet](https://www.reddit.com/r/wallstreetbets/comments/ztvt29/turkeys_people_get_a_return_in_their_money_of_94/)
-- [Bill Ackman slams Sam Bankman-Fried’s bond deal, says he thinks SBF’s posting of $250 million bail ‘is itself a criminal indictment’](https://www.reddit.com/r/wallstreetbets/comments/ztvo5p/bill_ackman_slams_sam_bankmanfrieds_bond_deal/)
-- [Christmas 🎄 came early for my folks. Over 1500% for some people. 100k 💥](https://www.reddit.com/r/wallstreetbets/comments/ztvo3w/christmas_came_early_for_my_folks_over_1500_for/)
-- [Made 100k with 10k in one day after loosing all my savings. &lpar;300k&rpar; I WILL RAISE FROM THE ASHES LIKE A PHOENIX!](https://www.reddit.com/r/wallstreetbets/comments/ztulap/made_100k_with_10k_in_one_day_after_loosing_all/)
-- [Weekend Discussion Thread for the Weekend of December 24, 2022](https://www.reddit.com/r/wallstreetbets/comments/ztshtx/weekend_discussion_thread_for_the_weekend_of/)
+- [Sold my testicles for these puts](https://www.reddit.com/r/wallstreetbets/comments/zul5yr/sold_my_testicles_for_these_puts/)
+- [2022 crap](https://www.reddit.com/r/wallstreetbets/comments/zul4d6/2022_crap/)
+- [TSLA insiders dumping bags&lpar;red&rpar; VS buying&lpar;green&rpar;](https://www.reddit.com/r/wallstreetbets/comments/zukb1z/tsla_insiders_dumping_bagsred_vs_buyinggreen/)
+- [Short 3848 on the overnight dump Tuesday - Wednesday. Covered 3812. Longed 3825 sold 3850. Biggest day on ES.](https://www.reddit.com/r/wallstreetbets/comments/zujfnb/short_3848_on_the_overnight_dump_tuesday/)
+- [found this...when tech pros get into real estate](https://www.reddit.com/r/wallstreetbets/comments/zuik2s/found_thiswhen_tech_pros_get_into_real_estate/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
