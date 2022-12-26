@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sold my testicles for these puts](https://www.reddit.com/r/wallstreetbets/comments/zul5yr/sold_my_testicles_for_these_puts/)
-- [2022 crap](https://www.reddit.com/r/wallstreetbets/comments/zul4d6/2022_crap/)
-- [TSLA insiders dumping bags&lpar;red&rpar; VS buying&lpar;green&rpar;](https://www.reddit.com/r/wallstreetbets/comments/zukb1z/tsla_insiders_dumping_bagsred_vs_buyinggreen/)
-- [Short 3848 on the overnight dump Tuesday - Wednesday. Covered 3812. Longed 3825 sold 3850. Biggest day on ES.](https://www.reddit.com/r/wallstreetbets/comments/zujfnb/short_3848_on_the_overnight_dump_tuesday/)
-- [found this...when tech pros get into real estate](https://www.reddit.com/r/wallstreetbets/comments/zuik2s/found_thiswhen_tech_pros_get_into_real_estate/)
+- [It’s that simple](https://www.reddit.com/r/wallstreetbets/comments/zvame3/its_that_simple/)
+- [Can you tell where I found out about options?](https://www.reddit.com/r/wallstreetbets/comments/zv8vlm/can_you_tell_where_i_found_out_about_options/)
+- [New Year, new me](https://www.reddit.com/r/wallstreetbets/comments/zv7x05/new_year_new_me/)
+- [Waiting for bull run](https://www.reddit.com/r/wallstreetbets/comments/zv5f7c/waiting_for_bull_run/)
+- [Time for puts on NVDA](https://www.reddit.com/r/wallstreetbets/comments/zv4hdh/time_for_puts_on_nvda/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
