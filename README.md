@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It’s that simple](https://www.reddit.com/r/wallstreetbets/comments/zvame3/its_that_simple/)
-- [Can you tell where I found out about options?](https://www.reddit.com/r/wallstreetbets/comments/zv8vlm/can_you_tell_where_i_found_out_about_options/)
-- [New Year, new me](https://www.reddit.com/r/wallstreetbets/comments/zv7x05/new_year_new_me/)
-- [Waiting for bull run](https://www.reddit.com/r/wallstreetbets/comments/zv5f7c/waiting_for_bull_run/)
-- [Time for puts on NVDA](https://www.reddit.com/r/wallstreetbets/comments/zv4hdh/time_for_puts_on_nvda/)
+- [This is what happens when you gamble without truly knowing what you’re doing. Luck was on my side until I got cocky and it wasn’t.](https://www.reddit.com/r/wallstreetbets/comments/zw0nny/this_is_what_happens_when_you_gamble_without/)
+- [GBTC YOLO](https://www.reddit.com/r/wallstreetbets/comments/zvxvvn/gbtc_yolo/)
+- [Dec 26, 2018 vs Dec 26, 2022. The Dow is Still up 45%](https://www.reddit.com/r/wallstreetbets/comments/zvxhw5/dec_26_2018_vs_dec_26_2022_the_dow_is_still_up_45/)
+- [What Are Your Moves Tomorrow, December 27, 2022](https://www.reddit.com/r/wallstreetbets/comments/zvwrgd/what_are_your_moves_tomorrow_december_27_2022/)
+- [Ban Bets has had a significant change today which will hopefully stop users from getting thrown off the platform for ban evasion](https://www.reddit.com/r/wallstreetbets/comments/zvwgsa/ban_bets_has_had_a_significant_change_today_which/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
