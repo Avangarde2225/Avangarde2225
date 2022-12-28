@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is what happens when you gamble without truly knowing what you’re doing. Luck was on my side until I got cocky and it wasn’t.](https://www.reddit.com/r/wallstreetbets/comments/zw0nny/this_is_what_happens_when_you_gamble_without/)
-- [GBTC YOLO](https://www.reddit.com/r/wallstreetbets/comments/zvxvvn/gbtc_yolo/)
-- [Dec 26, 2018 vs Dec 26, 2022. The Dow is Still up 45%](https://www.reddit.com/r/wallstreetbets/comments/zvxhw5/dec_26_2018_vs_dec_26_2022_the_dow_is_still_up_45/)
-- [What Are Your Moves Tomorrow, December 27, 2022](https://www.reddit.com/r/wallstreetbets/comments/zvwrgd/what_are_your_moves_tomorrow_december_27_2022/)
-- [Ban Bets has had a significant change today which will hopefully stop users from getting thrown off the platform for ban evasion](https://www.reddit.com/r/wallstreetbets/comments/zvwgsa/ban_bets_has_had_a_significant_change_today_which/)
+- [Isn&#39;t it funny how Elon Musk is no longer charming and quirky now that he&#39;s wrecked your portfolio?](https://www.reddit.com/r/wallstreetbets/comments/zwujch/isnt_it_funny_how_elon_musk_is_no_longer_charming/)
+- [Elon and the Tesla bagholders at their new job💎🤲🏽](https://www.reddit.com/r/wallstreetbets/comments/zwu3kp/elon_and_the_tesla_bagholders_at_their_new_job/)
+- [12-27-22 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/zwtho8/122722_spy_es_futures_and_tesla_daily_market/)
+- [Yolo’d 500k on TSLA puts before EOD](https://www.reddit.com/r/wallstreetbets/comments/zwr8mm/yolod_500k_on_tsla_puts_before_eod/)
+- [Thanks Elon](https://www.reddit.com/r/wallstreetbets/comments/zwqzx9/thanks_elon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
