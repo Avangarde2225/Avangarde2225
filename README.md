@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Isn&#39;t it funny how Elon Musk is no longer charming and quirky now that he&#39;s wrecked your portfolio?](https://www.reddit.com/r/wallstreetbets/comments/zwujch/isnt_it_funny_how_elon_musk_is_no_longer_charming/)
-- [Elon and the Tesla bagholders at their new job💎🤲🏽](https://www.reddit.com/r/wallstreetbets/comments/zwu3kp/elon_and_the_tesla_bagholders_at_their_new_job/)
-- [12-27-22 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/zwtho8/122722_spy_es_futures_and_tesla_daily_market/)
-- [Yolo’d 500k on TSLA puts before EOD](https://www.reddit.com/r/wallstreetbets/comments/zwr8mm/yolod_500k_on_tsla_puts_before_eod/)
-- [Thanks Elon](https://www.reddit.com/r/wallstreetbets/comments/zwqzx9/thanks_elon/)
+- [I tried to invest thru cash app and went like this.](https://www.reddit.com/r/wallstreetbets/comments/zxpl1y/i_tried_to_invest_thru_cash_app_and_went_like_this/)
+- [How today felt for me truthfully](https://www.reddit.com/r/wallstreetbets/comments/zxog3h/how_today_felt_for_me_truthfully/)
+- [Am I still alive? 2022 Loss-Comeback](https://www.reddit.com/r/wallstreetbets/comments/zxmm07/am_i_still_alive_2022_losscomeback/)
+- [Is the Santa Rally over? 12-28-22 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/zxm2pi/is_the_santa_rally_over_122822_spy_es_futures_and/)
+- [Update: Sold my puts](https://www.reddit.com/r/wallstreetbets/comments/zxlld2/update_sold_my_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
