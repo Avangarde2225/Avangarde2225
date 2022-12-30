@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I tried to invest thru cash app and went like this.](https://www.reddit.com/r/wallstreetbets/comments/zxpl1y/i_tried_to_invest_thru_cash_app_and_went_like_this/)
-- [How today felt for me truthfully](https://www.reddit.com/r/wallstreetbets/comments/zxog3h/how_today_felt_for_me_truthfully/)
-- [Am I still alive? 2022 Loss-Comeback](https://www.reddit.com/r/wallstreetbets/comments/zxmm07/am_i_still_alive_2022_losscomeback/)
-- [Is the Santa Rally over? 12-28-22 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/zxm2pi/is_the_santa_rally_over_122822_spy_es_futures_and/)
-- [Update: Sold my puts](https://www.reddit.com/r/wallstreetbets/comments/zxlld2/update_sold_my_puts/)
+- [To end 2022, which stage of the market are we currently in?](https://www.reddit.com/r/wallstreetbets/comments/zyklif/to_end_2022_which_stage_of_the_market_are_we/)
+- [Turned 21 and now I regret playing this game instead of just going to casinos 🤡](https://www.reddit.com/r/wallstreetbets/comments/zyiien/turned_21_and_now_i_regret_playing_this_game/)
+- [So Santa Rally is back on? Maybe?... 12-29-22 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/zyi4vu/so_santa_rally_is_back_on_maybe_122922_spy_es/)
+- [What Are Your Moves Tomorrow, December 30, 2022](https://www.reddit.com/r/wallstreetbets/comments/zygagw/what_are_your_moves_tomorrow_december_30_2022/)
+- [Do I continue this &quot;back to even YTD&quot; speed run or cash out tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/zyfjry/do_i_continue_this_back_to_even_ytd_speed_run_or/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
