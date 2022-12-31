@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To end 2022, which stage of the market are we currently in?](https://www.reddit.com/r/wallstreetbets/comments/zyklif/to_end_2022_which_stage_of_the_market_are_we/)
-- [Turned 21 and now I regret playing this game instead of just going to casinos 🤡](https://www.reddit.com/r/wallstreetbets/comments/zyiien/turned_21_and_now_i_regret_playing_this_game/)
-- [So Santa Rally is back on? Maybe?... 12-29-22 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/zyi4vu/so_santa_rally_is_back_on_maybe_122922_spy_es/)
-- [What Are Your Moves Tomorrow, December 30, 2022](https://www.reddit.com/r/wallstreetbets/comments/zygagw/what_are_your_moves_tomorrow_december_30_2022/)
-- [Do I continue this &quot;back to even YTD&quot; speed run or cash out tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/zyfjry/do_i_continue_this_back_to_even_ytd_speed_run_or/)
+- [Like down 70%+ on portfolio together](https://www.reddit.com/r/wallstreetbets/comments/zzfwax/like_down_70_on_portfolio_together/)
+- [My regards](https://www.reddit.com/r/wallstreetbets/comments/zzenrm/my_regards/)
+- [A solid 2022. Here&#39;s to an even better 2023!](https://www.reddit.com/r/wallstreetbets/comments/zzdeez/a_solid_2022_heres_to_an_even_better_2023/)
+- [Fucked good and hard this year. Only 6% more to lose in 2023](https://www.reddit.com/r/wallstreetbets/comments/zzd8er/fucked_good_and_hard_this_year_only_6_more_to/)
+- [It is not a loss until is realized, or is it ?](https://www.reddit.com/r/wallstreetbets/comments/zzd67g/it_is_not_a_loss_until_is_realized_or_is_it/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
