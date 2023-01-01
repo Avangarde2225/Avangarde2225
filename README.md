@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Like down 70%+ on portfolio together](https://www.reddit.com/r/wallstreetbets/comments/zzfwax/like_down_70_on_portfolio_together/)
-- [My regards](https://www.reddit.com/r/wallstreetbets/comments/zzenrm/my_regards/)
-- [A solid 2022. Here&#39;s to an even better 2023!](https://www.reddit.com/r/wallstreetbets/comments/zzdeez/a_solid_2022_heres_to_an_even_better_2023/)
-- [Fucked good and hard this year. Only 6% more to lose in 2023](https://www.reddit.com/r/wallstreetbets/comments/zzd8er/fucked_good_and_hard_this_year_only_6_more_to/)
-- [It is not a loss until is realized, or is it ?](https://www.reddit.com/r/wallstreetbets/comments/zzd67g/it_is_not_a_loss_until_is_realized_or_is_it/)
+- [$6k -&gt; $1.25M -&gt; $465k](https://www.reddit.com/r/wallstreetbets/comments/1006b3y/6k_125m_465k/)
+- [My account 2022](https://www.reddit.com/r/wallstreetbets/comments/10066dl/my_account_2022/)
+- [Which one ticker ruined your year the most?](https://www.reddit.com/r/wallstreetbets/comments/1003mtg/which_one_ticker_ruined_your_year_the_most/)
+- [2022 please don’t go, stick around.](https://www.reddit.com/r/wallstreetbets/comments/1002kw8/2022_please_dont_go_stick_around/)
+- [This ain’t over til Apple says it is](https://www.reddit.com/r/wallstreetbets/comments/10012ef/this_aint_over_til_apple_says_it_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
