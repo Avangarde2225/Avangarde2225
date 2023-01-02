@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$6k -&gt; $1.25M -&gt; $465k](https://www.reddit.com/r/wallstreetbets/comments/1006b3y/6k_125m_465k/)
-- [My account 2022](https://www.reddit.com/r/wallstreetbets/comments/10066dl/my_account_2022/)
-- [Which one ticker ruined your year the most?](https://www.reddit.com/r/wallstreetbets/comments/1003mtg/which_one_ticker_ruined_your_year_the_most/)
-- [2022 please don’t go, stick around.](https://www.reddit.com/r/wallstreetbets/comments/1002kw8/2022_please_dont_go_stick_around/)
-- [This ain’t over til Apple says it is](https://www.reddit.com/r/wallstreetbets/comments/10012ef/this_aint_over_til_apple_says_it_is/)
+- [Newtime investor... should I buy Tesla stock?](https://www.reddit.com/r/wallstreetbets/comments/100xykx/newtime_investor_should_i_buy_tesla_stock/)
+- [+1,883,261.60 &lpar;+606.48%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/100x4zt/188326160_60648/)
+- [Is being bearish right now the most one-sided trade ever?](https://www.reddit.com/r/wallstreetbets/comments/100tndp/is_being_bearish_right_now_the_most_onesided/)
+- [Am I winning? 📉😅😭😢](https://www.reddit.com/r/wallstreetbets/comments/100nhf3/am_i_winning/)
+- [Hoping these calls will bring me back](https://www.reddit.com/r/wallstreetbets/comments/100na2e/hoping_these_calls_will_bring_me_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
