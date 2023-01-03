@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Newtime investor... should I buy Tesla stock?](https://www.reddit.com/r/wallstreetbets/comments/100xykx/newtime_investor_should_i_buy_tesla_stock/)
-- [+1,883,261.60 &lpar;+606.48%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/100x4zt/188326160_60648/)
-- [Is being bearish right now the most one-sided trade ever?](https://www.reddit.com/r/wallstreetbets/comments/100tndp/is_being_bearish_right_now_the_most_onesided/)
-- [Am I winning? 📉😅😭😢](https://www.reddit.com/r/wallstreetbets/comments/100nhf3/am_i_winning/)
-- [Hoping these calls will bring me back](https://www.reddit.com/r/wallstreetbets/comments/100na2e/hoping_these_calls_will_bring_me_back/)
+- [Palantir Investors in a Nutshell](https://www.reddit.com/r/wallstreetbets/comments/101oy1a/palantir_investors_in_a_nutshell/)
+- [What Are Your Moves Tomorrow, January 03, 2023](https://www.reddit.com/r/wallstreetbets/comments/101njfa/what_are_your_moves_tomorrow_january_03_2023/)
+- [I found out.](https://www.reddit.com/r/wallstreetbets/comments/101lxh1/i_found_out/)
+- [Following the graph, what am I doing wrong 🤹](https://www.reddit.com/r/wallstreetbets/comments/101k97y/following_the_graph_what_am_i_doing_wrong/)
+- [On my way to opening bell after the long weekend.](https://www.reddit.com/r/wallstreetbets/comments/101k8jd/on_my_way_to_opening_bell_after_the_long_weekend/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
