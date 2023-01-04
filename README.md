@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Palantir Investors in a Nutshell](https://www.reddit.com/r/wallstreetbets/comments/101oy1a/palantir_investors_in_a_nutshell/)
-- [What Are Your Moves Tomorrow, January 03, 2023](https://www.reddit.com/r/wallstreetbets/comments/101njfa/what_are_your_moves_tomorrow_january_03_2023/)
-- [I found out.](https://www.reddit.com/r/wallstreetbets/comments/101lxh1/i_found_out/)
-- [Following the graph, what am I doing wrong 🤹](https://www.reddit.com/r/wallstreetbets/comments/101k97y/following_the_graph_what_am_i_doing_wrong/)
-- [On my way to opening bell after the long weekend.](https://www.reddit.com/r/wallstreetbets/comments/101k8jd/on_my_way_to_opening_bell_after_the_long_weekend/)
+- [Another $74k in the bag. I should probably just chill for the month](https://www.reddit.com/r/wallstreetbets/comments/102krd2/another_74k_in_the_bag_i_should_probably_just/)
+- [Media is already warning about high gas prices in 2023 even when prices have not risen in the past 6 month. Bureaucratic Manipulation.](https://www.reddit.com/r/wallstreetbets/comments/102jk1r/media_is_already_warning_about_high_gas_prices_in/)
+- [What Are Your Moves Tomorrow, January 04, 2023](https://www.reddit.com/r/wallstreetbets/comments/102j9m9/what_are_your_moves_tomorrow_january_04_2023/)
+- [new year, same sub](https://www.reddit.com/r/wallstreetbets/comments/102i6a3/new_year_same_sub/)
+- [Inflation is Typically Lower at End of Year and Probably Hasn&#39;t Peaked, Historical Average Monthly Inflation Data Shows](https://www.reddit.com/r/wallstreetbets/comments/102hsf6/inflation_is_typically_lower_at_end_of_year_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
