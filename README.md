@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Another $74k in the bag. I should probably just chill for the month](https://www.reddit.com/r/wallstreetbets/comments/102krd2/another_74k_in_the_bag_i_should_probably_just/)
-- [Media is already warning about high gas prices in 2023 even when prices have not risen in the past 6 month. Bureaucratic Manipulation.](https://www.reddit.com/r/wallstreetbets/comments/102jk1r/media_is_already_warning_about_high_gas_prices_in/)
-- [What Are Your Moves Tomorrow, January 04, 2023](https://www.reddit.com/r/wallstreetbets/comments/102j9m9/what_are_your_moves_tomorrow_january_04_2023/)
-- [new year, same sub](https://www.reddit.com/r/wallstreetbets/comments/102i6a3/new_year_same_sub/)
-- [Inflation is Typically Lower at End of Year and Probably Hasn&#39;t Peaked, Historical Average Monthly Inflation Data Shows](https://www.reddit.com/r/wallstreetbets/comments/102hsf6/inflation_is_typically_lower_at_end_of_year_and/)
+- [1-4-23 SPY/ ES Futures and Tesla Daily Market Analysis &lpar;and FOMC minute review&rpar;](https://www.reddit.com/r/wallstreetbets/comments/103i48b/1423_spy_es_futures_and_tesla_daily_market/)
+- [Day 2](https://www.reddit.com/r/wallstreetbets/comments/103foib/day_2/)
+- [$24k bagger - still a ways to go just gotta stay consistent :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/103fd1x/24k_bagger_still_a_ways_to_go_just_gotta_stay/)
+- [What Are Your Moves Tomorrow, January 05, 2023](https://www.reddit.com/r/wallstreetbets/comments/103evm9/what_are_your_moves_tomorrow_january_05_2023/)
+- [So Tired of This Movie](https://www.reddit.com/r/wallstreetbets/comments/103eqrc/so_tired_of_this_movie/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
