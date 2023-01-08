@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I yolod on spy calls two weeks ago and got burned, tried puts this week and made it back](https://www.reddit.com/r/wallstreetbets/comments/1058pqa/i_yolod_on_spy_calls_two_weeks_ago_and_got_burned/)
-- [$5,812.50/min 😉 - TSLA 1/6 109p](https://www.reddit.com/r/wallstreetbets/comments/1058ah2/581250min_tsla_16_109p/)
-- [If it&#39;s too good to be true... Part 2](https://www.reddit.com/r/wallstreetbets/comments/1057ktq/if_its_too_good_to_be_true_part_2/)
-- [sentiment shenanigans and more trading theory](https://www.reddit.com/r/wallstreetbets/comments/1056nsp/sentiment_shenanigans_and_more_trading_theory/)
-- [Weekend Discussion Thread for the Weekend of January 07, 2023](https://www.reddit.com/r/wallstreetbets/comments/1055cz7/weekend_discussion_thread_for_the_weekend_of/)
+- [Ftx Meme SBF](https://www.reddit.com/r/wallstreetbets/comments/1064g0d/ftx_meme_sbf/)
+- [Oil pegged to gold?](https://www.reddit.com/r/wallstreetbets/comments/1064cgq/oil_pegged_to_gold/)
+- [Bet on WWE](https://www.reddit.com/r/wallstreetbets/comments/1060c7s/bet_on_wwe/)
+- [PT 2. for my last post, heres the run up I had from 900$ to a peak of 14k profit on the TSLA bull run in July.](https://www.reddit.com/r/wallstreetbets/comments/105x7a7/pt_2_for_my_last_post_heres_the_run_up_i_had_from/)
+- [US Stocks Push Higher After Data; Yields Decline: Markets Wrap](https://www.reddit.com/r/wallstreetbets/comments/105t2b2/us_stocks_push_higher_after_data_yields_decline/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
