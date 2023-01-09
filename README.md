@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ftx Meme SBF](https://www.reddit.com/r/wallstreetbets/comments/1064g0d/ftx_meme_sbf/)
-- [Oil pegged to gold?](https://www.reddit.com/r/wallstreetbets/comments/1064cgq/oil_pegged_to_gold/)
-- [Bet on WWE](https://www.reddit.com/r/wallstreetbets/comments/1060c7s/bet_on_wwe/)
-- [PT 2. for my last post, heres the run up I had from 900$ to a peak of 14k profit on the TSLA bull run in July.](https://www.reddit.com/r/wallstreetbets/comments/105x7a7/pt_2_for_my_last_post_heres_the_run_up_i_had_from/)
-- [US Stocks Push Higher After Data; Yields Decline: Markets Wrap](https://www.reddit.com/r/wallstreetbets/comments/105t2b2/us_stocks_push_higher_after_data_yields_decline/)
+- [SPY Returns](https://www.reddit.com/r/wallstreetbets/comments/106z1nv/spy_returns/)
+- [FED won’t STFU part 2! Mr. Powell is watching you!](https://www.reddit.com/r/wallstreetbets/comments/106ys82/fed_wont_stfu_part_2_mr_powell_is_watching_you/)
+- [Tesla short on Saxo](https://www.reddit.com/r/wallstreetbets/comments/106yj87/tesla_short_on_saxo/)
+- [Are we bulls, bears or losers?](https://www.reddit.com/r/wallstreetbets/comments/106xipa/are_we_bulls_bears_or_losers/)
+- [🕵️‍♂️ I SPY TA - Monday January 9, 2023 - Daily Bullish RSI Divergence Remains Viable](https://www.reddit.com/r/wallstreetbets/comments/106vus0/i_spy_ta_monday_january_9_2023_daily_bullish_rsi/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
