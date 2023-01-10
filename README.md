@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPY Returns](https://www.reddit.com/r/wallstreetbets/comments/106z1nv/spy_returns/)
-- [FED won’t STFU part 2! Mr. Powell is watching you!](https://www.reddit.com/r/wallstreetbets/comments/106ys82/fed_wont_stfu_part_2_mr_powell_is_watching_you/)
-- [Tesla short on Saxo](https://www.reddit.com/r/wallstreetbets/comments/106yj87/tesla_short_on_saxo/)
-- [Are we bulls, bears or losers?](https://www.reddit.com/r/wallstreetbets/comments/106xipa/are_we_bulls_bears_or_losers/)
-- [🕵️‍♂️ I SPY TA - Monday January 9, 2023 - Daily Bullish RSI Divergence Remains Viable](https://www.reddit.com/r/wallstreetbets/comments/106vus0/i_spy_ta_monday_january_9_2023_daily_bullish_rsi/)
+- [I’m down bad no lambo for me](https://www.reddit.com/r/wallstreetbets/comments/107tqgh/im_down_bad_no_lambo_for_me/)
+- [Made some money from shorting NET](https://www.reddit.com/r/wallstreetbets/comments/107teva/made_some_money_from_shorting_net/)
+- [Can you see whats pushing up the market?](https://www.reddit.com/r/wallstreetbets/comments/107spz6/can_you_see_whats_pushing_up_the_market/)
+- [Me vs The Market](https://www.reddit.com/r/wallstreetbets/comments/107sg1r/me_vs_the_market/)
+- [Please heed caution fellow regards](https://www.reddit.com/r/wallstreetbets/comments/107s7jj/please_heed_caution_fellow_regards/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
