@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I’m down bad no lambo for me](https://www.reddit.com/r/wallstreetbets/comments/107tqgh/im_down_bad_no_lambo_for_me/)
-- [Made some money from shorting NET](https://www.reddit.com/r/wallstreetbets/comments/107teva/made_some_money_from_shorting_net/)
-- [Can you see whats pushing up the market?](https://www.reddit.com/r/wallstreetbets/comments/107spz6/can_you_see_whats_pushing_up_the_market/)
-- [Me vs The Market](https://www.reddit.com/r/wallstreetbets/comments/107sg1r/me_vs_the_market/)
-- [Please heed caution fellow regards](https://www.reddit.com/r/wallstreetbets/comments/107s7jj/please_heed_caution_fellow_regards/)
+- [1-10-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/108ot66/11023_spy_es_futures_and_tesla_daily_market/)
+- [At least my battery isn&#39;t low...](https://www.reddit.com/r/wallstreetbets/comments/108ooy9/at_least_my_battery_isnt_low/)
+- [2023 trading set up &lpar;updated&rpar;](https://www.reddit.com/r/wallstreetbets/comments/108na8g/2023_trading_set_up_updated/)
+- [Stopped by my local Bed Bath &amp; Beyond, and I don&#39;t think they&#39;re gonna make it.](https://www.reddit.com/r/wallstreetbets/comments/108liy1/stopped_by_my_local_bed_bath_beyond_and_i_dont/)
+- [Boom! WF no mortgage for you](https://www.reddit.com/r/wallstreetbets/comments/108lhbb/boom_wf_no_mortgage_for_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
