@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [1-10-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/108ot66/11023_spy_es_futures_and_tesla_daily_market/)
-- [At least my battery isn&#39;t low...](https://www.reddit.com/r/wallstreetbets/comments/108ooy9/at_least_my_battery_isnt_low/)
-- [2023 trading set up &lpar;updated&rpar;](https://www.reddit.com/r/wallstreetbets/comments/108na8g/2023_trading_set_up_updated/)
-- [Stopped by my local Bed Bath &amp; Beyond, and I don&#39;t think they&#39;re gonna make it.](https://www.reddit.com/r/wallstreetbets/comments/108liy1/stopped_by_my_local_bed_bath_beyond_and_i_dont/)
-- [Boom! WF no mortgage for you](https://www.reddit.com/r/wallstreetbets/comments/108lhbb/boom_wf_no_mortgage_for_you/)
+- [ChatGPT predicting hot cpi](https://www.reddit.com/r/wallstreetbets/comments/109kpro/chatgpt_predicting_hot_cpi/)
+- [CPI Prediction and Analysis…. 1-11-23 SPY and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/109jd7z/cpi_prediction_and_analysis_11123_spy_and_tesla/)
+- [Bear hopium:](https://www.reddit.com/r/wallstreetbets/comments/109hi1b/bear_hopium/)
+- [Why I didn’t sell? Will get IV crushed at open tomorrow? I guess now it’s a YOLO](https://www.reddit.com/r/wallstreetbets/comments/109gsy1/why_i_didnt_sell_will_get_iv_crushed_at_open/)
+- [What Are Your Moves Tomorrow, January 12, 2023](https://www.reddit.com/r/wallstreetbets/comments/109fszo/what_are_your_moves_tomorrow_january_12_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
