@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ChatGPT predicting hot cpi](https://www.reddit.com/r/wallstreetbets/comments/109kpro/chatgpt_predicting_hot_cpi/)
-- [CPI Prediction and Analysis…. 1-11-23 SPY and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/109jd7z/cpi_prediction_and_analysis_11123_spy_and_tesla/)
-- [Bear hopium:](https://www.reddit.com/r/wallstreetbets/comments/109hi1b/bear_hopium/)
-- [Why I didn’t sell? Will get IV crushed at open tomorrow? I guess now it’s a YOLO](https://www.reddit.com/r/wallstreetbets/comments/109gsy1/why_i_didnt_sell_will_get_iv_crushed_at_open/)
-- [What Are Your Moves Tomorrow, January 12, 2023](https://www.reddit.com/r/wallstreetbets/comments/109fszo/what_are_your_moves_tomorrow_january_12_2023/)
+- [Time to pack up our gear... we found more balloons to send our stock back UP](https://www.reddit.com/r/wallstreetbets/comments/10aduwt/time_to_pack_up_our_gear_we_found_more_balloons/)
+- [$BBBY yolo, started with $500. Tomorrow we ride](https://www.reddit.com/r/wallstreetbets/comments/10ad4ah/bbby_yolo_started_with_500_tomorrow_we_ride/)
+- [Bbby straddles for me !!!!!](https://www.reddit.com/r/wallstreetbets/comments/10acsau/bbby_straddles_for_me/)
+- [$BBBY YOLO. $18.5k &gt; $114k](https://www.reddit.com/r/wallstreetbets/comments/10acmxq/bbby_yolo_185k_114k/)
+- [Today was good fay BBBY Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/10ac215/today_was_good_fay_bbby_gain_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
