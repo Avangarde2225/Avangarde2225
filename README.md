@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Time to pack up our gear... we found more balloons to send our stock back UP](https://www.reddit.com/r/wallstreetbets/comments/10aduwt/time_to_pack_up_our_gear_we_found_more_balloons/)
-- [$BBBY yolo, started with $500. Tomorrow we ride](https://www.reddit.com/r/wallstreetbets/comments/10ad4ah/bbby_yolo_started_with_500_tomorrow_we_ride/)
-- [Bbby straddles for me !!!!!](https://www.reddit.com/r/wallstreetbets/comments/10acsau/bbby_straddles_for_me/)
-- [$BBBY YOLO. $18.5k &gt; $114k](https://www.reddit.com/r/wallstreetbets/comments/10acmxq/bbby_yolo_185k_114k/)
-- [Today was good fay BBBY Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/10ac215/today_was_good_fay_bbby_gain_porn/)
+- [Hello fellow regards… what’s the cheapest way out of the country?](https://www.reddit.com/r/wallstreetbets/comments/10ba224/hello_fellow_regards_whats_the_cheapest_way_out/)
+- [My first YOLO, i yolo’d 75% of my savings in Bitcoin Yesterday, I’m excited to join you guys/ meet my Gfs new BF](https://www.reddit.com/r/wallstreetbets/comments/10b61k9/my_first_yolo_i_yolod_75_of_my_savings_in_bitcoin/)
+- [Maybe I just like the atmosphere there](https://www.reddit.com/r/wallstreetbets/comments/10b5mws/maybe_i_just_like_the_atmosphere_there/)
+- [some of you don&#39;t even know what you&#39;re trading and it shows](https://www.reddit.com/r/wallstreetbets/comments/10b5hos/some_of_you_dont_even_know_what_youre_trading_and/)
+- [Weekend Discussion Thread for the Weekend of January 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/10b5e1l/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
