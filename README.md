@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hello fellow regards… what’s the cheapest way out of the country?](https://www.reddit.com/r/wallstreetbets/comments/10ba224/hello_fellow_regards_whats_the_cheapest_way_out/)
-- [My first YOLO, i yolo’d 75% of my savings in Bitcoin Yesterday, I’m excited to join you guys/ meet my Gfs new BF](https://www.reddit.com/r/wallstreetbets/comments/10b61k9/my_first_yolo_i_yolod_75_of_my_savings_in_bitcoin/)
-- [Maybe I just like the atmosphere there](https://www.reddit.com/r/wallstreetbets/comments/10b5mws/maybe_i_just_like_the_atmosphere_there/)
-- [some of you don&#39;t even know what you&#39;re trading and it shows](https://www.reddit.com/r/wallstreetbets/comments/10b5hos/some_of_you_dont_even_know_what_youre_trading_and/)
-- [Weekend Discussion Thread for the Weekend of January 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/10b5e1l/weekend_discussion_thread_for_the_weekend_of/)
+- [Grab your lotion. Lots of loss porn being posted in the Tesla subs.](https://www.reddit.com/r/wallstreetbets/comments/10c538v/grab_your_lotion_lots_of_loss_porn_being_posted/)
+- [Surging egg prices mean record profits for largest US egg producer | CNN Business](https://www.reddit.com/r/wallstreetbets/comments/10c4s1h/surging_egg_prices_mean_record_profits_for/)
+- [Bitcoin🧱🥊](https://www.reddit.com/r/wallstreetbets/comments/10c4o1f/bitcoin/)
+- [How much lower can we go - any advice on how to start next week with a Bang?](https://www.reddit.com/r/wallstreetbets/comments/10c26q9/how_much_lower_can_we_go_any_advice_on_how_to/)
+- [RIP time to delete the app](https://www.reddit.com/r/wallstreetbets/comments/10c0arl/rip_time_to_delete_the_app/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
