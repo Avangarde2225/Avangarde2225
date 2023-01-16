@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Grab your lotion. Lots of loss porn being posted in the Tesla subs.](https://www.reddit.com/r/wallstreetbets/comments/10c538v/grab_your_lotion_lots_of_loss_porn_being_posted/)
-- [Surging egg prices mean record profits for largest US egg producer | CNN Business](https://www.reddit.com/r/wallstreetbets/comments/10c4s1h/surging_egg_prices_mean_record_profits_for/)
-- [Bitcoin🧱🥊](https://www.reddit.com/r/wallstreetbets/comments/10c4o1f/bitcoin/)
-- [How much lower can we go - any advice on how to start next week with a Bang?](https://www.reddit.com/r/wallstreetbets/comments/10c26q9/how_much_lower_can_we_go_any_advice_on_how_to/)
-- [RIP time to delete the app](https://www.reddit.com/r/wallstreetbets/comments/10c0arl/rip_time_to_delete_the_app/)
+- [Big Mac Indicator](https://www.reddit.com/r/wallstreetbets/comments/10cz6ah/big_mac_indicator/)
+- [Im pretty good at this stuff eh?](https://www.reddit.com/r/wallstreetbets/comments/10cyinu/im_pretty_good_at_this_stuff_eh/)
+- [who&#39;s ready for some loss porn?](https://www.reddit.com/r/wallstreetbets/comments/10cyfhx/whos_ready_for_some_loss_porn/)
+- [16-20 Jan Detailed Economic Calendar for the Coming Week](https://www.reddit.com/r/wallstreetbets/comments/10cxtrv/1620_jan_detailed_economic_calendar_for_the/)
+- [Earnings contraction incoming](https://www.reddit.com/r/wallstreetbets/comments/10cwutp/earnings_contraction_incoming/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
