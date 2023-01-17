@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Big Mac Indicator](https://www.reddit.com/r/wallstreetbets/comments/10cz6ah/big_mac_indicator/)
-- [Im pretty good at this stuff eh?](https://www.reddit.com/r/wallstreetbets/comments/10cyinu/im_pretty_good_at_this_stuff_eh/)
-- [who&#39;s ready for some loss porn?](https://www.reddit.com/r/wallstreetbets/comments/10cyfhx/whos_ready_for_some_loss_porn/)
-- [16-20 Jan Detailed Economic Calendar for the Coming Week](https://www.reddit.com/r/wallstreetbets/comments/10cxtrv/1620_jan_detailed_economic_calendar_for_the/)
-- [Earnings contraction incoming](https://www.reddit.com/r/wallstreetbets/comments/10cwutp/earnings_contraction_incoming/)
+- [Final minutes till market open tomorrow will be like](https://www.reddit.com/r/wallstreetbets/comments/10dx7mn/final_minutes_till_market_open_tomorrow_will_be/)
+- [What Are Your Moves Tomorrow, January 17, 2023](https://www.reddit.com/r/wallstreetbets/comments/10du738/what_are_your_moves_tomorrow_january_17_2023/)
+- [Mondays are for trading](https://www.reddit.com/r/wallstreetbets/comments/10dqudg/mondays_are_for_trading/)
+- [Wallstreetbets Degenerate on the Dave Ramsey show 😅😂 worth the watch!](https://www.reddit.com/r/wallstreetbets/comments/10dl6cp/wallstreetbets_degenerate_on_the_dave_ramsey_show/)
+- [[Analysis] My fellow regard was wrong! 3 Day Weekends are Green! &lpar;probably not for you though&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10dixa9/analysis_my_fellow_regard_was_wrong_3_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
