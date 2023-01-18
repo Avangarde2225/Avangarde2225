@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Final minutes till market open tomorrow will be like](https://www.reddit.com/r/wallstreetbets/comments/10dx7mn/final_minutes_till_market_open_tomorrow_will_be/)
-- [What Are Your Moves Tomorrow, January 17, 2023](https://www.reddit.com/r/wallstreetbets/comments/10du738/what_are_your_moves_tomorrow_january_17_2023/)
-- [Mondays are for trading](https://www.reddit.com/r/wallstreetbets/comments/10dqudg/mondays_are_for_trading/)
-- [Wallstreetbets Degenerate on the Dave Ramsey show 😅😂 worth the watch!](https://www.reddit.com/r/wallstreetbets/comments/10dl6cp/wallstreetbets_degenerate_on_the_dave_ramsey_show/)
-- [[Analysis] My fellow regard was wrong! 3 Day Weekends are Green! &lpar;probably not for you though&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10dixa9/analysis_my_fellow_regard_was_wrong_3_day/)
+- [No paperhands allowed](https://www.reddit.com/r/wallstreetbets/comments/10eq140/no_paperhands_allowed/)
+- [Spy fckd me today](https://www.reddit.com/r/wallstreetbets/comments/10epfwy/spy_fckd_me_today/)
+- [1-17-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10eoc04/11723_spy_es_futures_and_tesla_daily_market/)
+- [What Are Your Moves Tomorrow, January 18, 2023](https://www.reddit.com/r/wallstreetbets/comments/10endfg/what_are_your_moves_tomorrow_january_18_2023/)
+- [BBBY](https://www.reddit.com/r/wallstreetbets/comments/10emz2k/bbby/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
