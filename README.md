@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [No paperhands allowed](https://www.reddit.com/r/wallstreetbets/comments/10eq140/no_paperhands_allowed/)
-- [Spy fckd me today](https://www.reddit.com/r/wallstreetbets/comments/10epfwy/spy_fckd_me_today/)
-- [1-17-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10eoc04/11723_spy_es_futures_and_tesla_daily_market/)
-- [What Are Your Moves Tomorrow, January 18, 2023](https://www.reddit.com/r/wallstreetbets/comments/10endfg/what_are_your_moves_tomorrow_january_18_2023/)
-- [BBBY](https://www.reddit.com/r/wallstreetbets/comments/10emz2k/bbby/)
+- [Puts baby…march dated holding all 🙏](https://www.reddit.com/r/wallstreetbets/comments/10flvw7/puts_babymarch_dated_holding_all/)
+- [The Ole Cup and Handle… 1-18-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10fl46p/the_ole_cup_and_handle_11823_spy_es_futures_and/)
+- [A true villain arch has begun](https://www.reddit.com/r/wallstreetbets/comments/10fitkk/a_true_villain_arch_has_begun/)
+- [What Are Your Moves Tomorrow, January 19, 2023](https://www.reddit.com/r/wallstreetbets/comments/10fikna/what_are_your_moves_tomorrow_january_19_2023/)
+- [2 years straight of daily losses to $SPY options… any recovery ideas? It’s starting to make me sick](https://www.reddit.com/r/wallstreetbets/comments/10fijzj/2_years_straight_of_daily_losses_to_spy_options/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
