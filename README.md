@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts baby…march dated holding all 🙏](https://www.reddit.com/r/wallstreetbets/comments/10flvw7/puts_babymarch_dated_holding_all/)
-- [The Ole Cup and Handle… 1-18-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10fl46p/the_ole_cup_and_handle_11823_spy_es_futures_and/)
-- [A true villain arch has begun](https://www.reddit.com/r/wallstreetbets/comments/10fitkk/a_true_villain_arch_has_begun/)
-- [What Are Your Moves Tomorrow, January 19, 2023](https://www.reddit.com/r/wallstreetbets/comments/10fikna/what_are_your_moves_tomorrow_january_19_2023/)
-- [2 years straight of daily losses to $SPY options… any recovery ideas? It’s starting to make me sick](https://www.reddit.com/r/wallstreetbets/comments/10fijzj/2_years_straight_of_daily_losses_to_spy_options/)
+- [To do economics and finance like a boss](https://www.reddit.com/r/wallstreetbets/comments/10ghk7h/to_do_economics_and_finance_like_a_boss/)
+- [This is not Financial Advice!](https://www.reddit.com/r/wallstreetbets/comments/10gfwr3/this_is_not_financial_advice/)
+- [Are the bulls back in town?... 1-19-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10ge9od/are_the_bulls_back_in_town_11923_spy_es_futures/)
+- [Netflix earnings are out - EPS: $0.12 vs $0.46 expected Revenue: $7.85 billion vs $7.82 billion expected](https://www.reddit.com/r/wallstreetbets/comments/10gdagf/netflix_earnings_are_out_eps_012_vs_046_expected/)
+- [What Are Your Moves Tomorrow, January 20, 2023](https://www.reddit.com/r/wallstreetbets/comments/10gd31d/what_are_your_moves_tomorrow_january_20_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
