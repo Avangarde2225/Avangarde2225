@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To do economics and finance like a boss](https://www.reddit.com/r/wallstreetbets/comments/10ghk7h/to_do_economics_and_finance_like_a_boss/)
-- [This is not Financial Advice!](https://www.reddit.com/r/wallstreetbets/comments/10gfwr3/this_is_not_financial_advice/)
-- [Are the bulls back in town?... 1-19-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10ge9od/are_the_bulls_back_in_town_11923_spy_es_futures/)
-- [Netflix earnings are out - EPS: $0.12 vs $0.46 expected Revenue: $7.85 billion vs $7.82 billion expected](https://www.reddit.com/r/wallstreetbets/comments/10gdagf/netflix_earnings_are_out_eps_012_vs_046_expected/)
-- [What Are Your Moves Tomorrow, January 20, 2023](https://www.reddit.com/r/wallstreetbets/comments/10gd31d/what_are_your_moves_tomorrow_january_20_2023/)
+- [THIS TIME it’s different](https://www.reddit.com/r/wallstreetbets/comments/10hd1yp/this_time_its_different/)
+- [It’s that easy?](https://www.reddit.com/r/wallstreetbets/comments/10h89v3/its_that_easy/)
+- [30k in TSLA calls into earnings… because WSB told me to](https://www.reddit.com/r/wallstreetbets/comments/10h82is/30k_in_tsla_calls_into_earnings_because_wsb_told/)
+- [Weekend Discussion Thread for the Weekend of January 21, 2023](https://www.reddit.com/r/wallstreetbets/comments/10h8018/weekend_discussion_thread_for_the_weekend_of/)
+- [NFLX Earnings, Put Play Gone Wrong | 25K Loss](https://www.reddit.com/r/wallstreetbets/comments/10h6uti/nflx_earnings_put_play_gone_wrong_25k_loss/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
