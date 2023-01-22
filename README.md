@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [THIS TIME it’s different](https://www.reddit.com/r/wallstreetbets/comments/10hd1yp/this_time_its_different/)
-- [It’s that easy?](https://www.reddit.com/r/wallstreetbets/comments/10h89v3/its_that_easy/)
-- [30k in TSLA calls into earnings… because WSB told me to](https://www.reddit.com/r/wallstreetbets/comments/10h82is/30k_in_tsla_calls_into_earnings_because_wsb_told/)
-- [Weekend Discussion Thread for the Weekend of January 21, 2023](https://www.reddit.com/r/wallstreetbets/comments/10h8018/weekend_discussion_thread_for_the_weekend_of/)
-- [NFLX Earnings, Put Play Gone Wrong | 25K Loss](https://www.reddit.com/r/wallstreetbets/comments/10h6uti/nflx_earnings_put_play_gone_wrong_25k_loss/)
+- [New to playing the market. Ive learned a lot from watching you guys! I think I&#39;m doing well so far! Thoughts?](https://www.reddit.com/r/wallstreetbets/comments/10i5jvo/new_to_playing_the_market_ive_learned_a_lot_from/)
+- [Upcoming Earnings for the Week of January 23, 2023 with estimates](https://www.reddit.com/r/wallstreetbets/comments/10i3xyf/upcoming_earnings_for_the_week_of_january_23_2023/)
+- [Goddamn, this is some serious gourmet lossporn](https://www.reddit.com/r/wallstreetbets/comments/10i2vdc/goddamn_this_is_some_serious_gourmet_lossporn/)
+- [300 —&gt; 7500 in two weeks. Must be doing something right.](https://www.reddit.com/r/wallstreetbets/comments/10hzvib/300_7500_in_two_weeks_must_be_doing_something/)
+- [SBF: &quot;i only have 100k left&quot;, FED: &quot;but I can squeeze out a 700 mil&quot;](https://www.reddit.com/r/wallstreetbets/comments/10hvnyv/sbf_i_only_have_100k_left_fed_but_i_can_squeeze/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
