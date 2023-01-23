@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [New to playing the market. Ive learned a lot from watching you guys! I think I&#39;m doing well so far! Thoughts?](https://www.reddit.com/r/wallstreetbets/comments/10i5jvo/new_to_playing_the_market_ive_learned_a_lot_from/)
-- [Upcoming Earnings for the Week of January 23, 2023 with estimates](https://www.reddit.com/r/wallstreetbets/comments/10i3xyf/upcoming_earnings_for_the_week_of_january_23_2023/)
-- [Goddamn, this is some serious gourmet lossporn](https://www.reddit.com/r/wallstreetbets/comments/10i2vdc/goddamn_this_is_some_serious_gourmet_lossporn/)
-- [300 —&gt; 7500 in two weeks. Must be doing something right.](https://www.reddit.com/r/wallstreetbets/comments/10hzvib/300_7500_in_two_weeks_must_be_doing_something/)
-- [SBF: &quot;i only have 100k left&quot;, FED: &quot;but I can squeeze out a 700 mil&quot;](https://www.reddit.com/r/wallstreetbets/comments/10hvnyv/sbf_i_only_have_100k_left_fed_but_i_can_squeeze/)
+- [LNG to the MOON because i say so](https://www.reddit.com/r/wallstreetbets/comments/10ix8pw/lng_to_the_moon_because_i_say_so/)
+- [Home Depot&#39;s cofounder — who retired in 2002 — says he doesn&#39;t want the &#39;woke generation&#39; leading business because of their &#39;laziness&#39;](https://www.reddit.com/r/wallstreetbets/comments/10ix4yc/home_depots_cofounder_who_retired_in_2002_says_he/)
+- [ETH/USD BULLISH?](https://www.reddit.com/r/wallstreetbets/comments/10iwj3f/ethusd_bullish/)
+- [Wife&#39;s boyfriend?](https://www.reddit.com/r/wallstreetbets/comments/10ivoax/wifes_boyfriend/)
+- [🕵️‍♂️ I SPY TA - Monday January 23, 2023 The Fine Line Between Reversal and Downtrend](https://www.reddit.com/r/wallstreetbets/comments/10iv0st/i_spy_ta_monday_january_23_2023_the_fine_line/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
