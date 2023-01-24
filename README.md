@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [LNG to the MOON because i say so](https://www.reddit.com/r/wallstreetbets/comments/10ix8pw/lng_to_the_moon_because_i_say_so/)
-- [Home Depot&#39;s cofounder — who retired in 2002 — says he doesn&#39;t want the &#39;woke generation&#39; leading business because of their &#39;laziness&#39;](https://www.reddit.com/r/wallstreetbets/comments/10ix4yc/home_depots_cofounder_who_retired_in_2002_says_he/)
-- [ETH/USD BULLISH?](https://www.reddit.com/r/wallstreetbets/comments/10iwj3f/ethusd_bullish/)
-- [Wife&#39;s boyfriend?](https://www.reddit.com/r/wallstreetbets/comments/10ivoax/wifes_boyfriend/)
-- [🕵️‍♂️ I SPY TA - Monday January 23, 2023 The Fine Line Between Reversal and Downtrend](https://www.reddit.com/r/wallstreetbets/comments/10iv0st/i_spy_ta_monday_january_23_2023_the_fine_line/)
+- [He’s got that look on his face again lmao](https://www.reddit.com/r/wallstreetbets/comments/10jqpxr/hes_got_that_look_on_his_face_again_lmao/)
+- [2.5k -&gt; 40k](https://www.reddit.com/r/wallstreetbets/comments/10jotkb/25k_40k/)
+- [Bulls continue to show unbullievable strength… 1-23-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10jo277/bulls_continue_to_show_unbullievable_strength/)
+- [lil’ bullish yolo $MSFT $SPY, it really is that easy?](https://www.reddit.com/r/wallstreetbets/comments/10jnxbi/lil_bullish_yolo_msft_spy_it_really_is_that_easy/)
+- [What Are Your Moves Tomorrow, January 24, 2023](https://www.reddit.com/r/wallstreetbets/comments/10jncmd/what_are_your_moves_tomorrow_january_24_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
