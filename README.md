@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Any guesses?](https://www.reddit.com/r/wallstreetbets/comments/10kkl1e/any_guesses/)
-- [When IV met Crush](https://www.reddit.com/r/wallstreetbets/comments/10kjqcp/when_iv_met_crush/)
-- [A look at house payments vs income ratio. Housing market has never been this unaffordable &lpar;in history&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10ki0my/a_look_at_house_payments_vs_income_ratio_housing/)
-- [Ronald is not feeling himself today.](https://www.reddit.com/r/wallstreetbets/comments/10khwnw/ronald_is_not_feeling_himself_today/)
-- [Translation: daddy Pow will have to bring out a bigger dildo, because y&#39;all don&#39;t listen](https://www.reddit.com/r/wallstreetbets/comments/10khwby/translation_daddy_pow_will_have_to_bring_out_a/)
+- [Please God, let it be true](https://www.reddit.com/r/wallstreetbets/comments/10lbz4d/please_god_let_it_be_true/)
+- [Yep](https://www.reddit.com/r/wallstreetbets/comments/10lbyyv/yep/)
+- [This guy is a gem.](https://www.reddit.com/r/wallstreetbets/comments/10lbt7i/this_guy_is_a_gem/)
+- [Do you agree with Mr Grantham?](https://www.reddit.com/r/wallstreetbets/comments/10laqkg/do_you_agree_with_mr_grantham/)
+- [The duality of man or some shit...good luck to both I guess](https://www.reddit.com/r/wallstreetbets/comments/10laqjr/the_duality_of_man_or_some_shitgood_luck_to_both/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
