@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Please God, let it be true](https://www.reddit.com/r/wallstreetbets/comments/10lbz4d/please_god_let_it_be_true/)
-- [Yep](https://www.reddit.com/r/wallstreetbets/comments/10lbyyv/yep/)
-- [This guy is a gem.](https://www.reddit.com/r/wallstreetbets/comments/10lbt7i/this_guy_is_a_gem/)
-- [Do you agree with Mr Grantham?](https://www.reddit.com/r/wallstreetbets/comments/10laqkg/do_you_agree_with_mr_grantham/)
-- [The duality of man or some shit...good luck to both I guess](https://www.reddit.com/r/wallstreetbets/comments/10laqjr/the_duality_of_man_or_some_shitgood_luck_to_both/)
+- [When You Are In The Money And A Shadowless Charizard Arrives](https://www.reddit.com/r/wallstreetbets/comments/10m5pbl/when_you_are_in_the_money_and_a_shadowless/)
+- [Wtf just happened with TSLA AH?!](https://www.reddit.com/r/wallstreetbets/comments/10m3xub/wtf_just_happened_with_tsla_ah/)
+- [How many of you have been here?](https://www.reddit.com/r/wallstreetbets/comments/10m36bx/how_many_of_you_have_been_here/)
+- [TSLA Calls Update aka: The Greatest Comeback of All Time](https://www.reddit.com/r/wallstreetbets/comments/10m2mvx/tsla_calls_update_aka_the_greatest_comeback_of/)
+- [What Are Your Moves Tomorrow, January 27, 2023](https://www.reddit.com/r/wallstreetbets/comments/10m2csi/what_are_your_moves_tomorrow_january_27_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
