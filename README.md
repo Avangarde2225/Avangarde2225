@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When You Are In The Money And A Shadowless Charizard Arrives](https://www.reddit.com/r/wallstreetbets/comments/10m5pbl/when_you_are_in_the_money_and_a_shadowless/)
-- [Wtf just happened with TSLA AH?!](https://www.reddit.com/r/wallstreetbets/comments/10m3xub/wtf_just_happened_with_tsla_ah/)
-- [How many of you have been here?](https://www.reddit.com/r/wallstreetbets/comments/10m36bx/how_many_of_you_have_been_here/)
-- [TSLA Calls Update aka: The Greatest Comeback of All Time](https://www.reddit.com/r/wallstreetbets/comments/10m2mvx/tsla_calls_update_aka_the_greatest_comeback_of/)
-- [What Are Your Moves Tomorrow, January 27, 2023](https://www.reddit.com/r/wallstreetbets/comments/10m2csi/what_are_your_moves_tomorrow_january_27_2023/)
+- [Bullish on tech layoffs](https://www.reddit.com/r/wallstreetbets/comments/10mziyb/bullish_on_tech_layoffs/)
+- [which one of you did it](https://www.reddit.com/r/wallstreetbets/comments/10mx8md/which_one_of_you_did_it/)
+- [My dumbass keep buying poots. Let’s see some bull blood on Monday :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10mx1p3/my_dumbass_keep_buying_poots_lets_see_some_bull/)
+- [New year, new trading strategy. No yolo’s, sell contracts when up, don’t get desperate.](https://www.reddit.com/r/wallstreetbets/comments/10mws93/new_year_new_trading_strategy_no_yolos_sell/)
+- [Weekend Discussion Thread for the Weekend of January 28, 2023](https://www.reddit.com/r/wallstreetbets/comments/10mvwob/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
