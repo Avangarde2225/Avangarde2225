@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bullish on tech layoffs](https://www.reddit.com/r/wallstreetbets/comments/10mziyb/bullish_on_tech_layoffs/)
-- [which one of you did it](https://www.reddit.com/r/wallstreetbets/comments/10mx8md/which_one_of_you_did_it/)
-- [My dumbass keep buying poots. Let’s see some bull blood on Monday :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10mx1p3/my_dumbass_keep_buying_poots_lets_see_some_bull/)
-- [New year, new trading strategy. No yolo’s, sell contracts when up, don’t get desperate.](https://www.reddit.com/r/wallstreetbets/comments/10mws93/new_year_new_trading_strategy_no_yolos_sell/)
-- [Weekend Discussion Thread for the Weekend of January 28, 2023](https://www.reddit.com/r/wallstreetbets/comments/10mvwob/weekend_discussion_thread_for_the_weekend_of/)
+- [rate my portfolio](https://www.reddit.com/r/wallstreetbets/comments/10nqys6/rate_my_portfolio/)
+- [You only need 10x to break even, what a steal](https://www.reddit.com/r/wallstreetbets/comments/10npryb/you_only_need_10x_to_break_even_what_a_steal/)
+- [JPMorgan, Deutsche Bank seek dismissal of lawsuits by Jeffrey Epstein accusers](https://www.reddit.com/r/wallstreetbets/comments/10no5z0/jpmorgan_deutsche_bank_seek_dismissal_of_lawsuits/)
+- [U.S. general warns troops that war with China is possible in two years](https://www.reddit.com/r/wallstreetbets/comments/10nnbgd/us_general_warns_troops_that_war_with_china_is/)
+- [He must be the manager](https://www.reddit.com/r/wallstreetbets/comments/10nmo88/he_must_be_the_manager/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
