@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [rate my portfolio](https://www.reddit.com/r/wallstreetbets/comments/10nqys6/rate_my_portfolio/)
-- [You only need 10x to break even, what a steal](https://www.reddit.com/r/wallstreetbets/comments/10npryb/you_only_need_10x_to_break_even_what_a_steal/)
-- [JPMorgan, Deutsche Bank seek dismissal of lawsuits by Jeffrey Epstein accusers](https://www.reddit.com/r/wallstreetbets/comments/10no5z0/jpmorgan_deutsche_bank_seek_dismissal_of_lawsuits/)
-- [U.S. general warns troops that war with China is possible in two years](https://www.reddit.com/r/wallstreetbets/comments/10nnbgd/us_general_warns_troops_that_war_with_china_is/)
-- [He must be the manager](https://www.reddit.com/r/wallstreetbets/comments/10nmo88/he_must_be_the_manager/)
+- [Bers mad](https://www.reddit.com/r/wallstreetbets/comments/10on8gg/bers_mad/)
+- [The Bull Market has Started… &lpar;NOT FINANCIAL ADVICE&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10om9lo/the_bull_market_has_started_not_financial_advice/)
+- [I cringed a little....](https://www.reddit.com/r/wallstreetbets/comments/10oln2q/i_cringed_a_little/)
+- [$49,000 NIO CALLS with explanation](https://www.reddit.com/r/wallstreetbets/comments/10ol8ww/49000_nio_calls_with_explanation/)
+- [Soft landing confirmed.](https://www.reddit.com/r/wallstreetbets/comments/10okbqr/soft_landing_confirmed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
