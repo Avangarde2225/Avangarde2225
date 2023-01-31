@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bers mad](https://www.reddit.com/r/wallstreetbets/comments/10on8gg/bers_mad/)
-- [The Bull Market has Started… &lpar;NOT FINANCIAL ADVICE&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10om9lo/the_bull_market_has_started_not_financial_advice/)
-- [I cringed a little....](https://www.reddit.com/r/wallstreetbets/comments/10oln2q/i_cringed_a_little/)
-- [$49,000 NIO CALLS with explanation](https://www.reddit.com/r/wallstreetbets/comments/10ol8ww/49000_nio_calls_with_explanation/)
-- [Soft landing confirmed.](https://www.reddit.com/r/wallstreetbets/comments/10okbqr/soft_landing_confirmed/)
+- [Do you agree? Share some thoughts. Lol](https://www.reddit.com/r/wallstreetbets/comments/10pi92m/do_you_agree_share_some_thoughts_lol/)
+- [My journey back to $1,000,000.00 starts this week. Anyone else ready for Facebook&#39;s surprise earnings beat on Wednesday? #META](https://www.reddit.com/r/wallstreetbets/comments/10phhc1/my_journey_back_to_100000000_starts_this_week/)
+- [Fuckin right.](https://www.reddit.com/r/wallstreetbets/comments/10phepe/fuckin_right/)
+- [420bps](https://www.reddit.com/r/wallstreetbets/comments/10pgl9j/420bps/)
+- [Do I belong in here now?](https://www.reddit.com/r/wallstreetbets/comments/10pfu8y/do_i_belong_in_here_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
