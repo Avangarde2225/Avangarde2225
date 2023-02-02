@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Michael Burry: &#39;Sell&#39;](https://www.reddit.com/r/wallstreetbets/comments/10qf28g/michael_burry_sell/)
-- [Well...](https://www.reddit.com/r/wallstreetbets/comments/10qevgw/well/)
-- [4.5K YOLO 🌈🐻 SPY PUTS](https://www.reddit.com/r/wallstreetbets/comments/10qddop/45k_yolo_spy_puts/)
-- [Pre-FOMC day… 1-31-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10qbb4g/prefomc_day_13123_spy_es_futures_and_tesla_daily/)
-- [snapped, and its gone](https://www.reddit.com/r/wallstreetbets/comments/10qb0t6/snapped_and_its_gone/)
+- [Puts on $SBUX](https://www.reddit.com/r/wallstreetbets/comments/10r93o3/puts_on_sbux/)
+- [Thought this belongs here](https://www.reddit.com/r/wallstreetbets/comments/10r8ib7/thought_this_belongs_here/)
+- [Carvana Squeeze Porn](https://www.reddit.com/r/wallstreetbets/comments/10r6iww/carvana_squeeze_porn/)
+- [850k AMD Yolo bought premarket this morning, position closed. Ber play was way too obvious, always inverse the crowd.](https://www.reddit.com/r/wallstreetbets/comments/10r61nv/850k_amd_yolo_bought_premarket_this_morning/)
+- [What Are Your Moves Tomorrow, February 02, 2023](https://www.reddit.com/r/wallstreetbets/comments/10r608y/what_are_your_moves_tomorrow_february_02_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
