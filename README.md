@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on $SBUX](https://www.reddit.com/r/wallstreetbets/comments/10r93o3/puts_on_sbux/)
-- [Thought this belongs here](https://www.reddit.com/r/wallstreetbets/comments/10r8ib7/thought_this_belongs_here/)
-- [Carvana Squeeze Porn](https://www.reddit.com/r/wallstreetbets/comments/10r6iww/carvana_squeeze_porn/)
-- [850k AMD Yolo bought premarket this morning, position closed. Ber play was way too obvious, always inverse the crowd.](https://www.reddit.com/r/wallstreetbets/comments/10r61nv/850k_amd_yolo_bought_premarket_this_morning/)
-- [What Are Your Moves Tomorrow, February 02, 2023](https://www.reddit.com/r/wallstreetbets/comments/10r608y/what_are_your_moves_tomorrow_february_02_2023/)
+- [Missing EPS, so hot right now](https://www.reddit.com/r/wallstreetbets/comments/10s3a7y/missing_eps_so_hot_right_now/)
+- [why you shouldn&#39;t tax-loss harvest :&lpar;](https://www.reddit.com/r/wallstreetbets/comments/10s1z54/why_you_shouldnt_taxloss_harvest/)
+- [Holding puts through FOMC and today...](https://www.reddit.com/r/wallstreetbets/comments/10s1o7o/holding_puts_through_fomc_and_today/)
+- [Fourth and final earnings play. Short AMZN. $1.4 million AUD position size ~&lpar;$990 million USD&rpar;. Can I win all 4 out of 4 predictions?](https://www.reddit.com/r/wallstreetbets/comments/10s119e/fourth_and_final_earnings_play_short_amzn_14/)
+- [21K APPL Call](https://www.reddit.com/r/wallstreetbets/comments/10s0vhi/21k_appl_call/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
