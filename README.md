@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Missing EPS, so hot right now](https://www.reddit.com/r/wallstreetbets/comments/10s3a7y/missing_eps_so_hot_right_now/)
-- [why you shouldn&#39;t tax-loss harvest :&lpar;](https://www.reddit.com/r/wallstreetbets/comments/10s1z54/why_you_shouldnt_taxloss_harvest/)
-- [Holding puts through FOMC and today...](https://www.reddit.com/r/wallstreetbets/comments/10s1o7o/holding_puts_through_fomc_and_today/)
-- [Fourth and final earnings play. Short AMZN. $1.4 million AUD position size ~&lpar;$990 million USD&rpar;. Can I win all 4 out of 4 predictions?](https://www.reddit.com/r/wallstreetbets/comments/10s119e/fourth_and_final_earnings_play_short_amzn_14/)
-- [21K APPL Call](https://www.reddit.com/r/wallstreetbets/comments/10s0vhi/21k_appl_call/)
+- [Final 700 --&gt; 27K, is that enough to take the screenshot??](https://www.reddit.com/r/wallstreetbets/comments/10syuzt/final_700_27k_is_that_enough_to_take_the/)
+- [Tesla bears, seethe more. Calls will print Monday.](https://www.reddit.com/r/wallstreetbets/comments/10syuqz/tesla_bears_seethe_more_calls_will_print_monday/)
+- [I will be retiring from Wendy ❤️ thank you Bears.](https://www.reddit.com/r/wallstreetbets/comments/10sxty9/i_will_be_retiring_from_wendy_thank_you_bears/)
+- [$1,9k to $15k in 5 weeks &lpar;Don&#39;t mind the unrealized -40% :D &rpar;](https://www.reddit.com/r/wallstreetbets/comments/10sw3h8/19k_to_15k_in_5_weeks_dont_mind_the_unrealized_40/)
+- [Me after buying shorts at open and selling at 11 today](https://www.reddit.com/r/wallstreetbets/comments/10svejw/me_after_buying_shorts_at_open_and_selling_at_11/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
