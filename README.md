@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Final 700 --&gt; 27K, is that enough to take the screenshot??](https://www.reddit.com/r/wallstreetbets/comments/10syuzt/final_700_27k_is_that_enough_to_take_the/)
-- [Tesla bears, seethe more. Calls will print Monday.](https://www.reddit.com/r/wallstreetbets/comments/10syuqz/tesla_bears_seethe_more_calls_will_print_monday/)
-- [I will be retiring from Wendy ❤️ thank you Bears.](https://www.reddit.com/r/wallstreetbets/comments/10sxty9/i_will_be_retiring_from_wendy_thank_you_bears/)
-- [$1,9k to $15k in 5 weeks &lpar;Don&#39;t mind the unrealized -40% :D &rpar;](https://www.reddit.com/r/wallstreetbets/comments/10sw3h8/19k_to_15k_in_5_weeks_dont_mind_the_unrealized_40/)
-- [Me after buying shorts at open and selling at 11 today](https://www.reddit.com/r/wallstreetbets/comments/10svejw/me_after_buying_shorts_at_open_and_selling_at_11/)
+- [Holding Egg&#39;s as the new Toilet Paper](https://www.reddit.com/r/wallstreetbets/comments/10tva3h/holding_eggs_as_the_new_toilet_paper/)
+- [In honor of the F-22&#39;s triumphal air-to-air battle in the skies above the continental USA](https://www.reddit.com/r/wallstreetbets/comments/10tv7ec/in_honor_of_the_f22s_triumphal_airtoair_battle_in/)
+- [Bulls next week](https://www.reddit.com/r/wallstreetbets/comments/10tscq2/bulls_next_week/)
+- [Robinhood: Risky Gamble or Lucrative Venture?](https://www.reddit.com/r/wallstreetbets/comments/10trij3/robinhood_risky_gamble_or_lucrative_venture/)
+- [Let us watch Blade Runner 2049](https://www.reddit.com/r/wallstreetbets/comments/10tre6i/let_us_watch_blade_runner_2049/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
