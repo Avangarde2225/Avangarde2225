@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Someone posted a chart highlighting historical low unemployment rates.Couldn&#39;t help but notice what happened immediately after those points.](https://www.reddit.com/r/wallstreetbets/comments/10ury99/someone_posted_a_chart_highlighting_historical/)
-- [Are you winning dad?](https://www.reddit.com/r/wallstreetbets/comments/10ur4oj/are_you_winning_dad/)
-- [Microsoft reportedly plans to update Bing with a faster version of ChatGPT as early as next week](https://www.reddit.com/r/wallstreetbets/comments/10uqkve/microsoft_reportedly_plans_to_update_bing_with_a/)
-- [You wouldn&#39;t get it](https://www.reddit.com/r/wallstreetbets/comments/10upi5w/you_wouldnt_get_it/)
-- [Finally caved in &amp; bought TSLA &lpar;1st time&rpar;. I know RH sucks but I keep all my risky investments on it &lpar;I use Fidelity for other stuff&rpar;](https://www.reddit.com/r/wallstreetbets/comments/10up2n6/finally_caved_in_bought_tsla_1st_time_i_know_rh/)
+- [I hear they sell good rugs for pulling](https://www.reddit.com/r/wallstreetbets/comments/10vmb74/i_hear_they_sell_good_rugs_for_pulling/)
+- [I’m gonna have to agree with Cramer on this one](https://www.reddit.com/r/wallstreetbets/comments/10vm9ol/im_gonna_have_to_agree_with_cramer_on_this_one/)
+- [Enter Elon](https://www.reddit.com/r/wallstreetbets/comments/10vm9d5/enter_elon/)
+- [When You Buy After 100% Run](https://www.reddit.com/r/wallstreetbets/comments/10vjtno/when_you_buy_after_100_run/)
+- [For real though...](https://www.reddit.com/r/wallstreetbets/comments/10vixid/for_real_though/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
