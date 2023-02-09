@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WSJ Interview 2.0… 2-7-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10whbp6/wsj_interview_20_2723_spy_es_futures_and_tesla/)
-- [In the past 17 years, after market downturns, we have never seen the market dip after S&amp;P breaks above the 200 daily moving average.](https://www.reddit.com/r/wallstreetbets/comments/10wg60v/in_the_past_17_years_after_market_downturns_we/)
-- [I will be retiring from Wendy permanently‼️$293 —&gt; $170k in about a month. If I could do it, you could also. Highly regarded as usual.](https://www.reddit.com/r/wallstreetbets/comments/10wel43/i_will_be_retiring_from_wendy_permanently293_170k/)
-- [My accountant going through all my 2022 trades just to report a loss of $76,485 that I’ll be rolling over for 25 years](https://www.reddit.com/r/wallstreetbets/comments/10wdmek/my_accountant_going_through_all_my_2022_trades/)
-- [Uber earnings tomorrow](https://www.reddit.com/r/wallstreetbets/comments/10wd396/uber_earnings_tomorrow/)
+- [2-8-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10xdpkx/2823_spy_es_futures_and_tesla_daily_market/)
+- [aint nothin like some good loss porn](https://www.reddit.com/r/wallstreetbets/comments/10xca05/aint_nothin_like_some_good_loss_porn/)
+- [Live view of Google shareholders watching the Al Bard demo](https://www.reddit.com/r/wallstreetbets/comments/10xc2n9/live_view_of_google_shareholders_watching_the_al/)
+- [AI is not the future](https://www.reddit.com/r/wallstreetbets/comments/10xbc6r/ai_is_not_the_future/)
+- [What Are Your Moves Tomorrow, February 09, 2023](https://www.reddit.com/r/wallstreetbets/comments/10xalwz/what_are_your_moves_tomorrow_february_09_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
