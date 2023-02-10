@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [2-8-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/10xdpkx/2823_spy_es_futures_and_tesla_daily_market/)
-- [aint nothin like some good loss porn](https://www.reddit.com/r/wallstreetbets/comments/10xca05/aint_nothin_like_some_good_loss_porn/)
-- [Live view of Google shareholders watching the Al Bard demo](https://www.reddit.com/r/wallstreetbets/comments/10xc2n9/live_view_of_google_shareholders_watching_the_al/)
-- [AI is not the future](https://www.reddit.com/r/wallstreetbets/comments/10xbc6r/ai_is_not_the_future/)
-- [What Are Your Moves Tomorrow, February 09, 2023](https://www.reddit.com/r/wallstreetbets/comments/10xalwz/what_are_your_moves_tomorrow_february_09_2023/)
+- [12 years ago, ask me how I lost it...](https://www.reddit.com/r/wallstreetbets/comments/10y9m7e/12_years_ago_ask_me_how_i_lost_it/)
+- [Who reached out to reddit after I posted my loss porn 🤣](https://www.reddit.com/r/wallstreetbets/comments/10y8yqr/who_reached_out_to_reddit_after_i_posted_my_loss/)
+- [Am I fucked or am I fucked?](https://www.reddit.com/r/wallstreetbets/comments/10y8p8o/am_i_fucked_or_am_i_fucked/)
+- [god damn gensler - man rlly killed eth with the new staking rules](https://www.reddit.com/r/wallstreetbets/comments/10y7boq/god_damn_gensler_man_rlly_killed_eth_with_the_new/)
+- [Email Canadian Netflix sent to me today. Bought puts. Cancelled subscription.](https://www.reddit.com/r/wallstreetbets/comments/10y6v7q/email_canadian_netflix_sent_to_me_today_bought/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
