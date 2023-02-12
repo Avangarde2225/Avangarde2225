@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m really sorry for this...](https://www.reddit.com/r/wallstreetbets/comments/10z5d3w/im_really_sorry_for_this/)
-- [SPY went to 430 for 1 minute at 4:53, any idea why this happened?](https://www.reddit.com/r/wallstreetbets/comments/10z4zs0/spy_went_to_430_for_1_minute_at_453_any_idea_why/)
-- [Early look at next week’s earnings](https://www.reddit.com/r/wallstreetbets/comments/10z4ilw/early_look_at_next_weeks_earnings/)
-- [2-10-23 SPY/ ES Futures and Tesla Weekly Market Analysis and Recap](https://www.reddit.com/r/wallstreetbets/comments/10z422o/21023_spy_es_futures_and_tesla_weekly_market/)
-- [Path to Redemption. Converted 1k to 180k in 10 days of Feb](https://www.reddit.com/r/wallstreetbets/comments/10z3ovm/path_to_redemption_converted_1k_to_180k_in_10/)
+- [PwC Launches Decentralized Online Crypto Tax Calculation Service: Make Tax Compliance Effortless](https://www.reddit.com/r/wallstreetbets/comments/1102gp6/pwc_launches_decentralized_online_crypto_tax/)
+- [Fortune](https://www.reddit.com/r/wallstreetbets/comments/11022ng/fortune/)
+- [Am I regarded or is January CPI coming in hot?](https://www.reddit.com/r/wallstreetbets/comments/10zz6b0/am_i_regarded_or_is_january_cpi_coming_in_hot/)
+- [Redeem this](https://www.reddit.com/r/wallstreetbets/comments/10zxuy2/redeem_this/)
+- [No later than 6 months](https://www.reddit.com/r/wallstreetbets/comments/10zwivi/no_later_than_6_months/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
