@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PwC Launches Decentralized Online Crypto Tax Calculation Service: Make Tax Compliance Effortless](https://www.reddit.com/r/wallstreetbets/comments/1102gp6/pwc_launches_decentralized_online_crypto_tax/)
-- [Fortune](https://www.reddit.com/r/wallstreetbets/comments/11022ng/fortune/)
-- [Am I regarded or is January CPI coming in hot?](https://www.reddit.com/r/wallstreetbets/comments/10zz6b0/am_i_regarded_or_is_january_cpi_coming_in_hot/)
-- [Redeem this](https://www.reddit.com/r/wallstreetbets/comments/10zxuy2/redeem_this/)
-- [No later than 6 months](https://www.reddit.com/r/wallstreetbets/comments/10zwivi/no_later_than_6_months/)
+- [One year ago, FTX ran a Super Bowl commercial with Larry David saying &quot;Don&#39;t miss out.&quot;](https://www.reddit.com/r/wallstreetbets/comments/110ukkh/one_year_ago_ftx_ran_a_super_bowl_commercial_with/)
+- [Watching the Superbowl? Come to the WSB daily or WSB discord!](https://www.reddit.com/r/wallstreetbets/comments/110uhd4/watching_the_superbowl_come_to_the_wsb_daily_or/)
+- [What really matters during earnings season](https://www.reddit.com/r/wallstreetbets/comments/110t5tn/what_really_matters_during_earnings_season/)
+- [Let&#39;s Go K.C.!!](https://www.reddit.com/r/wallstreetbets/comments/110sv3j/lets_go_kc/)
+- [a bench made for wsb folks.](https://www.reddit.com/r/wallstreetbets/comments/110sa3m/a_bench_made_for_wsb_folks/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
