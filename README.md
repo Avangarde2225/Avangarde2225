@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One year ago, FTX ran a Super Bowl commercial with Larry David saying &quot;Don&#39;t miss out.&quot;](https://www.reddit.com/r/wallstreetbets/comments/110ukkh/one_year_ago_ftx_ran_a_super_bowl_commercial_with/)
-- [Watching the Superbowl? Come to the WSB daily or WSB discord!](https://www.reddit.com/r/wallstreetbets/comments/110uhd4/watching_the_superbowl_come_to_the_wsb_daily_or/)
-- [What really matters during earnings season](https://www.reddit.com/r/wallstreetbets/comments/110t5tn/what_really_matters_during_earnings_season/)
-- [Let&#39;s Go K.C.!!](https://www.reddit.com/r/wallstreetbets/comments/110sv3j/lets_go_kc/)
-- [a bench made for wsb folks.](https://www.reddit.com/r/wallstreetbets/comments/110sa3m/a_bench_made_for_wsb_folks/)
+- [120hr work weeks my ass](https://www.reddit.com/r/wallstreetbets/comments/111nfi0/120hr_work_weeks_my_ass/)
+- [Get your calls!](https://www.reddit.com/r/wallstreetbets/comments/111nd43/get_your_calls/)
+- [Puts on MSFT, Bing AI is worse than all of us degenerates](https://www.reddit.com/r/wallstreetbets/comments/111n0xz/puts_on_msft_bing_ai_is_worse_than_all_of_us/)
+- [At least I can still afford vanity tags.](https://www.reddit.com/r/wallstreetbets/comments/111mxd6/at_least_i_can_still_afford_vanity_tags/)
+- [After years of blowing accounts i can finally say i have found consistency trading $SPX Risk management baby. Cheers my fellow degenerates 🥂](https://www.reddit.com/r/wallstreetbets/comments/111mbiq/after_years_of_blowing_accounts_i_can_finally_say/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
