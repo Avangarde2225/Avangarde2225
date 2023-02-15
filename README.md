@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [120hr work weeks my ass](https://www.reddit.com/r/wallstreetbets/comments/111nfi0/120hr_work_weeks_my_ass/)
-- [Get your calls!](https://www.reddit.com/r/wallstreetbets/comments/111nd43/get_your_calls/)
-- [Puts on MSFT, Bing AI is worse than all of us degenerates](https://www.reddit.com/r/wallstreetbets/comments/111n0xz/puts_on_msft_bing_ai_is_worse_than_all_of_us/)
-- [At least I can still afford vanity tags.](https://www.reddit.com/r/wallstreetbets/comments/111mxd6/at_least_i_can_still_afford_vanity_tags/)
-- [After years of blowing accounts i can finally say i have found consistency trading $SPX Risk management baby. Cheers my fellow degenerates 🥂](https://www.reddit.com/r/wallstreetbets/comments/111mbiq/after_years_of_blowing_accounts_i_can_finally_say/)
+- [CPI DAY! IS 405 or 420 coming next? 2-14-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/112gvjv/cpi_day_is_405_or_420_coming_next_21423_spy_es/)
+- [No More Fed Pivot this Year Boys &lpar;the market was previously pricing in rate cuts this year&rpar;](https://www.reddit.com/r/wallstreetbets/comments/112gdkf/no_more_fed_pivot_this_year_boys_the_market_was/)
+- [Update: 67k SPY Puts. Still holding.](https://www.reddit.com/r/wallstreetbets/comments/112g1hj/update_67k_spy_puts_still_holding/)
+- [What Are Your Moves Tomorrow, February 15, 2023](https://www.reddit.com/r/wallstreetbets/comments/112g0hf/what_are_your_moves_tomorrow_february_15_2023/)
+- [Up, down, I can’t win](https://www.reddit.com/r/wallstreetbets/comments/112fz7r/up_down_i_cant_win/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
