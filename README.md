@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CPI DAY! IS 405 or 420 coming next? 2-14-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/112gvjv/cpi_day_is_405_or_420_coming_next_21423_spy_es/)
-- [No More Fed Pivot this Year Boys &lpar;the market was previously pricing in rate cuts this year&rpar;](https://www.reddit.com/r/wallstreetbets/comments/112gdkf/no_more_fed_pivot_this_year_boys_the_market_was/)
-- [Update: 67k SPY Puts. Still holding.](https://www.reddit.com/r/wallstreetbets/comments/112g1hj/update_67k_spy_puts_still_holding/)
-- [What Are Your Moves Tomorrow, February 15, 2023](https://www.reddit.com/r/wallstreetbets/comments/112g0hf/what_are_your_moves_tomorrow_february_15_2023/)
-- [Up, down, I can’t win](https://www.reddit.com/r/wallstreetbets/comments/112fz7r/up_down_i_cant_win/)
+- [All Hail ChatGPT](https://www.reddit.com/r/wallstreetbets/comments/113c5bs/all_hail_chatgpt/)
+- [Calls or Puts on $TSLA?](https://www.reddit.com/r/wallstreetbets/comments/113bvqm/calls_or_puts_on_tsla/)
+- [Spicy](https://www.reddit.com/r/wallstreetbets/comments/113bszk/spicy/)
+- [We are all in luck!](https://www.reddit.com/r/wallstreetbets/comments/113be8y/we_are_all_in_luck/)
+- [Buy the dip continues… 2-15-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/1139q8l/buy_the_dip_continues_21523_spy_es_futures_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
