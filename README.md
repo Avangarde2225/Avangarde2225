@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Unicorn CEOs These Days...](https://www.reddit.com/r/wallstreetbets/comments/1151agz/unicorn_ceos_these_days/)
-- [I am back in the game on Tuesday!](https://www.reddit.com/r/wallstreetbets/comments/11511x2/i_am_back_in_the_game_on_tuesday/)
-- [what the hell was that trading week](https://www.reddit.com/r/wallstreetbets/comments/114zvcg/what_the_hell_was_that_trading_week/)
-- [Bulls on parade!](https://www.reddit.com/r/wallstreetbets/comments/114yub1/bulls_on_parade/)
-- [I hate earnings season](https://www.reddit.com/r/wallstreetbets/comments/114y5wj/i_hate_earnings_season/)
+- [Screenshotted this today. I can confidently state that I am personally contributing to the trend in this graphic.](https://www.reddit.com/r/wallstreetbets/comments/115vp9d/screenshotted_this_today_i_can_confidently_state/)
+- [Certified Stonk Broker](https://www.reddit.com/r/wallstreetbets/comments/115tvrn/certified_stonk_broker/)
+- [After Posting Your First Loss On WSB](https://www.reddit.com/r/wallstreetbets/comments/115sp61/after_posting_your_first_loss_on_wsb/)
+- [A visionary no less. WTF](https://www.reddit.com/r/wallstreetbets/comments/115sevj/a_visionary_no_less_wtf/)
+- [This is probably my funniest weekly chart ever](https://www.reddit.com/r/wallstreetbets/comments/115risf/this_is_probably_my_funniest_weekly_chart_ever/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
