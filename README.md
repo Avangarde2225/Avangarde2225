@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Screenshotted this today. I can confidently state that I am personally contributing to the trend in this graphic.](https://www.reddit.com/r/wallstreetbets/comments/115vp9d/screenshotted_this_today_i_can_confidently_state/)
-- [Certified Stonk Broker](https://www.reddit.com/r/wallstreetbets/comments/115tvrn/certified_stonk_broker/)
-- [After Posting Your First Loss On WSB](https://www.reddit.com/r/wallstreetbets/comments/115sp61/after_posting_your_first_loss_on_wsb/)
-- [A visionary no less. WTF](https://www.reddit.com/r/wallstreetbets/comments/115sevj/a_visionary_no_less_wtf/)
-- [This is probably my funniest weekly chart ever](https://www.reddit.com/r/wallstreetbets/comments/115risf/this_is_probably_my_funniest_weekly_chart_ever/)
+- [Wendy&#39;s sees us - new job requirements](https://www.reddit.com/r/wallstreetbets/comments/116sjw4/wendys_sees_us_new_job_requirements/)
+- [wen lambo?](https://www.reddit.com/r/wallstreetbets/comments/116rsm8/wen_lambo/)
+- [Microsoft&#39;s upgraded search engine](https://www.reddit.com/r/wallstreetbets/comments/116qtbb/microsofts_upgraded_search_engine/)
+- [Buying the NASDAQ-100 Dip](https://www.reddit.com/r/wallstreetbets/comments/116pjoi/buying_the_nasdaq100_dip/)
+- [Selling puts on indexes with margin](https://www.reddit.com/r/wallstreetbets/comments/116ozvy/selling_puts_on_indexes_with_margin/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
