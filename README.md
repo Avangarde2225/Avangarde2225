@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wendy&#39;s sees us - new job requirements](https://www.reddit.com/r/wallstreetbets/comments/116sjw4/wendys_sees_us_new_job_requirements/)
-- [wen lambo?](https://www.reddit.com/r/wallstreetbets/comments/116rsm8/wen_lambo/)
-- [Microsoft&#39;s upgraded search engine](https://www.reddit.com/r/wallstreetbets/comments/116qtbb/microsofts_upgraded_search_engine/)
-- [Buying the NASDAQ-100 Dip](https://www.reddit.com/r/wallstreetbets/comments/116pjoi/buying_the_nasdaq100_dip/)
-- [Selling puts on indexes with margin](https://www.reddit.com/r/wallstreetbets/comments/116ozvy/selling_puts_on_indexes_with_margin/)
+- [Russian doomer feel holding these bags. Molchat Doma: Waves on 24x7 loop. F.](https://www.reddit.com/r/wallstreetbets/comments/117nhig/russian_doomer_feel_holding_these_bags_molchat/)
+- [US Large bankruptcies in January touched the highest since 2010 👀](https://www.reddit.com/r/wallstreetbets/comments/117ne1g/us_large_bankruptcies_in_january_touched_the/)
+- [ETF and Market Evaluation for week of 02/21/2023](https://www.reddit.com/r/wallstreetbets/comments/117n3q5/etf_and_market_evaluation_for_week_of_02212023/)
+- [You whippersnappers don&#39;t respect your elders from the 19th century. Oil and Railroads have outperformed the S&amp;P 500 by 3x during our life](https://www.reddit.com/r/wallstreetbets/comments/117lpas/you_whippersnappers_dont_respect_your_elders_from/)
+- [Oscar Health execs remain confident in path to profitability even as losses swell in 2022](https://www.reddit.com/r/wallstreetbets/comments/117kncm/oscar_health_execs_remain_confident_in_path_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
