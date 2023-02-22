@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Russian doomer feel holding these bags. Molchat Doma: Waves on 24x7 loop. F.](https://www.reddit.com/r/wallstreetbets/comments/117nhig/russian_doomer_feel_holding_these_bags_molchat/)
-- [US Large bankruptcies in January touched the highest since 2010 👀](https://www.reddit.com/r/wallstreetbets/comments/117ne1g/us_large_bankruptcies_in_january_touched_the/)
-- [ETF and Market Evaluation for week of 02/21/2023](https://www.reddit.com/r/wallstreetbets/comments/117n3q5/etf_and_market_evaluation_for_week_of_02212023/)
-- [You whippersnappers don&#39;t respect your elders from the 19th century. Oil and Railroads have outperformed the S&amp;P 500 by 3x during our life](https://www.reddit.com/r/wallstreetbets/comments/117lpas/you_whippersnappers_dont_respect_your_elders_from/)
-- [Oscar Health execs remain confident in path to profitability even as losses swell in 2022](https://www.reddit.com/r/wallstreetbets/comments/117kncm/oscar_health_execs_remain_confident_in_path_to/)
+- [Options are a bitch](https://www.reddit.com/r/wallstreetbets/comments/118io74/options_are_a_bitch/)
+- [Blew my life savings again 🤡](https://www.reddit.com/r/wallstreetbets/comments/118gfw7/blew_my_life_savings_again/)
+- [Amazon employees push CEO Andy Jassy to drop return-to-office mandate](https://www.reddit.com/r/wallstreetbets/comments/118fubf/amazon_employees_push_ceo_andy_jassy_to_drop/)
+- [Beary impressive… 2-21-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/118fqud/beary_impressive_22123_spy_es_futures_and_tesla/)
+- [140k Put Update. Sold, 83k Profit.](https://www.reddit.com/r/wallstreetbets/comments/118eyhy/140k_put_update_sold_83k_profit/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
