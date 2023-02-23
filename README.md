@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Options are a bitch](https://www.reddit.com/r/wallstreetbets/comments/118io74/options_are_a_bitch/)
-- [Blew my life savings again 🤡](https://www.reddit.com/r/wallstreetbets/comments/118gfw7/blew_my_life_savings_again/)
-- [Amazon employees push CEO Andy Jassy to drop return-to-office mandate](https://www.reddit.com/r/wallstreetbets/comments/118fubf/amazon_employees_push_ceo_andy_jassy_to_drop/)
-- [Beary impressive… 2-21-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/118fqud/beary_impressive_22123_spy_es_futures_and_tesla/)
-- [140k Put Update. Sold, 83k Profit.](https://www.reddit.com/r/wallstreetbets/comments/118eyhy/140k_put_update_sold_83k_profit/)
+- [Congratulations everyone!](https://www.reddit.com/r/wallstreetbets/comments/119gvc5/congratulations_everyone/)
+- [FOMC Minute day… 2-22-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/119gel0/fomc_minute_day_22223_spy_es_futures_and_tesla/)
+- [Meta plans to cut thousands of jobs, after CEO predicted no more layoffs](https://www.reddit.com/r/wallstreetbets/comments/119dmnb/meta_plans_to_cut_thousands_of_jobs_after_ceo/)
+- [What Are Your Moves Tomorrow, February 23, 2023](https://www.reddit.com/r/wallstreetbets/comments/119cuxm/what_are_your_moves_tomorrow_february_23_2023/)
+- [TESLA TO THE MOON!! YOLO MY ENTIRE LIFE SAVINGS!!](https://www.reddit.com/r/wallstreetbets/comments/119cq37/tesla_to_the_moon_yolo_my_entire_life_savings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
