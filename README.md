@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Congratulations everyone!](https://www.reddit.com/r/wallstreetbets/comments/119gvc5/congratulations_everyone/)
-- [FOMC Minute day… 2-22-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/119gel0/fomc_minute_day_22223_spy_es_futures_and_tesla/)
-- [Meta plans to cut thousands of jobs, after CEO predicted no more layoffs](https://www.reddit.com/r/wallstreetbets/comments/119dmnb/meta_plans_to_cut_thousands_of_jobs_after_ceo/)
-- [What Are Your Moves Tomorrow, February 23, 2023](https://www.reddit.com/r/wallstreetbets/comments/119cuxm/what_are_your_moves_tomorrow_february_23_2023/)
-- [TESLA TO THE MOON!! YOLO MY ENTIRE LIFE SAVINGS!!](https://www.reddit.com/r/wallstreetbets/comments/119cq37/tesla_to_the_moon_yolo_my_entire_life_savings/)
+- [In the eyes of an Angel](https://www.reddit.com/r/wallstreetbets/comments/11ad51n/in_the_eyes_of_an_angel/)
+- [$NVDA calls](https://www.reddit.com/r/wallstreetbets/comments/11ac6j9/nvda_calls/)
+- [Ah Shit..Some of you in trouble 🤣😅](https://www.reddit.com/r/wallstreetbets/comments/11a9vx7/ah_shitsome_of_you_in_trouble/)
+- [The bulls and bears continue to fight… 2-23-23 SPY/ ES Futures, and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11a9amh/the_bulls_and_bears_continue_to_fight_22323_spy/)
+- [What Are Your Moves Tomorrow, February 24, 2023](https://www.reddit.com/r/wallstreetbets/comments/11a8m0p/what_are_your_moves_tomorrow_february_24_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
