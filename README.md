@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Kangaroo market continues… 2-24-23 SPY/ ES Futures and Tesla Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11b2uqn/the_kangaroo_market_continues_22423_spy_es/)
-- [The Fed is gearing up for a longer-than-expected inflation fight](https://www.reddit.com/r/wallstreetbets/comments/11b29bl/the_fed_is_gearing_up_for_a_longerthanexpected/)
-- [Weekend Discussion Thread for the Weekend of February 25, 2023](https://www.reddit.com/r/wallstreetbets/comments/11b1xt5/weekend_discussion_thread_for_the_weekend_of/)
-- [Most Anticipated Earnings Releases for the week beginning February 27th, 2023](https://www.reddit.com/r/wallstreetbets/comments/11b0zz8/most_anticipated_earnings_releases_for_the_week/)
-- [Close to Impossible for rise in Natural Gas prices to end](https://www.reddit.com/r/wallstreetbets/comments/11az7b9/close_to_impossible_for_rise_in_natural_gas/)
+- [$GOOGL launch BARD AI](https://www.reddit.com/r/wallstreetbets/comments/11bzpko/googl_launch_bard_ai/)
+- [Wendy&#39;s Earnings](https://www.reddit.com/r/wallstreetbets/comments/11bx975/wendys_earnings/)
+- [Bears are screwed based off my astrology, SPY —&gt; 430](https://www.reddit.com/r/wallstreetbets/comments/11bx4hc/bears_are_screwed_based_off_my_astrology_spy_430/)
+- [His or her](https://www.reddit.com/r/wallstreetbets/comments/11bw9r9/his_or_her/)
+- [2.3 Dollars!?!?](https://www.reddit.com/r/wallstreetbets/comments/11bvrn6/23_dollars/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
