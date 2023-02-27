@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$GOOGL launch BARD AI](https://www.reddit.com/r/wallstreetbets/comments/11bzpko/googl_launch_bard_ai/)
-- [Wendy&#39;s Earnings](https://www.reddit.com/r/wallstreetbets/comments/11bx975/wendys_earnings/)
-- [Bears are screwed based off my astrology, SPY —&gt; 430](https://www.reddit.com/r/wallstreetbets/comments/11bx4hc/bears_are_screwed_based_off_my_astrology_spy_430/)
-- [His or her](https://www.reddit.com/r/wallstreetbets/comments/11bw9r9/his_or_her/)
-- [2.3 Dollars!?!?](https://www.reddit.com/r/wallstreetbets/comments/11bvrn6/23_dollars/)
+- [$BABA &lpar;Alibaba&rpar; Revenue +2.1%, Income From Operations +395.6%, Net Income +138%, EPS +76.4%, Free Cash Flow +14.8%](https://www.reddit.com/r/wallstreetbets/comments/11cwqx1/baba_alibaba_revenue_21_income_from_operations/)
+- [WSB when asked to backup their analysis](https://www.reddit.com/r/wallstreetbets/comments/11cwd41/wsb_when_asked_to_backup_their_analysis/)
+- [Our gambling is saving the economy](https://www.reddit.com/r/wallstreetbets/comments/11cvtef/our_gambling_is_saving_the_economy/)
+- [Norfolk Southern Honors Shareholders - Anybody buying NSC after blowing a town up….](https://www.reddit.com/r/wallstreetbets/comments/11cv1up/norfolk_southern_honors_shareholders_anybody/)
+- [is there fed roulette this week?](https://www.reddit.com/r/wallstreetbets/comments/11cuh4k/is_there_fed_roulette_this_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
