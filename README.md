@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BABA &lpar;Alibaba&rpar; Revenue +2.1%, Income From Operations +395.6%, Net Income +138%, EPS +76.4%, Free Cash Flow +14.8%](https://www.reddit.com/r/wallstreetbets/comments/11cwqx1/baba_alibaba_revenue_21_income_from_operations/)
-- [WSB when asked to backup their analysis](https://www.reddit.com/r/wallstreetbets/comments/11cwd41/wsb_when_asked_to_backup_their_analysis/)
-- [Our gambling is saving the economy](https://www.reddit.com/r/wallstreetbets/comments/11cvtef/our_gambling_is_saving_the_economy/)
-- [Norfolk Southern Honors Shareholders - Anybody buying NSC after blowing a town up….](https://www.reddit.com/r/wallstreetbets/comments/11cv1up/norfolk_southern_honors_shareholders_anybody/)
-- [is there fed roulette this week?](https://www.reddit.com/r/wallstreetbets/comments/11cuh4k/is_there_fed_roulette_this_week/)
+- [The bearish arguments of 1907. Swap earthquake with covid and many of these points could be recycled today](https://www.reddit.com/r/wallstreetbets/comments/11dqnbv/the_bearish_arguments_of_1907_swap_earthquake/)
+- [Tesla, Musk sued by shareholders over self-driving safety claims](https://www.reddit.com/r/wallstreetbets/comments/11dpo4o/tesla_musk_sued_by_shareholders_over_selfdriving/)
+- [$AMC YOLO update. Sold my TSLA puts and bought more calls.](https://www.reddit.com/r/wallstreetbets/comments/11doqlh/amc_yolo_update_sold_my_tsla_puts_and_bought_more/)
+- [NVDA clean short](https://www.reddit.com/r/wallstreetbets/comments/11donti/nvda_clean_short/)
+- [Elon Musk Regains His Spot as the World’s Richest Person || The Tesla CEO has benefitted from a 100% rally in the electric carmaker’s stock](https://www.reddit.com/r/wallstreetbets/comments/11dnw12/elon_musk_regains_his_spot_as_the_worlds_richest/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
