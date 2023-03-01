@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The bearish arguments of 1907. Swap earthquake with covid and many of these points could be recycled today](https://www.reddit.com/r/wallstreetbets/comments/11dqnbv/the_bearish_arguments_of_1907_swap_earthquake/)
-- [Tesla, Musk sued by shareholders over self-driving safety claims](https://www.reddit.com/r/wallstreetbets/comments/11dpo4o/tesla_musk_sued_by_shareholders_over_selfdriving/)
-- [$AMC YOLO update. Sold my TSLA puts and bought more calls.](https://www.reddit.com/r/wallstreetbets/comments/11doqlh/amc_yolo_update_sold_my_tsla_puts_and_bought_more/)
-- [NVDA clean short](https://www.reddit.com/r/wallstreetbets/comments/11donti/nvda_clean_short/)
-- [Elon Musk Regains His Spot as the World’s Richest Person || The Tesla CEO has benefitted from a 100% rally in the electric carmaker’s stock](https://www.reddit.com/r/wallstreetbets/comments/11dnw12/elon_musk_regains_his_spot_as_the_worlds_richest/)
+- [Please do tell](https://www.reddit.com/r/wallstreetbets/comments/11eosee/please_do_tell/)
+- [Wendy&#39;s giving me the finger when I tried to make money on some calls](https://www.reddit.com/r/wallstreetbets/comments/11enoiz/wendys_giving_me_the_finger_when_i_tried_to_make/)
+- [Interest rates don&#39;t matter. The world is awash with money and more is printed every month.](https://www.reddit.com/r/wallstreetbets/comments/11enhu7/interest_rates_dont_matter_the_world_is_awash/)
+- [Good ole exit liquidity $NVDA](https://www.reddit.com/r/wallstreetbets/comments/11emted/good_ole_exit_liquidity_nvda/)
+- [Santa Claus, The Tooth Fairy, &amp; Soft Landings.... *This time is different*](https://www.reddit.com/r/wallstreetbets/comments/11elpwf/santa_claus_the_tooth_fairy_soft_landings_this/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
