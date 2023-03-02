@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Please do tell](https://www.reddit.com/r/wallstreetbets/comments/11eosee/please_do_tell/)
-- [Wendy&#39;s giving me the finger when I tried to make money on some calls](https://www.reddit.com/r/wallstreetbets/comments/11enoiz/wendys_giving_me_the_finger_when_i_tried_to_make/)
-- [Interest rates don&#39;t matter. The world is awash with money and more is printed every month.](https://www.reddit.com/r/wallstreetbets/comments/11enhu7/interest_rates_dont_matter_the_world_is_awash/)
-- [Good ole exit liquidity $NVDA](https://www.reddit.com/r/wallstreetbets/comments/11emted/good_ole_exit_liquidity_nvda/)
-- [Santa Claus, The Tooth Fairy, &amp; Soft Landings.... *This time is different*](https://www.reddit.com/r/wallstreetbets/comments/11elpwf/santa_claus_the_tooth_fairy_soft_landings_this/)
+- [🐐](https://www.reddit.com/r/wallstreetbets/comments/11flvmb/_/)
+- [Reading from PowerPoint should be a crime](https://www.reddit.com/r/wallstreetbets/comments/11flcrp/reading_from_powerpoint_should_be_a_crime/)
+- [US Treasury yield for two years. 2023 is the equivalent of 2006.](https://www.reddit.com/r/wallstreetbets/comments/11fl4p7/us_treasury_yield_for_two_years_2023_is_the/)
+- [They had one tarp last year, now there’s two bUlLiSh](https://www.reddit.com/r/wallstreetbets/comments/11fkcds/they_had_one_tarp_last_year_now_theres_two_bullish/)
+- [Seventy-Five Percent Goldman Sachs Prime Brokerage&#39;s Revenue comes from Securities Lending.](https://www.reddit.com/r/wallstreetbets/comments/11fir3y/seventyfive_percent_goldman_sachs_prime/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
