@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🐐](https://www.reddit.com/r/wallstreetbets/comments/11flvmb/_/)
-- [Reading from PowerPoint should be a crime](https://www.reddit.com/r/wallstreetbets/comments/11flcrp/reading_from_powerpoint_should_be_a_crime/)
-- [US Treasury yield for two years. 2023 is the equivalent of 2006.](https://www.reddit.com/r/wallstreetbets/comments/11fl4p7/us_treasury_yield_for_two_years_2023_is_the/)
-- [They had one tarp last year, now there’s two bUlLiSh](https://www.reddit.com/r/wallstreetbets/comments/11fkcds/they_had_one_tarp_last_year_now_theres_two_bullish/)
-- [Seventy-Five Percent Goldman Sachs Prime Brokerage&#39;s Revenue comes from Securities Lending.](https://www.reddit.com/r/wallstreetbets/comments/11fir3y/seventyfive_percent_goldman_sachs_prime/)
+- [pretends to know what he is talking about while trying to manipulate the market.](https://www.reddit.com/r/wallstreetbets/comments/11gnfn5/pretends_to_know_what_he_is_talking_about_while/)
+- [Treasuries are regarded](https://www.reddit.com/r/wallstreetbets/comments/11glvme/treasuries_are_regarded/)
+- [I am getting 132 years of Tax deductions 🥳](https://www.reddit.com/r/wallstreetbets/comments/11gl0kt/i_am_getting_132_years_of_tax_deductions/)
+- [5 years in the game baby. only up from here](https://www.reddit.com/r/wallstreetbets/comments/11gke4l/5_years_in_the_game_baby_only_up_from_here/)
+- [Thanks Pappa Musk! $618,000 gain porn.](https://www.reddit.com/r/wallstreetbets/comments/11gjugb/thanks_pappa_musk_618000_gain_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
