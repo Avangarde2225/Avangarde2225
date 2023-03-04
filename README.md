@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [pretends to know what he is talking about while trying to manipulate the market.](https://www.reddit.com/r/wallstreetbets/comments/11gnfn5/pretends_to_know_what_he_is_talking_about_while/)
-- [Treasuries are regarded](https://www.reddit.com/r/wallstreetbets/comments/11glvme/treasuries_are_regarded/)
-- [I am getting 132 years of Tax deductions 🥳](https://www.reddit.com/r/wallstreetbets/comments/11gl0kt/i_am_getting_132_years_of_tax_deductions/)
-- [5 years in the game baby. only up from here](https://www.reddit.com/r/wallstreetbets/comments/11gke4l/5_years_in_the_game_baby_only_up_from_here/)
-- [Thanks Pappa Musk! $618,000 gain porn.](https://www.reddit.com/r/wallstreetbets/comments/11gjugb/thanks_pappa_musk_618000_gain_porn/)
+- [🧸after today’s massacre🚀📈💰](https://www.reddit.com/r/wallstreetbets/comments/11hhq7b/after_todays_massacre/)
+- [I bought Zs call yesterday with my last 10k. 65k to 3k in 2 weeks. You might not hear from me again. Pray for me](https://www.reddit.com/r/wallstreetbets/comments/11hhlru/i_bought_zs_call_yesterday_with_my_last_10k_65k/)
+- [Sold 114 of these to cash out initial investment, I’m riding the house money to Tendie town!](https://www.reddit.com/r/wallstreetbets/comments/11hh9v1/sold_114_of_these_to_cash_out_initial_investment/)
+- [Are the bulls back in control?... 3-3-23 SPY/ ES Futures Weekly Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11hh7v9/are_the_bulls_back_in_control_3323_spy_es_futures/)
+- [wen real estate collapse? 😳](https://www.reddit.com/r/wallstreetbets/comments/11hh5no/wen_real_estate_collapse/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
