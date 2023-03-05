@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🧸after today’s massacre🚀📈💰](https://www.reddit.com/r/wallstreetbets/comments/11hhq7b/after_todays_massacre/)
-- [I bought Zs call yesterday with my last 10k. 65k to 3k in 2 weeks. You might not hear from me again. Pray for me](https://www.reddit.com/r/wallstreetbets/comments/11hhlru/i_bought_zs_call_yesterday_with_my_last_10k_65k/)
-- [Sold 114 of these to cash out initial investment, I’m riding the house money to Tendie town!](https://www.reddit.com/r/wallstreetbets/comments/11hh9v1/sold_114_of_these_to_cash_out_initial_investment/)
-- [Are the bulls back in control?... 3-3-23 SPY/ ES Futures Weekly Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11hh7v9/are_the_bulls_back_in_control_3323_spy_es_futures/)
-- [wen real estate collapse? 😳](https://www.reddit.com/r/wallstreetbets/comments/11hh5no/wen_real_estate_collapse/)
+- [What are your thoughts?](https://www.reddit.com/r/wallstreetbets/comments/11iht6g/what_are_your_thoughts/)
+- [Good. Throwing money away with no return. Oh, but &quot;Amazon is really good at failing,&quot; says Jeff Bezos lol](https://www.reddit.com/r/wallstreetbets/comments/11ifyxa/good_throwing_money_away_with_no_return_oh_but/)
+- [Tesla recalls almost 3,500 Model Y cars for loose bolts! NO OTA updates for this one.](https://www.reddit.com/r/wallstreetbets/comments/11ifluq/tesla_recalls_almost_3500_model_y_cars_for_loose/)
+- [what to do when IRS does it?](https://www.reddit.com/r/wallstreetbets/comments/11ieq6r/what_to_do_when_irs_does_it/)
+- [VIX Gang, Stand Back and Stand...BUY!](https://www.reddit.com/r/wallstreetbets/comments/11icg21/vix_gang_stand_back_and_standbuy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
