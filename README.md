@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What are your thoughts?](https://www.reddit.com/r/wallstreetbets/comments/11iht6g/what_are_your_thoughts/)
-- [Good. Throwing money away with no return. Oh, but &quot;Amazon is really good at failing,&quot; says Jeff Bezos lol](https://www.reddit.com/r/wallstreetbets/comments/11ifyxa/good_throwing_money_away_with_no_return_oh_but/)
-- [Tesla recalls almost 3,500 Model Y cars for loose bolts! NO OTA updates for this one.](https://www.reddit.com/r/wallstreetbets/comments/11ifluq/tesla_recalls_almost_3500_model_y_cars_for_loose/)
-- [what to do when IRS does it?](https://www.reddit.com/r/wallstreetbets/comments/11ieq6r/what_to_do_when_irs_does_it/)
-- [VIX Gang, Stand Back and Stand...BUY!](https://www.reddit.com/r/wallstreetbets/comments/11icg21/vix_gang_stand_back_and_standbuy/)
+- [Continue to go long on BOIL?](https://www.reddit.com/r/wallstreetbets/comments/11jitk6/continue_to_go_long_on_boil/)
+- [What&#39;s the take on NFLX? Should I take the profits and exit or it has room to run more?](https://www.reddit.com/r/wallstreetbets/comments/11jitjr/whats_the_take_on_nflx_should_i_take_the_profits/)
+- [Taxes be like that sometimes...](https://www.reddit.com/r/wallstreetbets/comments/11jio6c/taxes_be_like_that_sometimes/)
+- [“We need [higher interest] rates to be sustained… in order to really flush [excess capital] through the system”-Chamath](https://www.reddit.com/r/wallstreetbets/comments/11jhrda/we_need_higher_interest_rates_to_be_sustained_in/)
+- [Ho Lee Fuk, Sum Ting Wong | Binance execs&#39; texts, documents show plan to avoid U.S. scrutiny - WSJ](https://www.reddit.com/r/wallstreetbets/comments/11jhc0k/ho_lee_fuk_sum_ting_wong_binance_execs_texts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
