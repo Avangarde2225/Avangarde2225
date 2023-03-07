@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Continue to go long on BOIL?](https://www.reddit.com/r/wallstreetbets/comments/11jitk6/continue_to_go_long_on_boil/)
-- [What&#39;s the take on NFLX? Should I take the profits and exit or it has room to run more?](https://www.reddit.com/r/wallstreetbets/comments/11jitjr/whats_the_take_on_nflx_should_i_take_the_profits/)
-- [Taxes be like that sometimes...](https://www.reddit.com/r/wallstreetbets/comments/11jio6c/taxes_be_like_that_sometimes/)
-- [“We need [higher interest] rates to be sustained… in order to really flush [excess capital] through the system”-Chamath](https://www.reddit.com/r/wallstreetbets/comments/11jhrda/we_need_higher_interest_rates_to_be_sustained_in/)
-- [Ho Lee Fuk, Sum Ting Wong | Binance execs&#39; texts, documents show plan to avoid U.S. scrutiny - WSJ](https://www.reddit.com/r/wallstreetbets/comments/11jhc0k/ho_lee_fuk_sum_ting_wong_binance_execs_texts/)
+- [JPM to WSB: “Hold these bags.”](https://www.reddit.com/r/wallstreetbets/comments/11kgw0i/jpm_to_wsb_hold_these_bags/)
+- [NVDA still overvalued and AI wont change the world because its been around a long time. Just another boom bust Cycle.](https://www.reddit.com/r/wallstreetbets/comments/11kgk8e/nvda_still_overvalued_and_ai_wont_change_the/)
+- [Proof that we are in recession](https://www.reddit.com/r/wallstreetbets/comments/11kg8c8/proof_that_we_are_in_recession/)
+- [What do y’all think ? 200k tomorrow? Or $500.](https://www.reddit.com/r/wallstreetbets/comments/11kfrui/what_do_yall_think_200k_tomorrow_or_500/)
+- [Bill banning TikTok coming tomorrow $snap $meta](https://www.reddit.com/r/wallstreetbets/comments/11kf744/bill_banning_tiktok_coming_tomorrow_snap_meta/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
