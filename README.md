@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [JPM to WSB: “Hold these bags.”](https://www.reddit.com/r/wallstreetbets/comments/11kgw0i/jpm_to_wsb_hold_these_bags/)
-- [NVDA still overvalued and AI wont change the world because its been around a long time. Just another boom bust Cycle.](https://www.reddit.com/r/wallstreetbets/comments/11kgk8e/nvda_still_overvalued_and_ai_wont_change_the/)
-- [Proof that we are in recession](https://www.reddit.com/r/wallstreetbets/comments/11kg8c8/proof_that_we_are_in_recession/)
-- [What do y’all think ? 200k tomorrow? Or $500.](https://www.reddit.com/r/wallstreetbets/comments/11kfrui/what_do_yall_think_200k_tomorrow_or_500/)
-- [Bill banning TikTok coming tomorrow $snap $meta](https://www.reddit.com/r/wallstreetbets/comments/11kf744/bill_banning_tiktok_coming_tomorrow_snap_meta/)
+- [The Bear Thesis](https://www.reddit.com/r/wallstreetbets/comments/11lfqb2/the_bear_thesis/)
+- [Dow drops 574 points as Jerome Powell&#39;s testimony roils markets](https://www.reddit.com/r/wallstreetbets/comments/11ld2ui/dow_drops_574_points_as_jerome_powells_testimony/)
+- [Emperor Powell showing no mercy](https://www.reddit.com/r/wallstreetbets/comments/11lcgij/emperor_powell_showing_no_mercy/)
+- [Day one of jpow: The day of the bear… 3-7-23 SPY/ ES Futures Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11lc986/day_one_of_jpow_the_day_of_the_bear_3723_spy_es/)
+- [Yes Daddy...](https://www.reddit.com/r/wallstreetbets/comments/11lbxzs/yes_daddy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
