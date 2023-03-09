@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Bear Thesis](https://www.reddit.com/r/wallstreetbets/comments/11lfqb2/the_bear_thesis/)
-- [Dow drops 574 points as Jerome Powell&#39;s testimony roils markets](https://www.reddit.com/r/wallstreetbets/comments/11ld2ui/dow_drops_574_points_as_jerome_powells_testimony/)
-- [Emperor Powell showing no mercy](https://www.reddit.com/r/wallstreetbets/comments/11lcgij/emperor_powell_showing_no_mercy/)
-- [Day one of jpow: The day of the bear… 3-7-23 SPY/ ES Futures Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11lc986/day_one_of_jpow_the_day_of_the_bear_3723_spy_es/)
-- [Yes Daddy...](https://www.reddit.com/r/wallstreetbets/comments/11lbxzs/yes_daddy/)
+- [How money work?](https://www.reddit.com/r/wallstreetbets/comments/11mcaga/how_money_work/)
+- [Peak WSB](https://www.reddit.com/r/wallstreetbets/comments/11mc2hs/peak_wsb/)
+- [NVDA overtakes TSLA](https://www.reddit.com/r/wallstreetbets/comments/11mbemv/nvda_overtakes_tsla/)
+- [Stock market will crash in 60 days](https://www.reddit.com/r/wallstreetbets/comments/11mb1lv/stock_market_will_crash_in_60_days/)
+- [Silvergate to liquidate bank](https://www.reddit.com/r/wallstreetbets/comments/11ma7ty/silvergate_to_liquidate_bank/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
