@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How money work?](https://www.reddit.com/r/wallstreetbets/comments/11mcaga/how_money_work/)
-- [Peak WSB](https://www.reddit.com/r/wallstreetbets/comments/11mc2hs/peak_wsb/)
-- [NVDA overtakes TSLA](https://www.reddit.com/r/wallstreetbets/comments/11mbemv/nvda_overtakes_tsla/)
-- [Stock market will crash in 60 days](https://www.reddit.com/r/wallstreetbets/comments/11mb1lv/stock_market_will_crash_in_60_days/)
-- [Silvergate to liquidate bank](https://www.reddit.com/r/wallstreetbets/comments/11ma7ty/silvergate_to_liquidate_bank/)
+- [Once a legend always a legend. Cramer King in the North.](https://www.reddit.com/r/wallstreetbets/comments/11n7rd8/once_a_legend_always_a_legend_cramer_king_in_the/)
+- [$7k to $90,000 in 4 Hours.](https://www.reddit.com/r/wallstreetbets/comments/11n7kw8/7k_to_90000_in_4_hours/)
+- [Every WSB User Right Now:](https://www.reddit.com/r/wallstreetbets/comments/11n77d9/every_wsb_user_right_now/)
+- [The Day of Bank Liquidity crunch… 3-9-23 SPY/ ES Futures, DXY, 10Yr and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11n6vvh/the_day_of_bank_liquidity_crunch_3923_spy_es/)
+- [it&#39;s definitely a bear day](https://www.reddit.com/r/wallstreetbets/comments/11n6fhd/its_definitely_a_bear_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
