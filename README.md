@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Once a legend always a legend. Cramer King in the North.](https://www.reddit.com/r/wallstreetbets/comments/11n7rd8/once_a_legend_always_a_legend_cramer_king_in_the/)
-- [$7k to $90,000 in 4 Hours.](https://www.reddit.com/r/wallstreetbets/comments/11n7kw8/7k_to_90000_in_4_hours/)
-- [Every WSB User Right Now:](https://www.reddit.com/r/wallstreetbets/comments/11n77d9/every_wsb_user_right_now/)
-- [The Day of Bank Liquidity crunch… 3-9-23 SPY/ ES Futures, DXY, 10Yr and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/11n6vvh/the_day_of_bank_liquidity_crunch_3923_spy_es/)
-- [it&#39;s definitely a bear day](https://www.reddit.com/r/wallstreetbets/comments/11n6fhd/its_definitely_a_bear_day/)
+- [I mean at least it’s not 27%. Right ??](https://www.reddit.com/r/wallstreetbets/comments/11o3yjd/i_mean_at_least_its_not_27_right/)
+- [Just a ponzi that I used to hold](https://www.reddit.com/r/wallstreetbets/comments/11o3igx/just_a_ponzi_that_i_used_to_hold/)
+- [watching banks collapse](https://www.reddit.com/r/wallstreetbets/comments/11o2cyb/watching_banks_collapse/)
+- [The ZIRP VC clowns are honestly pitiful](https://www.reddit.com/r/wallstreetbets/comments/11o2615/the_zirp_vc_clowns_are_honestly_pitiful/)
+- [Get in loser, we’re going to gamble away the American banking system](https://www.reddit.com/r/wallstreetbets/comments/11o180g/get_in_loser_were_going_to_gamble_away_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
