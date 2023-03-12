@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I mean at least it’s not 27%. Right ??](https://www.reddit.com/r/wallstreetbets/comments/11o3yjd/i_mean_at_least_its_not_27_right/)
-- [Just a ponzi that I used to hold](https://www.reddit.com/r/wallstreetbets/comments/11o3igx/just_a_ponzi_that_i_used_to_hold/)
-- [watching banks collapse](https://www.reddit.com/r/wallstreetbets/comments/11o2cyb/watching_banks_collapse/)
-- [The ZIRP VC clowns are honestly pitiful](https://www.reddit.com/r/wallstreetbets/comments/11o2615/the_zirp_vc_clowns_are_honestly_pitiful/)
-- [Get in loser, we’re going to gamble away the American banking system](https://www.reddit.com/r/wallstreetbets/comments/11o180g/get_in_loser_were_going_to_gamble_away_the/)
+- [CNBC: Silicon Valley Bank employees received bonuses hours before government takeover](https://www.reddit.com/r/wallstreetbets/comments/11oxdi8/cnbc_silicon_valley_bank_employees_received/)
+- [Cant stop, won&#39;t stop..... losing money](https://www.reddit.com/r/wallstreetbets/comments/11ow9en/cant_stop_wont_stop_losing_money/)
+- [Literally can’t go tits up](https://www.reddit.com/r/wallstreetbets/comments/11ov7te/literally_cant_go_tits_up/)
+- [22 years old, $185,000 of retirement funds into 1.25x leveraged Nvidia short](https://www.reddit.com/r/wallstreetbets/comments/11ou0ve/22_years_old_185000_of_retirement_funds_into_125x/)
+- [Circle Jerk](https://www.reddit.com/r/wallstreetbets/comments/11otlw0/circle_jerk/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
