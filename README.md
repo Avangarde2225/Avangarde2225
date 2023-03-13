@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CNBC: Silicon Valley Bank employees received bonuses hours before government takeover](https://www.reddit.com/r/wallstreetbets/comments/11oxdi8/cnbc_silicon_valley_bank_employees_received/)
-- [Cant stop, won&#39;t stop..... losing money](https://www.reddit.com/r/wallstreetbets/comments/11ow9en/cant_stop_wont_stop_losing_money/)
-- [Literally can’t go tits up](https://www.reddit.com/r/wallstreetbets/comments/11ov7te/literally_cant_go_tits_up/)
-- [22 years old, $185,000 of retirement funds into 1.25x leveraged Nvidia short](https://www.reddit.com/r/wallstreetbets/comments/11ou0ve/22_years_old_185000_of_retirement_funds_into_125x/)
-- [Circle Jerk](https://www.reddit.com/r/wallstreetbets/comments/11otlw0/circle_jerk/)
+- [Honey wake up, Cassandra has tweeted again 🥰](https://www.reddit.com/r/wallstreetbets/comments/11ptyol/honey_wake_up_cassandra_has_tweeted_again/)
+- [When you have put spreads against 6 big tech firms and the Fed announces a bailout.](https://www.reddit.com/r/wallstreetbets/comments/11ptqme/when_you_have_put_spreads_against_6_big_tech/)
+- [Hyperinflation, here we come!](https://www.reddit.com/r/wallstreetbets/comments/11psz8h/hyperinflation_here_we_come/)
+- [Regulators close New York’s Signature Bank citing systemic risk](https://www.reddit.com/r/wallstreetbets/comments/11pssu8/regulators_close_new_yorks_signature_bank_citing/)
+- [All SVB depositors will have access to their $$$](https://www.reddit.com/r/wallstreetbets/comments/11ps3v4/all_svb_depositors_will_have_access_to_their/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
