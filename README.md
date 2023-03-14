@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Honey wake up, Cassandra has tweeted again 🥰](https://www.reddit.com/r/wallstreetbets/comments/11ptyol/honey_wake_up_cassandra_has_tweeted_again/)
-- [When you have put spreads against 6 big tech firms and the Fed announces a bailout.](https://www.reddit.com/r/wallstreetbets/comments/11ptqme/when_you_have_put_spreads_against_6_big_tech/)
-- [Hyperinflation, here we come!](https://www.reddit.com/r/wallstreetbets/comments/11psz8h/hyperinflation_here_we_come/)
-- [Regulators close New York’s Signature Bank citing systemic risk](https://www.reddit.com/r/wallstreetbets/comments/11pssu8/regulators_close_new_yorks_signature_bank_citing/)
-- [All SVB depositors will have access to their $$$](https://www.reddit.com/r/wallstreetbets/comments/11ps3v4/all_svb_depositors_will_have_access_to_their/)
+- [Cryptobros on suicide watch.](https://www.reddit.com/r/wallstreetbets/comments/11qp61q/cryptobros_on_suicide_watch/)
+- [$50,000 in 1 Hour](https://www.reddit.com/r/wallstreetbets/comments/11qnw9v/50000_in_1_hour/)
+- [Next new billionaire Forbs cover, I’ll short!](https://www.reddit.com/r/wallstreetbets/comments/11qndp8/next_new_billionaire_forbs_cover_ill_short/)
+- [Don’t say bailout](https://www.reddit.com/r/wallstreetbets/comments/11qmr6v/dont_say_bailout/)
+- [The second largest bank collapse in US history just happened and I am over here like](https://www.reddit.com/r/wallstreetbets/comments/11qmo1p/the_second_largest_bank_collapse_in_us_history/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
