@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cryptobros on suicide watch.](https://www.reddit.com/r/wallstreetbets/comments/11qp61q/cryptobros_on_suicide_watch/)
-- [$50,000 in 1 Hour](https://www.reddit.com/r/wallstreetbets/comments/11qnw9v/50000_in_1_hour/)
-- [Next new billionaire Forbs cover, I’ll short!](https://www.reddit.com/r/wallstreetbets/comments/11qndp8/next_new_billionaire_forbs_cover_ill_short/)
-- [Don’t say bailout](https://www.reddit.com/r/wallstreetbets/comments/11qmr6v/dont_say_bailout/)
-- [The second largest bank collapse in US history just happened and I am over here like](https://www.reddit.com/r/wallstreetbets/comments/11qmo1p/the_second_largest_bank_collapse_in_us_history/)
+- [Can’t make this sh*t up. Schwab CEO vs. The Big Short](https://www.reddit.com/r/wallstreetbets/comments/11rfo6g/cant_make_this_sht_up_schwab_ceo_vs_the_big_short/)
+- [Reddit just mooned, thoughts ?](https://www.reddit.com/r/wallstreetbets/comments/11rflaq/reddit_just_mooned_thoughts/)
+- [Nothing to see here.. keep it movin…](https://www.reddit.com/r/wallstreetbets/comments/11rfd8p/nothing_to_see_here_keep_it_movin/)
+- [I needed some time to process everything and I&#39;m ready. Some banks may shut down and stock market may crash by fall.](https://www.reddit.com/r/wallstreetbets/comments/11rf78p/i_needed_some_time_to_process_everything_and_im/)
+- [Funny, $META is rapidly becoming my favorite short. Earnings Thursday.](https://www.reddit.com/r/wallstreetbets/comments/11rcb9g/funny_meta_is_rapidly_becoming_my_favorite_short/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
