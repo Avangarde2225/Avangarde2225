@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Can’t make this sh*t up. Schwab CEO vs. The Big Short](https://www.reddit.com/r/wallstreetbets/comments/11rfo6g/cant_make_this_sht_up_schwab_ceo_vs_the_big_short/)
-- [Reddit just mooned, thoughts ?](https://www.reddit.com/r/wallstreetbets/comments/11rflaq/reddit_just_mooned_thoughts/)
-- [Nothing to see here.. keep it movin…](https://www.reddit.com/r/wallstreetbets/comments/11rfd8p/nothing_to_see_here_keep_it_movin/)
-- [I needed some time to process everything and I&#39;m ready. Some banks may shut down and stock market may crash by fall.](https://www.reddit.com/r/wallstreetbets/comments/11rf78p/i_needed_some_time_to_process_everything_and_im/)
-- [Funny, $META is rapidly becoming my favorite short. Earnings Thursday.](https://www.reddit.com/r/wallstreetbets/comments/11rcb9g/funny_meta_is_rapidly_becoming_my_favorite_short/)
+- [Eggon says “GME go up” after earnings. ⬆️](https://www.reddit.com/r/wallstreetbets/comments/11scdtm/eggon_says_gme_go_up_after_earnings/)
+- [It’s confirmed, Rivian has gone tits up!](https://www.reddit.com/r/wallstreetbets/comments/11sbbw0/its_confirmed_rivian_has_gone_tits_up/)
+- [Warning from the treasury market](https://www.reddit.com/r/wallstreetbets/comments/11s9n17/warning_from_the_treasury_market/)
+- [What Are Your Moves Tomorrow, March 16, 2023](https://www.reddit.com/r/wallstreetbets/comments/11s92qx/what_are_your_moves_tomorrow_march_16_2023/)
+- [Who would have thought?](https://www.reddit.com/r/wallstreetbets/comments/11s6x3w/who_would_have_thought/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
