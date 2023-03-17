@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Eggon says “GME go up” after earnings. ⬆️](https://www.reddit.com/r/wallstreetbets/comments/11scdtm/eggon_says_gme_go_up_after_earnings/)
-- [It’s confirmed, Rivian has gone tits up!](https://www.reddit.com/r/wallstreetbets/comments/11sbbw0/its_confirmed_rivian_has_gone_tits_up/)
-- [Warning from the treasury market](https://www.reddit.com/r/wallstreetbets/comments/11s9n17/warning_from_the_treasury_market/)
-- [What Are Your Moves Tomorrow, March 16, 2023](https://www.reddit.com/r/wallstreetbets/comments/11s92qx/what_are_your_moves_tomorrow_march_16_2023/)
-- [Who would have thought?](https://www.reddit.com/r/wallstreetbets/comments/11s6x3w/who_would_have_thought/)
+- [Corporations never pass new costs on to the consumer, right?](https://www.reddit.com/r/wallstreetbets/comments/11t9hvq/corporations_never_pass_new_costs_on_to_the/)
+- [Fed pivoting their balance sheet strategy while inflation is still 6% year-over-year](https://www.reddit.com/r/wallstreetbets/comments/11t8ttn/fed_pivoting_their_balance_sheet_strategy_while/)
+- [It&#39;s how you frame it habibi](https://www.reddit.com/r/wallstreetbets/comments/11t82tg/its_how_you_frame_it_habibi/)
+- [Hmmm guess everyone is broke now.](https://www.reddit.com/r/wallstreetbets/comments/11t7lrj/hmmm_guess_everyone_is_broke_now/)
+- [No one is goin have a good time fr fr](https://www.reddit.com/r/wallstreetbets/comments/11t63xw/no_one_is_goin_have_a_good_time_fr_fr/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
