@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Corporations never pass new costs on to the consumer, right?](https://www.reddit.com/r/wallstreetbets/comments/11t9hvq/corporations_never_pass_new_costs_on_to_the/)
-- [Fed pivoting their balance sheet strategy while inflation is still 6% year-over-year](https://www.reddit.com/r/wallstreetbets/comments/11t8ttn/fed_pivoting_their_balance_sheet_strategy_while/)
-- [It&#39;s how you frame it habibi](https://www.reddit.com/r/wallstreetbets/comments/11t82tg/its_how_you_frame_it_habibi/)
-- [Hmmm guess everyone is broke now.](https://www.reddit.com/r/wallstreetbets/comments/11t7lrj/hmmm_guess_everyone_is_broke_now/)
-- [No one is goin have a good time fr fr](https://www.reddit.com/r/wallstreetbets/comments/11t63xw/no_one_is_goin_have_a_good_time_fr_fr/)
+- [Example of how long quantitative tightening lasted](https://www.reddit.com/r/wallstreetbets/comments/11u7uil/example_of_how_long_quantitative_tightening_lasted/)
+- [sums it up](https://www.reddit.com/r/wallstreetbets/comments/11u7jer/sums_it_up/)
+- [Hindsight 20/20](https://www.reddit.com/r/wallstreetbets/comments/11u7dwc/hindsight_2020/)
+- [Banking crisis in a nut shell](https://www.reddit.com/r/wallstreetbets/comments/11u5mx0/banking_crisis_in_a_nut_shell/)
+- [I guess this is the right day for this meme? Or maybe wait a few more weeks?](https://www.reddit.com/r/wallstreetbets/comments/11u3795/i_guess_this_is_the_right_day_for_this_meme_or/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
