@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Example of how long quantitative tightening lasted](https://www.reddit.com/r/wallstreetbets/comments/11u7uil/example_of_how_long_quantitative_tightening_lasted/)
-- [sums it up](https://www.reddit.com/r/wallstreetbets/comments/11u7jer/sums_it_up/)
-- [Hindsight 20/20](https://www.reddit.com/r/wallstreetbets/comments/11u7dwc/hindsight_2020/)
-- [Banking crisis in a nut shell](https://www.reddit.com/r/wallstreetbets/comments/11u5mx0/banking_crisis_in_a_nut_shell/)
-- [I guess this is the right day for this meme? Or maybe wait a few more weeks?](https://www.reddit.com/r/wallstreetbets/comments/11u3795/i_guess_this_is_the_right_day_for_this_meme_or/)
+- [So hot](https://www.reddit.com/r/wallstreetbets/comments/11v4rwq/so_hot/)
+- [These spam bots are getting a bit annoying](https://www.reddit.com/r/wallstreetbets/comments/11v3ty5/these_spam_bots_are_getting_a_bit_annoying/)
+- [Whistle Blower Research Analyst Tells us why we are fucked](https://www.reddit.com/r/wallstreetbets/comments/11v3qtp/whistle_blower_research_analyst_tells_us_why_we/)
+- [Powell’s bane](https://www.reddit.com/r/wallstreetbets/comments/11v3hbm/powells_bane/)
+- [Does CEO matter in stock returns? A look at select tickers.](https://www.reddit.com/r/wallstreetbets/comments/11v370c/does_ceo_matter_in_stock_returns_a_look_at_select/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
