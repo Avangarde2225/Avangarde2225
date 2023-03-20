@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [So hot](https://www.reddit.com/r/wallstreetbets/comments/11v4rwq/so_hot/)
-- [These spam bots are getting a bit annoying](https://www.reddit.com/r/wallstreetbets/comments/11v3ty5/these_spam_bots_are_getting_a_bit_annoying/)
-- [Whistle Blower Research Analyst Tells us why we are fucked](https://www.reddit.com/r/wallstreetbets/comments/11v3qtp/whistle_blower_research_analyst_tells_us_why_we/)
-- [Powell’s bane](https://www.reddit.com/r/wallstreetbets/comments/11v3hbm/powells_bane/)
-- [Does CEO matter in stock returns? A look at select tickers.](https://www.reddit.com/r/wallstreetbets/comments/11v370c/does_ceo_matter_in_stock_returns_a_look_at_select/)
+- [Breaking: Emergency Fed Chair Speech before FOMC - JPOW speaks](https://www.reddit.com/r/wallstreetbets/comments/11w1t8d/breaking_emergency_fed_chair_speech_before_fomc/)
+- [Credit Suisse says $17 billion of its debt now worthless, angering bondholders &lpar;oops&rpar;](https://www.reddit.com/r/wallstreetbets/comments/11w0hkf/credit_suisse_says_17_billion_of_its_debt_now/)
+- [Infinite money glitch](https://www.reddit.com/r/wallstreetbets/comments/11vz6n7/infinite_money_glitch/)
+- [Printer Go Brrrr... QE5 is here!!! 🖨💵](https://www.reddit.com/r/wallstreetbets/comments/11vyhm6/printer_go_brrrr_qe5_is_here/)
+- [Last 23 years of two big to fail](https://www.reddit.com/r/wallstreetbets/comments/11vxtc0/last_23_years_of_two_big_to_fail/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
