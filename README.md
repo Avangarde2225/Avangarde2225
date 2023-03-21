@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Breaking: Emergency Fed Chair Speech before FOMC - JPOW speaks](https://www.reddit.com/r/wallstreetbets/comments/11w1t8d/breaking_emergency_fed_chair_speech_before_fomc/)
-- [Credit Suisse says $17 billion of its debt now worthless, angering bondholders &lpar;oops&rpar;](https://www.reddit.com/r/wallstreetbets/comments/11w0hkf/credit_suisse_says_17_billion_of_its_debt_now/)
-- [Infinite money glitch](https://www.reddit.com/r/wallstreetbets/comments/11vz6n7/infinite_money_glitch/)
-- [Printer Go Brrrr... QE5 is here!!! 🖨💵](https://www.reddit.com/r/wallstreetbets/comments/11vyhm6/printer_go_brrrr_qe5_is_here/)
-- [Last 23 years of two big to fail](https://www.reddit.com/r/wallstreetbets/comments/11vxtc0/last_23_years_of_two_big_to_fail/)
+- [Round 2. Fight!](https://www.reddit.com/r/wallstreetbets/comments/11x0o7f/round_2_fight/)
+- [How the sub has looked in the past couple days $FRC](https://www.reddit.com/r/wallstreetbets/comments/11wyw4i/how_the_sub_has_looked_in_the_past_couple_days_frc/)
+- [he just like me fr](https://www.reddit.com/r/wallstreetbets/comments/11wxmdd/he_just_like_me_fr/)
+- [JP MORGAN WAS DUPED INTO OWNING BAGS OF WORTHLESS STONE INSTEAD OF NICKEL THAT IT PAID FOR](https://www.reddit.com/r/wallstreetbets/comments/11wx351/jp_morgan_was_duped_into_owning_bags_of_worthless/)
+- [First Republic Bank](https://www.reddit.com/r/wallstreetbets/comments/11ww8yf/first_republic_bank/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
