@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Round 2. Fight!](https://www.reddit.com/r/wallstreetbets/comments/11x0o7f/round_2_fight/)
-- [How the sub has looked in the past couple days $FRC](https://www.reddit.com/r/wallstreetbets/comments/11wyw4i/how_the_sub_has_looked_in_the_past_couple_days_frc/)
-- [he just like me fr](https://www.reddit.com/r/wallstreetbets/comments/11wxmdd/he_just_like_me_fr/)
-- [JP MORGAN WAS DUPED INTO OWNING BAGS OF WORTHLESS STONE INSTEAD OF NICKEL THAT IT PAID FOR](https://www.reddit.com/r/wallstreetbets/comments/11wx351/jp_morgan_was_duped_into_owning_bags_of_worthless/)
-- [First Republic Bank](https://www.reddit.com/r/wallstreetbets/comments/11ww8yf/first_republic_bank/)
+- [‘Already past the point of no return’: JPMorgan says the U.S. is probably headed for a recession as economic ‘engines are about to turn off’](https://www.reddit.com/r/wallstreetbets/comments/11xyn57/already_past_the_point_of_no_return_jpmorgan_says/)
+- [2DTE 30k SPY PUTS](https://www.reddit.com/r/wallstreetbets/comments/11xyjw3/2dte_30k_spy_puts/)
+- [&lpar;GME&rpar; Gamestop earnings. Let&#39;s take a closer look...](https://www.reddit.com/r/wallstreetbets/comments/11xxru4/gme_gamestop_earnings_lets_take_a_closer_look/)
+- [The state of the market this week](https://www.reddit.com/r/wallstreetbets/comments/11xvxh8/the_state_of_the_market_this_week/)
+- [Gang Gang](https://www.reddit.com/r/wallstreetbets/comments/11xv0mo/gang_gang/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
