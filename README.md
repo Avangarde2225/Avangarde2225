@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [‘Already past the point of no return’: JPMorgan says the U.S. is probably headed for a recession as economic ‘engines are about to turn off’](https://www.reddit.com/r/wallstreetbets/comments/11xyn57/already_past_the_point_of_no_return_jpmorgan_says/)
-- [2DTE 30k SPY PUTS](https://www.reddit.com/r/wallstreetbets/comments/11xyjw3/2dte_30k_spy_puts/)
-- [&lpar;GME&rpar; Gamestop earnings. Let&#39;s take a closer look...](https://www.reddit.com/r/wallstreetbets/comments/11xxru4/gme_gamestop_earnings_lets_take_a_closer_look/)
-- [The state of the market this week](https://www.reddit.com/r/wallstreetbets/comments/11xvxh8/the_state_of_the_market_this_week/)
-- [Gang Gang](https://www.reddit.com/r/wallstreetbets/comments/11xv0mo/gang_gang/)
+- [Who’s going down next?](https://www.reddit.com/r/wallstreetbets/comments/11z1ed0/whos_going_down_next/)
+- [My dad died 7,500,000+ in the red](https://www.reddit.com/r/wallstreetbets/comments/11z09kh/my_dad_died_7500000_in_the_red/)
+- [Just ordered pizza and found this on my napkin...](https://www.reddit.com/r/wallstreetbets/comments/11yzerv/just_ordered_pizza_and_found_this_on_my_napkin/)
+- [Bankers better start pulling up their socks](https://www.reddit.com/r/wallstreetbets/comments/11yyxuh/bankers_better_start_pulling_up_their_socks/)
+- [This is the guy who saved your puts today. The market turned after this question.](https://www.reddit.com/r/wallstreetbets/comments/11yyfey/this_is_the_guy_who_saved_your_puts_today_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
