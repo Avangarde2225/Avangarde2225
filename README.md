@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It’s here.](https://www.reddit.com/r/wallstreetbets/comments/1221hdb/its_here/)
-- [Euro land banks the past month](https://www.reddit.com/r/wallstreetbets/comments/122171w/euro_land_banks_the_past_month/)
-- [At the most recent First Republic Bank board meeting](https://www.reddit.com/r/wallstreetbets/comments/1220167/at_the_most_recent_first_republic_bank_board/)
-- [The Fed just reported that U.S. banks borrowed $475 billion last week as the banking crisis continued.](https://www.reddit.com/r/wallstreetbets/comments/121yr4v/the_fed_just_reported_that_us_banks_borrowed_475/)
-- [Meet the Market&#39;s Undertaker](https://www.reddit.com/r/wallstreetbets/comments/121yoib/meet_the_markets_undertaker/)
+- [Who up buying sq rn 😌](https://www.reddit.com/r/wallstreetbets/comments/1234t28/who_up_buying_sq_rn/)
+- [Elon Musk says twitter only worth $20 billion &lpar;less than half of what he paid for it&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1234rw1/elon_musk_says_twitter_only_worth_20_billion_less/)
+- [They are indeed highly regarded if they still work there](https://www.reddit.com/r/wallstreetbets/comments/12313kv/they_are_indeed_highly_regarded_if_they_still/)
+- [Swiss finance minister justified &quot;forced to buy&quot;: Credit Suisse can not last a day, do not acquire is the global financial crisis](https://www.reddit.com/r/wallstreetbets/comments/122zbqd/swiss_finance_minister_justified_forced_to_buy/)
+- [Everybody’s a winner 🥇!](https://www.reddit.com/r/wallstreetbets/comments/122ydf4/everybodys_a_winner/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
