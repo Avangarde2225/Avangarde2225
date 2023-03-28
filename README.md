@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Who up buying sq rn 😌](https://www.reddit.com/r/wallstreetbets/comments/1234t28/who_up_buying_sq_rn/)
-- [Elon Musk says twitter only worth $20 billion &lpar;less than half of what he paid for it&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1234rw1/elon_musk_says_twitter_only_worth_20_billion_less/)
-- [They are indeed highly regarded if they still work there](https://www.reddit.com/r/wallstreetbets/comments/12313kv/they_are_indeed_highly_regarded_if_they_still/)
-- [Swiss finance minister justified &quot;forced to buy&quot;: Credit Suisse can not last a day, do not acquire is the global financial crisis](https://www.reddit.com/r/wallstreetbets/comments/122zbqd/swiss_finance_minister_justified_forced_to_buy/)
-- [Everybody’s a winner 🥇!](https://www.reddit.com/r/wallstreetbets/comments/122ydf4/everybodys_a_winner/)
+- [Still got ways to go but I’m still hoping that one day, I’ll make my losses back.](https://www.reddit.com/r/wallstreetbets/comments/1242dzt/still_got_ways_to_go_but_im_still_hoping_that_one/)
+- [Alright regards, get your PUTS orders in. It&#39;s another gambling session @9am ET](https://www.reddit.com/r/wallstreetbets/comments/1240om3/alright_regards_get_your_puts_orders_in_its/)
+- [FIRST REPUBLIC BANK Unleashes a $30 Billion Strategy to End Crisis](https://www.reddit.com/r/wallstreetbets/comments/123zp2k/first_republic_bank_unleashes_a_30_billion/)
+- [3-27-23 SPY/ ES Futures and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/123zjdc/32723_spy_es_futures_and_vix_daily_market_analysis/)
+- [It do be like that sometimes](https://www.reddit.com/r/wallstreetbets/comments/123zhr5/it_do_be_like_that_sometimes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
