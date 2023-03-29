@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Still got ways to go but I’m still hoping that one day, I’ll make my losses back.](https://www.reddit.com/r/wallstreetbets/comments/1242dzt/still_got_ways_to_go_but_im_still_hoping_that_one/)
-- [Alright regards, get your PUTS orders in. It&#39;s another gambling session @9am ET](https://www.reddit.com/r/wallstreetbets/comments/1240om3/alright_regards_get_your_puts_orders_in_its/)
-- [FIRST REPUBLIC BANK Unleashes a $30 Billion Strategy to End Crisis](https://www.reddit.com/r/wallstreetbets/comments/123zp2k/first_republic_bank_unleashes_a_30_billion/)
-- [3-27-23 SPY/ ES Futures and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/123zjdc/32723_spy_es_futures_and_vix_daily_market_analysis/)
-- [It do be like that sometimes](https://www.reddit.com/r/wallstreetbets/comments/123zhr5/it_do_be_like_that_sometimes/)
+- [Powell&#39;s plan for the regards](https://www.reddit.com/r/wallstreetbets/comments/12572ut/powells_plan_for_the_regards/)
+- [AI Apocalypse: Goldman Sachs Report Reveals ChatGPT Could Devastate 300 Million Full-Time Jobs Worldwide, Including Legal and Administrative](https://www.reddit.com/r/wallstreetbets/comments/1256696/ai_apocalypse_goldman_sachs_report_reveals/)
+- [One of the biggest landlords in Los Angeles just defaulted on $755 million in loans](https://www.reddit.com/r/wallstreetbets/comments/12555jm/one_of_the_biggest_landlords_in_los_angeles_just/)
+- [Low volume and tight ranges… 3-28-23 SPY/ ES Futures and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/12542bo/low_volume_and_tight_ranges_32823_spy_es_futures/)
+- [Credit Default Swaps on Charles Schwab!](https://www.reddit.com/r/wallstreetbets/comments/1253buq/credit_default_swaps_on_charles_schwab/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
