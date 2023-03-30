@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Powell&#39;s plan for the regards](https://www.reddit.com/r/wallstreetbets/comments/12572ut/powells_plan_for_the_regards/)
-- [AI Apocalypse: Goldman Sachs Report Reveals ChatGPT Could Devastate 300 Million Full-Time Jobs Worldwide, Including Legal and Administrative](https://www.reddit.com/r/wallstreetbets/comments/1256696/ai_apocalypse_goldman_sachs_report_reveals/)
-- [One of the biggest landlords in Los Angeles just defaulted on $755 million in loans](https://www.reddit.com/r/wallstreetbets/comments/12555jm/one_of_the_biggest_landlords_in_los_angeles_just/)
-- [Low volume and tight ranges… 3-28-23 SPY/ ES Futures and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/12542bo/low_volume_and_tight_ranges_32823_spy_es_futures/)
-- [Credit Default Swaps on Charles Schwab!](https://www.reddit.com/r/wallstreetbets/comments/1253buq/credit_default_swaps_on_charles_schwab/)
+- [Leggings](https://www.reddit.com/r/wallstreetbets/comments/12653ej/leggings/)
+- [US money supply falling at fastest rate since 1930s](https://www.reddit.com/r/wallstreetbets/comments/126488v/us_money_supply_falling_at_fastest_rate_since/)
+- [China and Brazil Sidestep US Dollar: A Game-Changing Currency Deal to Boost Bilateral Trade and Investments](https://www.reddit.com/r/wallstreetbets/comments/12631by/china_and_brazil_sidestep_us_dollar_a/)
+- [When Moon? Still waiting.](https://www.reddit.com/r/wallstreetbets/comments/1261jpz/when_moon_still_waiting/)
+- [US Treasury Cash Balance = $187 billion...February&#39;s Deficit = $262 billion](https://www.reddit.com/r/wallstreetbets/comments/1261gg9/us_treasury_cash_balance_187_billionfebruarys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
