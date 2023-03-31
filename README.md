@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Leggings](https://www.reddit.com/r/wallstreetbets/comments/12653ej/leggings/)
-- [US money supply falling at fastest rate since 1930s](https://www.reddit.com/r/wallstreetbets/comments/126488v/us_money_supply_falling_at_fastest_rate_since/)
-- [China and Brazil Sidestep US Dollar: A Game-Changing Currency Deal to Boost Bilateral Trade and Investments](https://www.reddit.com/r/wallstreetbets/comments/12631by/china_and_brazil_sidestep_us_dollar_a/)
-- [When Moon? Still waiting.](https://www.reddit.com/r/wallstreetbets/comments/1261jpz/when_moon_still_waiting/)
-- [US Treasury Cash Balance = $187 billion...February&#39;s Deficit = $262 billion](https://www.reddit.com/r/wallstreetbets/comments/1261gg9/us_treasury_cash_balance_187_billionfebruarys/)
+- [Inverse Cramer never misses](https://www.reddit.com/r/wallstreetbets/comments/127489h/inverse_cramer_never_misses/)
+- [‘Big Short’ Investor Congratulates Market Dip Buyers. ‘I Was Wrong to Say Sell.’](https://www.reddit.com/r/wallstreetbets/comments/1272mci/big_short_investor_congratulates_market_dip/)
+- [We did it everyone.](https://www.reddit.com/r/wallstreetbets/comments/1271eyx/we_did_it_everyone/)
+- [Bears found dead on sight!](https://www.reddit.com/r/wallstreetbets/comments/1271d95/bears_found_dead_on_sight/)
+- [Stop Buying Puts Please](https://www.reddit.com/r/wallstreetbets/comments/12701xy/stop_buying_puts_please/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
