@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Inverse Cramer never misses](https://www.reddit.com/r/wallstreetbets/comments/127489h/inverse_cramer_never_misses/)
-- [‘Big Short’ Investor Congratulates Market Dip Buyers. ‘I Was Wrong to Say Sell.’](https://www.reddit.com/r/wallstreetbets/comments/1272mci/big_short_investor_congratulates_market_dip/)
-- [We did it everyone.](https://www.reddit.com/r/wallstreetbets/comments/1271eyx/we_did_it_everyone/)
-- [Bears found dead on sight!](https://www.reddit.com/r/wallstreetbets/comments/1271d95/bears_found_dead_on_sight/)
-- [Stop Buying Puts Please](https://www.reddit.com/r/wallstreetbets/comments/12701xy/stop_buying_puts_please/)
+- [Tired and more scared after today’s rally. Hold or sell?](https://www.reddit.com/r/wallstreetbets/comments/12839rs/tired_and_more_scared_after_todays_rally_hold_or/)
+- [after years of active trading and thousands of transactions, i’m finally showing mr market who’s boss](https://www.reddit.com/r/wallstreetbets/comments/12831el/after_years_of_active_trading_and_thousands_of/)
+- [Markets go up.](https://www.reddit.com/r/wallstreetbets/comments/12822pa/markets_go_up/)
+- [YOLO: May Lord Buffett announce a position in $FRC this weekend. $29k on next weeks 15 calls](https://www.reddit.com/r/wallstreetbets/comments/127yvmh/yolo_may_lord_buffett_announce_a_position_in_frc/)
+- [Red Monday](https://www.reddit.com/r/wallstreetbets/comments/127y5vs/red_monday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
