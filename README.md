@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tired and more scared after today’s rally. Hold or sell?](https://www.reddit.com/r/wallstreetbets/comments/12839rs/tired_and_more_scared_after_todays_rally_hold_or/)
-- [after years of active trading and thousands of transactions, i’m finally showing mr market who’s boss](https://www.reddit.com/r/wallstreetbets/comments/12831el/after_years_of_active_trading_and_thousands_of/)
-- [Markets go up.](https://www.reddit.com/r/wallstreetbets/comments/12822pa/markets_go_up/)
-- [YOLO: May Lord Buffett announce a position in $FRC this weekend. $29k on next weeks 15 calls](https://www.reddit.com/r/wallstreetbets/comments/127yvmh/yolo_may_lord_buffett_announce_a_position_in_frc/)
-- [Red Monday](https://www.reddit.com/r/wallstreetbets/comments/127y5vs/red_monday/)
+- [Do Options wizards exist?](https://www.reddit.com/r/wallstreetbets/comments/12923gx/do_options_wizards_exist/)
+- [The Best performing stocks for Q1 2023 benchmarked against popular ETFs](https://www.reddit.com/r/wallstreetbets/comments/128zlpu/the_best_performing_stocks_for_q1_2023/)
+- [High Dividend Stock -MPW](https://www.reddit.com/r/wallstreetbets/comments/128zgsd/high_dividend_stock_mpw/)
+- [Four straight months of flat or rising Y/o/y Core PCE - Will the Fed pause/pivot with their preferred inflation metric behaving like this?](https://www.reddit.com/r/wallstreetbets/comments/128xm9s/four_straight_months_of_flat_or_rising_yoy_core/)
+- [It’s been a good year, let’s keep it up kids! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/128xlsw/its_been_a_good_year_lets_keep_it_up_kids/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
