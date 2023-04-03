@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do Options wizards exist?](https://www.reddit.com/r/wallstreetbets/comments/12923gx/do_options_wizards_exist/)
-- [The Best performing stocks for Q1 2023 benchmarked against popular ETFs](https://www.reddit.com/r/wallstreetbets/comments/128zlpu/the_best_performing_stocks_for_q1_2023/)
-- [High Dividend Stock -MPW](https://www.reddit.com/r/wallstreetbets/comments/128zgsd/high_dividend_stock_mpw/)
-- [Four straight months of flat or rising Y/o/y Core PCE - Will the Fed pause/pivot with their preferred inflation metric behaving like this?](https://www.reddit.com/r/wallstreetbets/comments/128xm9s/four_straight_months_of_flat_or_rising_yoy_core/)
-- [It’s been a good year, let’s keep it up kids! 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/128xlsw/its_been_a_good_year_lets_keep_it_up_kids/)
+- [Update to the last post](https://www.reddit.com/r/wallstreetbets/comments/12a2s5f/update_to_the_last_post/)
+- [McDonald’s Temporarily Shuts U.S. Offices as Chain Prepares for Layoff Notices](https://www.reddit.com/r/wallstreetbets/comments/12a1vka/mcdonalds_temporarily_shuts_us_offices_as_chain/)
+- [Interesting take.](https://www.reddit.com/r/wallstreetbets/comments/12a1taw/interesting_take/)
+- [Here’s a tip, complain to Howard Schultz and J Pow.](https://www.reddit.com/r/wallstreetbets/comments/12a194a/heres_a_tip_complain_to_howard_schultz_and_j_pow/)
+- [We are so back](https://www.reddit.com/r/wallstreetbets/comments/12a0h24/we_are_so_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
