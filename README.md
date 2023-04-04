@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Update to the last post](https://www.reddit.com/r/wallstreetbets/comments/12a2s5f/update_to_the_last_post/)
-- [McDonald’s Temporarily Shuts U.S. Offices as Chain Prepares for Layoff Notices](https://www.reddit.com/r/wallstreetbets/comments/12a1vka/mcdonalds_temporarily_shuts_us_offices_as_chain/)
-- [Interesting take.](https://www.reddit.com/r/wallstreetbets/comments/12a1taw/interesting_take/)
-- [Here’s a tip, complain to Howard Schultz and J Pow.](https://www.reddit.com/r/wallstreetbets/comments/12a194a/heres_a_tip_complain_to_howard_schultz_and_j_pow/)
-- [We are so back](https://www.reddit.com/r/wallstreetbets/comments/12a0h24/we_are_so_back/)
+- [Billionaire investor Charlie Munger says stock market ‘gambling’ is as addictive as ‘heroin’—but he sees no way to fix it](https://www.reddit.com/r/wallstreetbets/comments/12b25hc/billionaire_investor_charlie_munger_says_stock/)
+- [Economic class 102](https://www.reddit.com/r/wallstreetbets/comments/12b0x03/economic_class_102/)
+- [The Luxury Car Market In A Nut Shell - APR Rates Going To The Tits](https://www.reddit.com/r/wallstreetbets/comments/12b0eh0/the_luxury_car_market_in_a_nut_shell_apr_rates/)
+- [AMC Actually Faced a Quadruple Threat: Conversion, Reverse Split, Dilution and Litigation](https://www.reddit.com/r/wallstreetbets/comments/12b05iy/amc_actually_faced_a_quadruple_threat_conversion/)
+- [Economy has gotten so bad that working at Wendy’s is a flex..](https://www.reddit.com/r/wallstreetbets/comments/12azw38/economy_has_gotten_so_bad_that_working_at_wendys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
