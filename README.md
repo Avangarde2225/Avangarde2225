@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Billionaire investor Charlie Munger says stock market ‘gambling’ is as addictive as ‘heroin’—but he sees no way to fix it](https://www.reddit.com/r/wallstreetbets/comments/12b25hc/billionaire_investor_charlie_munger_says_stock/)
-- [Economic class 102](https://www.reddit.com/r/wallstreetbets/comments/12b0x03/economic_class_102/)
-- [The Luxury Car Market In A Nut Shell - APR Rates Going To The Tits](https://www.reddit.com/r/wallstreetbets/comments/12b0eh0/the_luxury_car_market_in_a_nut_shell_apr_rates/)
-- [AMC Actually Faced a Quadruple Threat: Conversion, Reverse Split, Dilution and Litigation](https://www.reddit.com/r/wallstreetbets/comments/12b05iy/amc_actually_faced_a_quadruple_threat_conversion/)
-- [Economy has gotten so bad that working at Wendy’s is a flex..](https://www.reddit.com/r/wallstreetbets/comments/12azw38/economy_has_gotten_so_bad_that_working_at_wendys/)
+- [Funeral &amp; de4thcare stocks outperform everything](https://www.reddit.com/r/wallstreetbets/comments/12bynl4/funeral_de4thcare_stocks_outperform_everything/)
+- [I believe in him](https://www.reddit.com/r/wallstreetbets/comments/12by5k6/i_believe_in_him/)
+- [Seriously are there any monkeys left?](https://www.reddit.com/r/wallstreetbets/comments/12bxwes/seriously_are_there_any_monkeys_left/)
+- [Inflation in Spain has gone from 10.8% to 3.3% in just 8 months. Inflation is coming down in the US watch it go to 2% before you know it.](https://www.reddit.com/r/wallstreetbets/comments/12bwtu4/inflation_in_spain_has_gone_from_108_to_33_in/)
+- [Toronto-Dominion Becomes Biggest Bank Short With $3.7 Billion on the Line](https://www.reddit.com/r/wallstreetbets/comments/12bw2ke/torontodominion_becomes_biggest_bank_short_with/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
