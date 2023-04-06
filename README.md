@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Funeral &amp; de4thcare stocks outperform everything](https://www.reddit.com/r/wallstreetbets/comments/12bynl4/funeral_de4thcare_stocks_outperform_everything/)
-- [I believe in him](https://www.reddit.com/r/wallstreetbets/comments/12by5k6/i_believe_in_him/)
-- [Seriously are there any monkeys left?](https://www.reddit.com/r/wallstreetbets/comments/12bxwes/seriously_are_there_any_monkeys_left/)
-- [Inflation in Spain has gone from 10.8% to 3.3% in just 8 months. Inflation is coming down in the US watch it go to 2% before you know it.](https://www.reddit.com/r/wallstreetbets/comments/12bwtu4/inflation_in_spain_has_gone_from_108_to_33_in/)
-- [Toronto-Dominion Becomes Biggest Bank Short With $3.7 Billion on the Line](https://www.reddit.com/r/wallstreetbets/comments/12bw2ke/torontodominion_becomes_biggest_bank_short_with/)
+- [Europe&#39;s Housing Market bubble about to burst](https://www.reddit.com/r/wallstreetbets/comments/12d2139/europes_housing_market_bubble_about_to_burst/)
+- [Wednesday afternoon crayon-posting 🦧](https://www.reddit.com/r/wallstreetbets/comments/12d1x9d/wednesday_afternoon_crayonposting/)
+- [POV: You put &quot;Investing Experience&quot; on your Linkedin after loosing all of your savings on RH](https://www.reddit.com/r/wallstreetbets/comments/12d0cve/pov_you_put_investing_experience_on_your_linkedin/)
+- [40-Year Mortgage Boom for Banks is here. Federal Housing Administration greenlights 40-year mortgages.](https://www.reddit.com/r/wallstreetbets/comments/12d04w0/40year_mortgage_boom_for_banks_is_here_federal/)
+- [I give up dude, I just lose no matter what I do](https://www.reddit.com/r/wallstreetbets/comments/12d04m1/i_give_up_dude_i_just_lose_no_matter_what_i_do/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
