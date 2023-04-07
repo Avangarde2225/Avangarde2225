@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Europe&#39;s Housing Market bubble about to burst](https://www.reddit.com/r/wallstreetbets/comments/12d2139/europes_housing_market_bubble_about_to_burst/)
-- [Wednesday afternoon crayon-posting 🦧](https://www.reddit.com/r/wallstreetbets/comments/12d1x9d/wednesday_afternoon_crayonposting/)
-- [POV: You put &quot;Investing Experience&quot; on your Linkedin after loosing all of your savings on RH](https://www.reddit.com/r/wallstreetbets/comments/12d0cve/pov_you_put_investing_experience_on_your_linkedin/)
-- [40-Year Mortgage Boom for Banks is here. Federal Housing Administration greenlights 40-year mortgages.](https://www.reddit.com/r/wallstreetbets/comments/12d04w0/40year_mortgage_boom_for_banks_is_here_federal/)
-- [I give up dude, I just lose no matter what I do](https://www.reddit.com/r/wallstreetbets/comments/12d04m1/i_give_up_dude_i_just_lose_no_matter_what_i_do/)
+- [I won… but at what cost](https://www.reddit.com/r/wallstreetbets/comments/12e1c73/i_won_but_at_what_cost/)
+- [Who told my HOA I was in here](https://www.reddit.com/r/wallstreetbets/comments/12e0jwr/who_told_my_hoa_i_was_in_here/)
+- [For you Regards](https://www.reddit.com/r/wallstreetbets/comments/12e0gvn/for_you_regards/)
+- [Not sure what to tell the wife.... other than I&#39;m fucking regarded](https://www.reddit.com/r/wallstreetbets/comments/12e0etx/not_sure_what_to_tell_the_wife_other_than_im/)
+- [Last month I was driving a Tesla. Today I just rode the bus to my job interview.](https://www.reddit.com/r/wallstreetbets/comments/12e05sn/last_month_i_was_driving_a_tesla_today_i_just/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
