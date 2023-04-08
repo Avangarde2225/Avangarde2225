@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I won… but at what cost](https://www.reddit.com/r/wallstreetbets/comments/12e1c73/i_won_but_at_what_cost/)
-- [Who told my HOA I was in here](https://www.reddit.com/r/wallstreetbets/comments/12e0jwr/who_told_my_hoa_i_was_in_here/)
-- [For you Regards](https://www.reddit.com/r/wallstreetbets/comments/12e0gvn/for_you_regards/)
-- [Not sure what to tell the wife.... other than I&#39;m fucking regarded](https://www.reddit.com/r/wallstreetbets/comments/12e0etx/not_sure_what_to_tell_the_wife_other_than_im/)
-- [Last month I was driving a Tesla. Today I just rode the bus to my job interview.](https://www.reddit.com/r/wallstreetbets/comments/12e05sn/last_month_i_was_driving_a_tesla_today_i_just/)
+- [First Four Price Cuts This Year Caused Stock to Double! Bullish!](https://www.reddit.com/r/wallstreetbets/comments/12f430b/first_four_price_cuts_this_year_caused_stock_to/)
+- [My Mama Says That Bulls Are Ornery Because They Got All Them Bets And No Bear Brush](https://www.reddit.com/r/wallstreetbets/comments/12f2yk4/my_mama_says_that_bulls_are_ornery_because_they/)
+- [Will the pattern continue?](https://www.reddit.com/r/wallstreetbets/comments/12f1a0f/will_the_pattern_continue/)
+- [Alright, listen up you degenerate gamblers of r/wallstreetbets, I&#39;ve got the ultimate YOLO play for you.](https://www.reddit.com/r/wallstreetbets/comments/12eyx55/alright_listen_up_you_degenerate_gamblers_of/)
+- [3-day webinar by a convicted white collar criminal starting at $15k only! &lpar;Free bagels at their Florida estate!*&rpar; *toppings excluded](https://www.reddit.com/r/wallstreetbets/comments/12eylbu/3day_webinar_by_a_convicted_white_collar_criminal/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
