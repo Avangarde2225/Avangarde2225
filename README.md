@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [First Four Price Cuts This Year Caused Stock to Double! Bullish!](https://www.reddit.com/r/wallstreetbets/comments/12f430b/first_four_price_cuts_this_year_caused_stock_to/)
-- [My Mama Says That Bulls Are Ornery Because They Got All Them Bets And No Bear Brush](https://www.reddit.com/r/wallstreetbets/comments/12f2yk4/my_mama_says_that_bulls_are_ornery_because_they/)
-- [Will the pattern continue?](https://www.reddit.com/r/wallstreetbets/comments/12f1a0f/will_the_pattern_continue/)
-- [Alright, listen up you degenerate gamblers of r/wallstreetbets, I&#39;ve got the ultimate YOLO play for you.](https://www.reddit.com/r/wallstreetbets/comments/12eyx55/alright_listen_up_you_degenerate_gamblers_of/)
-- [3-day webinar by a convicted white collar criminal starting at $15k only! &lpar;Free bagels at their Florida estate!*&rpar; *toppings excluded](https://www.reddit.com/r/wallstreetbets/comments/12eylbu/3day_webinar_by_a_convicted_white_collar_criminal/)
+- [First Republic bank to suspend dividends on preferred stock](https://www.reddit.com/r/wallstreetbets/comments/12g33hm/first_republic_bank_to_suspend_dividends_on/)
+- [The future of Wendy&#39;s - Do your part](https://www.reddit.com/r/wallstreetbets/comments/12g0nlc/the_future_of_wendys_do_your_part/)
+- [My portfolio after a 3 day weekend](https://www.reddit.com/r/wallstreetbets/comments/12fyhmc/my_portfolio_after_a_3_day_weekend/)
+- [NVDA in Shambles](https://www.reddit.com/r/wallstreetbets/comments/12fvejs/nvda_in_shambles/)
+- [Apple to the Floor](https://www.reddit.com/r/wallstreetbets/comments/12ft2np/apple_to_the_floor/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
