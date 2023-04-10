@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [First Republic bank to suspend dividends on preferred stock](https://www.reddit.com/r/wallstreetbets/comments/12g33hm/first_republic_bank_to_suspend_dividends_on/)
-- [The future of Wendy&#39;s - Do your part](https://www.reddit.com/r/wallstreetbets/comments/12g0nlc/the_future_of_wendys_do_your_part/)
-- [My portfolio after a 3 day weekend](https://www.reddit.com/r/wallstreetbets/comments/12fyhmc/my_portfolio_after_a_3_day_weekend/)
-- [NVDA in Shambles](https://www.reddit.com/r/wallstreetbets/comments/12fvejs/nvda_in_shambles/)
-- [Apple to the Floor](https://www.reddit.com/r/wallstreetbets/comments/12ft2np/apple_to_the_floor/)
+- [💀](https://www.reddit.com/r/wallstreetbets/comments/12h0g6o/_/)
+- [Expected Move chart for the week](https://www.reddit.com/r/wallstreetbets/comments/12gzfwt/expected_move_chart_for_the_week/)
+- [Being homeless while building my portfolio to financial freedom](https://www.reddit.com/r/wallstreetbets/comments/12gz9u9/being_homeless_while_building_my_portfolio_to/)
+- [Implied Move vs Average Past Move for This Week Earnings Releases](https://www.reddit.com/r/wallstreetbets/comments/12gxyzu/implied_move_vs_average_past_move_for_this_week/)
+- [BTC are we in denial? 🤫](https://www.reddit.com/r/wallstreetbets/comments/12gwe8z/btc_are_we_in_denial/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
