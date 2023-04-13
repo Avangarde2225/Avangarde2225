@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cramer through history part II](https://www.reddit.com/r/wallstreetbets/comments/12j33os/cramer_through_history_part_ii/)
-- [sToNkS](https://www.reddit.com/r/wallstreetbets/comments/12j0zy6/stonks/)
-- [Eeesshhh](https://www.reddit.com/r/wallstreetbets/comments/12j0xrw/eeesshhh/)
-- [Godspeed regards](https://www.reddit.com/r/wallstreetbets/comments/12iylj2/godspeed_regards/)
-- [Well suck me sideways...](https://www.reddit.com/r/wallstreetbets/comments/12iy2dl/well_suck_me_sideways/)
+- [Lucky day](https://www.reddit.com/r/wallstreetbets/comments/12k27uy/lucky_day/)
+- [Inflation as Fed&#39;s target is a scam](https://www.reddit.com/r/wallstreetbets/comments/12jza7f/inflation_as_feds_target_is_a_scam/)
+- [Potential shut down strike at UPS. Would stop all transportation via UPS](https://www.reddit.com/r/wallstreetbets/comments/12jyobv/potential_shut_down_strike_at_ups_would_stop_all/)
+- [More bailouts for bankers won&#39;t fix a broken financial system](https://www.reddit.com/r/wallstreetbets/comments/12jxtjp/more_bailouts_for_bankers_wont_fix_a_broken/)
+- [What Are Your Moves Tomorrow, April 13, 2023](https://www.reddit.com/r/wallstreetbets/comments/12jx3l5/what_are_your_moves_tomorrow_april_13_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
