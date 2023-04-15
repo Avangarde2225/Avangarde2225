@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m dying laughing rn. WSJ has the DD. This is a real article.](https://www.reddit.com/r/wallstreetbets/comments/12l8ajy/im_dying_laughing_rn_wsj_has_the_dd_this_is_a/)
-- [It pays to be a 🌈🐻 but never overstay your welcome.](https://www.reddit.com/r/wallstreetbets/comments/12l84yo/it_pays_to_be_a_but_never_overstay_your_welcome/)
-- [The daily cycle of a zoomer trader](https://www.reddit.com/r/wallstreetbets/comments/12l7ojv/the_daily_cycle_of_a_zoomer_trader/)
-- [Free Money Trade](https://www.reddit.com/r/wallstreetbets/comments/12l7mld/free_money_trade/)
-- [ENPH YOLO - Gains - Don&#39;t miss out on this gem!](https://www.reddit.com/r/wallstreetbets/comments/12l7ag0/enph_yolo_gains_dont_miss_out_on_this_gem/)
+- [The Big Cup and Handle, Earnings, CPI and FOMC…. 4-14-23 SPY/ ES Futures, VIX, 10YR Yield and DXY Weekly Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/12meva5/the_big_cup_and_handle_earnings_cpi_and_fomc/)
+- [Sorting this sub by top all time be like](https://www.reddit.com/r/wallstreetbets/comments/12md72j/sorting_this_sub_by_top_all_time_be_like/)
+- [Market Recap 4/14/23 - Banks earnings so strong both bulls and bears are fucked](https://www.reddit.com/r/wallstreetbets/comments/12mbzxi/market_recap_41423_banks_earnings_so_strong_both/)
+- [Me after I bought too many SPY 415C at 10am 1DTE](https://www.reddit.com/r/wallstreetbets/comments/12mbg38/me_after_i_bought_too_many_spy_415c_at_10am_1dte/)
+- [Weekend Discussion Thread for the Weekend of April 15, 2023](https://www.reddit.com/r/wallstreetbets/comments/12mbdff/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
