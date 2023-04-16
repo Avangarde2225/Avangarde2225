@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Big Cup and Handle, Earnings, CPI and FOMC…. 4-14-23 SPY/ ES Futures, VIX, 10YR Yield and DXY Weekly Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/12meva5/the_big_cup_and_handle_earnings_cpi_and_fomc/)
-- [Sorting this sub by top all time be like](https://www.reddit.com/r/wallstreetbets/comments/12md72j/sorting_this_sub_by_top_all_time_be_like/)
-- [Market Recap 4/14/23 - Banks earnings so strong both bulls and bears are fucked](https://www.reddit.com/r/wallstreetbets/comments/12mbzxi/market_recap_41423_banks_earnings_so_strong_both/)
-- [Me after I bought too many SPY 415C at 10am 1DTE](https://www.reddit.com/r/wallstreetbets/comments/12mbg38/me_after_i_bought_too_many_spy_415c_at_10am_1dte/)
-- [Weekend Discussion Thread for the Weekend of April 15, 2023](https://www.reddit.com/r/wallstreetbets/comments/12mbdff/weekend_discussion_thread_for_the_weekend_of/)
+- [AMC to the moon 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/12nofiy/amc_to_the_moon/)
+- [Week Ended April 14 - Recap and thoughts for next week- valuation model update](https://www.reddit.com/r/wallstreetbets/comments/12nn4uj/week_ended_april_14_recap_and_thoughts_for_next/)
+- [JAMIE DIMON: you&#39;re going to see next week regional banks have pretty good numbers](https://www.reddit.com/r/wallstreetbets/comments/12nltw0/jamie_dimon_youre_going_to_see_next_week_regional/)
+- [Jackbox 8 quote](https://www.reddit.com/r/wallstreetbets/comments/12nl8jq/jackbox_8_quote/)
+- [Turned 3k~ into 14k from spy calls after the dip holding till next week and selling at 420](https://www.reddit.com/r/wallstreetbets/comments/12nhsmk/turned_3k_into_14k_from_spy_calls_after_the_dip/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
