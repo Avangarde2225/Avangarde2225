@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMC to the moon 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/12nofiy/amc_to_the_moon/)
-- [Week Ended April 14 - Recap and thoughts for next week- valuation model update](https://www.reddit.com/r/wallstreetbets/comments/12nn4uj/week_ended_april_14_recap_and_thoughts_for_next/)
-- [JAMIE DIMON: you&#39;re going to see next week regional banks have pretty good numbers](https://www.reddit.com/r/wallstreetbets/comments/12nltw0/jamie_dimon_youre_going_to_see_next_week_regional/)
-- [Jackbox 8 quote](https://www.reddit.com/r/wallstreetbets/comments/12nl8jq/jackbox_8_quote/)
-- [Turned 3k~ into 14k from spy calls after the dip holding till next week and selling at 420](https://www.reddit.com/r/wallstreetbets/comments/12nhsmk/turned_3k_into_14k_from_spy_calls_after_the_dip/)
+- [Do we still shit post here?](https://www.reddit.com/r/wallstreetbets/comments/12ouvz1/do_we_still_shit_post_here/)
+- [78 members of Congress have violated a law designed to prevent insider trading and stop conflicts-of-interest](https://www.reddit.com/r/wallstreetbets/comments/12ouivs/78_members_of_congress_have_violated_a_law/)
+- [SOFI investors](https://www.reddit.com/r/wallstreetbets/comments/12otpb4/sofi_investors/)
+- [It’s not over until I say it’s over.](https://www.reddit.com/r/wallstreetbets/comments/12oroky/its_not_over_until_i_say_its_over/)
+- [Just found my new portable trading rig](https://www.reddit.com/r/wallstreetbets/comments/12oqj7x/just_found_my_new_portable_trading_rig/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
