@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do we still shit post here?](https://www.reddit.com/r/wallstreetbets/comments/12ouvz1/do_we_still_shit_post_here/)
-- [78 members of Congress have violated a law designed to prevent insider trading and stop conflicts-of-interest](https://www.reddit.com/r/wallstreetbets/comments/12ouivs/78_members_of_congress_have_violated_a_law/)
-- [SOFI investors](https://www.reddit.com/r/wallstreetbets/comments/12otpb4/sofi_investors/)
-- [It’s not over until I say it’s over.](https://www.reddit.com/r/wallstreetbets/comments/12oroky/its_not_over_until_i_say_its_over/)
-- [Just found my new portable trading rig](https://www.reddit.com/r/wallstreetbets/comments/12oqj7x/just_found_my_new_portable_trading_rig/)
+- [Following this legend today made my drive home better. I know you’re in here, show yourself!!](https://www.reddit.com/r/wallstreetbets/comments/12q1fij/following_this_legend_today_made_my_drive_home/)
+- [Market Recap - 4/17/23 - Everyone is bearish, but stonks only go up](https://www.reddit.com/r/wallstreetbets/comments/12q04j8/market_recap_41723_everyone_is_bearish_but_stonks/)
+- [Bank Earnings Provide Confidence to Buy](https://www.reddit.com/r/wallstreetbets/comments/12pzkr5/bank_earnings_provide_confidence_to_buy/)
+- [4-17-23 SPY/ ES futures, 10YR Yield/ DXY and VIX Daily Market Analysis &lpar;question about 0dte SPX Gamma Exposure&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12pwrva/41723_spy_es_futures_10yr_yield_dxy_and_vix_daily/)
+- [Yolo](https://www.reddit.com/r/wallstreetbets/comments/12put6k/yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
