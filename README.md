@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Following this legend today made my drive home better. I know you’re in here, show yourself!!](https://www.reddit.com/r/wallstreetbets/comments/12q1fij/following_this_legend_today_made_my_drive_home/)
-- [Market Recap - 4/17/23 - Everyone is bearish, but stonks only go up](https://www.reddit.com/r/wallstreetbets/comments/12q04j8/market_recap_41723_everyone_is_bearish_but_stonks/)
-- [Bank Earnings Provide Confidence to Buy](https://www.reddit.com/r/wallstreetbets/comments/12pzkr5/bank_earnings_provide_confidence_to_buy/)
-- [4-17-23 SPY/ ES futures, 10YR Yield/ DXY and VIX Daily Market Analysis &lpar;question about 0dte SPX Gamma Exposure&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12pwrva/41723_spy_es_futures_10yr_yield_dxy_and_vix_daily/)
-- [Yolo](https://www.reddit.com/r/wallstreetbets/comments/12put6k/yolo/)
+- [Talk me out of buying puts on NFLX tomorrow after horrific earnings 2 quarters in a row! 20% decline in earnings for 3.7% growth](https://www.reddit.com/r/wallstreetbets/comments/12r8zlp/talk_me_out_of_buying_puts_on_nflx_tomorrow_after/)
+- [Candlestick Signals for Regards](https://www.reddit.com/r/wallstreetbets/comments/12r6lu3/candlestick_signals_for_regards/)
+- [Everything about today feels like a fever dream right now](https://www.reddit.com/r/wallstreetbets/comments/12r51kd/everything_about_today_feels_like_a_fever_dream/)
+- [4-18-23 SPY/ ES Futures, and VIX Daily Market Analysis &lpar;NFLX earnings and BONUS Tesla Earnings Preview and TA&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12r45cv/41823_spy_es_futures_and_vix_daily_market/)
+- [Let’s see…](https://www.reddit.com/r/wallstreetbets/comments/12r3kq8/lets_see/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
