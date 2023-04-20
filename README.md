@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Talk me out of buying puts on NFLX tomorrow after horrific earnings 2 quarters in a row! 20% decline in earnings for 3.7% growth](https://www.reddit.com/r/wallstreetbets/comments/12r8zlp/talk_me_out_of_buying_puts_on_nflx_tomorrow_after/)
-- [Candlestick Signals for Regards](https://www.reddit.com/r/wallstreetbets/comments/12r6lu3/candlestick_signals_for_regards/)
-- [Everything about today feels like a fever dream right now](https://www.reddit.com/r/wallstreetbets/comments/12r51kd/everything_about_today_feels_like_a_fever_dream/)
-- [4-18-23 SPY/ ES Futures, and VIX Daily Market Analysis &lpar;NFLX earnings and BONUS Tesla Earnings Preview and TA&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12r45cv/41823_spy_es_futures_and_vix_daily_market/)
-- [Let’s see…](https://www.reddit.com/r/wallstreetbets/comments/12r3kq8/lets_see/)
+- [79.99 and you’ll be be rich 4 lyfe](https://www.reddit.com/r/wallstreetbets/comments/12savbq/7999_and_youll_be_be_rich_4_lyfe/)
+- [All in on AMD](https://www.reddit.com/r/wallstreetbets/comments/12s9xbj/all_in_on_amd/)
+- [How to prop the market when liquidity is scarce:](https://www.reddit.com/r/wallstreetbets/comments/12s9w6x/how_to_prop_the_market_when_liquidity_is_scarce/)
+- [4-19-23 SPY/ ES Futures and VIX Daily Market Analysis &lpar;Bonus- Tesla Earnings&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12s9361/41923_spy_es_futures_and_vix_daily_market/)
+- [S&amp;P 500&#39;s top 20 stocks make up over 90% of YTD gains](https://www.reddit.com/r/wallstreetbets/comments/12s8mbn/sp_500s_top_20_stocks_make_up_over_90_of_ytd_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
