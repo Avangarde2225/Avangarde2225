@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [79.99 and you’ll be be rich 4 lyfe](https://www.reddit.com/r/wallstreetbets/comments/12savbq/7999_and_youll_be_be_rich_4_lyfe/)
-- [All in on AMD](https://www.reddit.com/r/wallstreetbets/comments/12s9xbj/all_in_on_amd/)
-- [How to prop the market when liquidity is scarce:](https://www.reddit.com/r/wallstreetbets/comments/12s9w6x/how_to_prop_the_market_when_liquidity_is_scarce/)
-- [4-19-23 SPY/ ES Futures and VIX Daily Market Analysis &lpar;Bonus- Tesla Earnings&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12s9361/41923_spy_es_futures_and_vix_daily_market/)
-- [S&amp;P 500&#39;s top 20 stocks make up over 90% of YTD gains](https://www.reddit.com/r/wallstreetbets/comments/12s8mbn/sp_500s_top_20_stocks_make_up_over_90_of_ytd_gains/)
+- [6 price cuts so far in 2023. At this rate, Cathie Wood predicted that you can get a Tesla for $2,000 in 2027. Do the math. She&#39;s not wrong.](https://www.reddit.com/r/wallstreetbets/comments/12tjyi4/6_price_cuts_so_far_in_2023_at_this_rate_cathie/)
+- [see you in hell theta](https://www.reddit.com/r/wallstreetbets/comments/12ti2io/see_you_in_hell_theta/)
+- [Did the bears finally do it &lpar;4116 ES/ 409.19 SPY target&rpar;? 4-20-23 SPY/ ES Futures, and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/12tgcv4/did_the_bears_finally_do_it_4116_es_40919_spy/)
+- [25k to 50k from SPX options by timing the bottom, top, and second bottom](https://www.reddit.com/r/wallstreetbets/comments/12tfy35/25k_to_50k_from_spx_options_by_timing_the_bottom/)
+- [AI Thanos](https://www.reddit.com/r/wallstreetbets/comments/12tfaex/ai_thanos/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
