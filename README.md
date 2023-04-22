@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [6 price cuts so far in 2023. At this rate, Cathie Wood predicted that you can get a Tesla for $2,000 in 2027. Do the math. She&#39;s not wrong.](https://www.reddit.com/r/wallstreetbets/comments/12tjyi4/6_price_cuts_so_far_in_2023_at_this_rate_cathie/)
-- [see you in hell theta](https://www.reddit.com/r/wallstreetbets/comments/12ti2io/see_you_in_hell_theta/)
-- [Did the bears finally do it &lpar;4116 ES/ 409.19 SPY target&rpar;? 4-20-23 SPY/ ES Futures, and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/12tgcv4/did_the_bears_finally_do_it_4116_es_40919_spy/)
-- [25k to 50k from SPX options by timing the bottom, top, and second bottom](https://www.reddit.com/r/wallstreetbets/comments/12tfy35/25k_to_50k_from_spx_options_by_timing_the_bottom/)
-- [AI Thanos](https://www.reddit.com/r/wallstreetbets/comments/12tfaex/ai_thanos/)
+- [Puts on BUD](https://www.reddit.com/r/wallstreetbets/comments/12umlgq/puts_on_bud/)
+- [What do you guys do for a living?](https://www.reddit.com/r/wallstreetbets/comments/12ulig6/what_do_you_guys_do_for_a_living/)
+- [Next Week Earnings Releases by Implied Movement](https://www.reddit.com/r/wallstreetbets/comments/12ui68c/next_week_earnings_releases_by_implied_movement/)
+- [Weekend Discussion Thread for the Weekend of April 22, 2023](https://www.reddit.com/r/wallstreetbets/comments/12ugckh/weekend_discussion_thread_for_the_weekend_of/)
+- [Luck Ran Out Yesterday? Just Inverse Yourself For $10k More](https://www.reddit.com/r/wallstreetbets/comments/12ug8ul/luck_ran_out_yesterday_just_inverse_yourself_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
