@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on BUD](https://www.reddit.com/r/wallstreetbets/comments/12umlgq/puts_on_bud/)
-- [What do you guys do for a living?](https://www.reddit.com/r/wallstreetbets/comments/12ulig6/what_do_you_guys_do_for_a_living/)
-- [Next Week Earnings Releases by Implied Movement](https://www.reddit.com/r/wallstreetbets/comments/12ui68c/next_week_earnings_releases_by_implied_movement/)
-- [Weekend Discussion Thread for the Weekend of April 22, 2023](https://www.reddit.com/r/wallstreetbets/comments/12ugckh/weekend_discussion_thread_for_the_weekend_of/)
-- [Luck Ran Out Yesterday? Just Inverse Yourself For $10k More](https://www.reddit.com/r/wallstreetbets/comments/12ug8ul/luck_ran_out_yesterday_just_inverse_yourself_for/)
+- [Options are bonkers, I’m glad to be green again, my girlfriends boyfriend was threatening to evict me. Well fuck you Greg!!!!](https://www.reddit.com/r/wallstreetbets/comments/12vo80s/options_are_bonkers_im_glad_to_be_green_again_my/)
+- [kisd on reddit🙂](https://www.reddit.com/r/wallstreetbets/comments/12vo6oy/kisd_on_reddit/)
+- [Samsung et al Paying Netlist $300m and Counting](https://www.reddit.com/r/wallstreetbets/comments/12vmutc/samsung_et_al_paying_netlist_300m_and_counting/)
+- [Moodys regional bank credit rating review complete](https://www.reddit.com/r/wallstreetbets/comments/12vm9xs/moodys_regional_bank_credit_rating_review_complete/)
+- [Continuing with the 2023 gain for now. &lpar; took out 50k for taxes &rpar;](https://www.reddit.com/r/wallstreetbets/comments/12vkl5m/continuing_with_the_2023_gain_for_now_took_out/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
