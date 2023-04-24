@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Options are bonkers, I’m glad to be green again, my girlfriends boyfriend was threatening to evict me. Well fuck you Greg!!!!](https://www.reddit.com/r/wallstreetbets/comments/12vo80s/options_are_bonkers_im_glad_to_be_green_again_my/)
-- [kisd on reddit🙂](https://www.reddit.com/r/wallstreetbets/comments/12vo6oy/kisd_on_reddit/)
-- [Samsung et al Paying Netlist $300m and Counting](https://www.reddit.com/r/wallstreetbets/comments/12vmutc/samsung_et_al_paying_netlist_300m_and_counting/)
-- [Moodys regional bank credit rating review complete](https://www.reddit.com/r/wallstreetbets/comments/12vm9xs/moodys_regional_bank_credit_rating_review_complete/)
-- [Continuing with the 2023 gain for now. &lpar; took out 50k for taxes &rpar;](https://www.reddit.com/r/wallstreetbets/comments/12vkl5m/continuing_with_the_2023_gain_for_now_took_out/)
+- [FRC - best scenario](https://www.reddit.com/r/wallstreetbets/comments/12wvln0/frc_best_scenario/)
+- [what a nice boat! what do you think?](https://www.reddit.com/r/wallstreetbets/comments/12wt6re/what_a_nice_boat_what_do_you_think/)
+- [So long, and thanks for &lpar;taking&rpar; all the bags!](https://www.reddit.com/r/wallstreetbets/comments/12wr4x8/so_long_and_thanks_for_taking_all_the_bags/)
+- [Maybe if you paid attention in typewriting class, you wouldn’t be such a regarded investor](https://www.reddit.com/r/wallstreetbets/comments/12wq9k0/maybe_if_you_paid_attention_in_typewriting_class/)
+- [Who bbby &quot;household investors&quot; think they are vs who they actually are.](https://www.reddit.com/r/wallstreetbets/comments/12wocbf/who_bbby_household_investors_think_they_are_vs/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
