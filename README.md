@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [FRC - best scenario](https://www.reddit.com/r/wallstreetbets/comments/12wvln0/frc_best_scenario/)
-- [what a nice boat! what do you think?](https://www.reddit.com/r/wallstreetbets/comments/12wt6re/what_a_nice_boat_what_do_you_think/)
-- [So long, and thanks for &lpar;taking&rpar; all the bags!](https://www.reddit.com/r/wallstreetbets/comments/12wr4x8/so_long_and_thanks_for_taking_all_the_bags/)
-- [Maybe if you paid attention in typewriting class, you wouldn’t be such a regarded investor](https://www.reddit.com/r/wallstreetbets/comments/12wq9k0/maybe_if_you_paid_attention_in_typewriting_class/)
-- [Who bbby &quot;household investors&quot; think they are vs who they actually are.](https://www.reddit.com/r/wallstreetbets/comments/12wocbf/who_bbby_household_investors_think_they_are_vs/)
+- [FRC$](https://www.reddit.com/r/wallstreetbets/comments/12y10dp/frc/)
+- [Everyone who bought FRC before close](https://www.reddit.com/r/wallstreetbets/comments/12y05qc/everyone_who_bought_frc_before_close/)
+- [POV: You&#39;re in FRC &quot;for the long haul&quot;](https://www.reddit.com/r/wallstreetbets/comments/12y00v2/pov_youre_in_frc_for_the_long_haul/)
+- [Wow what a monday fellas!](https://www.reddit.com/r/wallstreetbets/comments/12xzd0c/wow_what_a_monday_fellas/)
+- [Bears how is market gonna turn negative when every company is now just saying AI](https://www.reddit.com/r/wallstreetbets/comments/12xymzt/bears_how_is_market_gonna_turn_negative_when/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
