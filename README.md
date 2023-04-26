@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [FRC$](https://www.reddit.com/r/wallstreetbets/comments/12y10dp/frc/)
-- [Everyone who bought FRC before close](https://www.reddit.com/r/wallstreetbets/comments/12y05qc/everyone_who_bought_frc_before_close/)
-- [POV: You&#39;re in FRC &quot;for the long haul&quot;](https://www.reddit.com/r/wallstreetbets/comments/12y00v2/pov_youre_in_frc_for_the_long_haul/)
-- [Wow what a monday fellas!](https://www.reddit.com/r/wallstreetbets/comments/12xzd0c/wow_what_a_monday_fellas/)
-- [Bears how is market gonna turn negative when every company is now just saying AI](https://www.reddit.com/r/wallstreetbets/comments/12xymzt/bears_how_is_market_gonna_turn_negative_when/)
+- [Chad OpenAI vs Virgin Bard](https://www.reddit.com/r/wallstreetbets/comments/12yytqp/chad_openai_vs_virgin_bard/)
+- [your friend that invested in ornamental gourd futures while you yolo’d into a fucking bank stock](https://www.reddit.com/r/wallstreetbets/comments/12yypo8/your_friend_that_invested_in_ornamental_gourd/)
+- [BBBY Hodlers Right Now 💀](https://www.reddit.com/r/wallstreetbets/comments/12yylwl/bbby_hodlers_right_now/)
+- [Incoming loss porn. How fucked am I? &lpar;Cant use Loss flair so I use Meme&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12yxwks/incoming_loss_porn_how_fucked_am_i_cant_use_loss/)
+- [Bed Bath &amp; Beyond Inc. Receives NASDAQ Delisting Notice](https://www.reddit.com/r/wallstreetbets/comments/12yxqyg/bed_bath_beyond_inc_receives_nasdaq_delisting/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
