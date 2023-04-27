@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Chad OpenAI vs Virgin Bard](https://www.reddit.com/r/wallstreetbets/comments/12yytqp/chad_openai_vs_virgin_bard/)
-- [your friend that invested in ornamental gourd futures while you yolo’d into a fucking bank stock](https://www.reddit.com/r/wallstreetbets/comments/12yypo8/your_friend_that_invested_in_ornamental_gourd/)
-- [BBBY Hodlers Right Now 💀](https://www.reddit.com/r/wallstreetbets/comments/12yylwl/bbby_hodlers_right_now/)
-- [Incoming loss porn. How fucked am I? &lpar;Cant use Loss flair so I use Meme&rpar;](https://www.reddit.com/r/wallstreetbets/comments/12yxwks/incoming_loss_porn_how_fucked_am_i_cant_use_loss/)
-- [Bed Bath &amp; Beyond Inc. Receives NASDAQ Delisting Notice](https://www.reddit.com/r/wallstreetbets/comments/12yxqyg/bed_bath_beyond_inc_receives_nasdaq_delisting/)
+- [Market Recap - 4/26/23 - A song of ice and fire](https://www.reddit.com/r/wallstreetbets/comments/1303hzk/market_recap_42623_a_song_of_ice_and_fire/)
+- [Still bullish on $FRC despite this](https://www.reddit.com/r/wallstreetbets/comments/1302n54/still_bullish_on_frc_despite_this/)
+- [It’s not much, but it’s honest work.](https://www.reddit.com/r/wallstreetbets/comments/12zzp1o/its_not_much_but_its_honest_work/)
+- [Another true WSB genius](https://www.reddit.com/r/wallstreetbets/comments/12zywwy/another_true_wsb_genius/)
+- [$META and Reddit’s opinion](https://www.reddit.com/r/wallstreetbets/comments/12zytkp/meta_and_reddits_opinion/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
