@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market Recap - 4/26/23 - A song of ice and fire](https://www.reddit.com/r/wallstreetbets/comments/1303hzk/market_recap_42623_a_song_of_ice_and_fire/)
-- [Still bullish on $FRC despite this](https://www.reddit.com/r/wallstreetbets/comments/1302n54/still_bullish_on_frc_despite_this/)
-- [It’s not much, but it’s honest work.](https://www.reddit.com/r/wallstreetbets/comments/12zzp1o/its_not_much_but_its_honest_work/)
-- [Another true WSB genius](https://www.reddit.com/r/wallstreetbets/comments/12zywwy/another_true_wsb_genius/)
-- [$META and Reddit’s opinion](https://www.reddit.com/r/wallstreetbets/comments/12zytkp/meta_and_reddits_opinion/)
+- [That guy who blew his family vacation fund on FRC, the morning before he told them.](https://www.reddit.com/r/wallstreetbets/comments/131a9iv/that_guy_who_blew_his_family_vacation_fund_on_frc/)
+- [We have a lot of new members joining tonight so let me cordially invite all the new folks to the Amazon bagholder club. Welcome!](https://www.reddit.com/r/wallstreetbets/comments/1319te3/we_have_a_lot_of_new_members_joining_tonight_so/)
+- [SMH](https://www.reddit.com/r/wallstreetbets/comments/1319pag/smh/)
+- [Meow? 😿](https://www.reddit.com/r/wallstreetbets/comments/1319p5m/meow/)
+- [Say Welcome to frc!](https://www.reddit.com/r/wallstreetbets/comments/13193vc/say_welcome_to_frc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
