@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [That guy who blew his family vacation fund on FRC, the morning before he told them.](https://www.reddit.com/r/wallstreetbets/comments/131a9iv/that_guy_who_blew_his_family_vacation_fund_on_frc/)
-- [We have a lot of new members joining tonight so let me cordially invite all the new folks to the Amazon bagholder club. Welcome!](https://www.reddit.com/r/wallstreetbets/comments/1319te3/we_have_a_lot_of_new_members_joining_tonight_so/)
-- [SMH](https://www.reddit.com/r/wallstreetbets/comments/1319pag/smh/)
-- [Meow? 😿](https://www.reddit.com/r/wallstreetbets/comments/1319p5m/meow/)
-- [Say Welcome to frc!](https://www.reddit.com/r/wallstreetbets/comments/13193vc/say_welcome_to_frc/)
+- [BANKruptcy bingo.. who’s next](https://www.reddit.com/r/wallstreetbets/comments/132dhrs/bankruptcy_bingo_whos_next/)
+- [Oh the monotony](https://www.reddit.com/r/wallstreetbets/comments/132aicg/oh_the_monotony/)
+- [I am sitting at the Starbucks across the street from First Republic Bank in Back Bay, Boston.](https://www.reddit.com/r/wallstreetbets/comments/132a6at/i_am_sitting_at_the_starbucks_across_the_street/)
+- [FDIC to place First Republic Bank &lpar;FRC&rpar; in receivership.](https://www.reddit.com/r/wallstreetbets/comments/1329r0y/fdic_to_place_first_republic_bank_frc_in/)
+- [U.S. regulator set to take over First Republic. $FRC done](https://www.reddit.com/r/wallstreetbets/comments/1329i4o/us_regulator_set_to_take_over_first_republic_frc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
