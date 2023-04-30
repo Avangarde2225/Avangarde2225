@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BANKruptcy bingo.. who’s next](https://www.reddit.com/r/wallstreetbets/comments/132dhrs/bankruptcy_bingo_whos_next/)
-- [Oh the monotony](https://www.reddit.com/r/wallstreetbets/comments/132aicg/oh_the_monotony/)
-- [I am sitting at the Starbucks across the street from First Republic Bank in Back Bay, Boston.](https://www.reddit.com/r/wallstreetbets/comments/132a6at/i_am_sitting_at_the_starbucks_across_the_street/)
-- [FDIC to place First Republic Bank &lpar;FRC&rpar; in receivership.](https://www.reddit.com/r/wallstreetbets/comments/1329r0y/fdic_to_place_first_republic_bank_frc_in/)
-- [U.S. regulator set to take over First Republic. $FRC done](https://www.reddit.com/r/wallstreetbets/comments/1329i4o/us_regulator_set_to_take_over_first_republic_frc/)
+- [Wish granted](https://www.reddit.com/r/wallstreetbets/comments/133aq9r/wish_granted/)
+- [How heavy were your bags?](https://www.reddit.com/r/wallstreetbets/comments/1339td5/how_heavy_were_your_bags/)
+- [Number of times AI mentioned on earnings call](https://www.reddit.com/r/wallstreetbets/comments/133918h/number_of_times_ai_mentioned_on_earnings_call/)
+- [Credit to u/skystarsss for the idea](https://www.reddit.com/r/wallstreetbets/comments/1338qua/credit_to_uskystarsss_for_the_idea/)
+- [Puts on RIVN](https://www.reddit.com/r/wallstreetbets/comments/1337xa8/puts_on_rivn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
