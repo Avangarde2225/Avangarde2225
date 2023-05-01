@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wish granted](https://www.reddit.com/r/wallstreetbets/comments/133aq9r/wish_granted/)
-- [How heavy were your bags?](https://www.reddit.com/r/wallstreetbets/comments/1339td5/how_heavy_were_your_bags/)
-- [Number of times AI mentioned on earnings call](https://www.reddit.com/r/wallstreetbets/comments/133918h/number_of_times_ai_mentioned_on_earnings_call/)
-- [Credit to u/skystarsss for the idea](https://www.reddit.com/r/wallstreetbets/comments/1338qua/credit_to_uskystarsss_for_the_idea/)
-- [Puts on RIVN](https://www.reddit.com/r/wallstreetbets/comments/1337xa8/puts_on_rivn/)
+- [Crash imminent](https://www.reddit.com/r/wallstreetbets/comments/1346v3b/crash_imminent/)
+- [A violent move is upon us](https://www.reddit.com/r/wallstreetbets/comments/13460cd/a_violent_move_is_upon_us/)
+- [The Fed Right Now!](https://www.reddit.com/r/wallstreetbets/comments/1344xh9/the_fed_right_now/)
+- [I won’t have to pay it back right?](https://www.reddit.com/r/wallstreetbets/comments/1344ksh/i_wont_have_to_pay_it_back_right/)
+- [Summary of Earnings Call Season](https://www.reddit.com/r/wallstreetbets/comments/1344ihn/summary_of_earnings_call_season/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
