@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Three years with you regards](https://www.reddit.com/r/wallstreetbets/comments/1354rui/three_years_with_you_regards/)
-- [Highly Regarded of You](https://www.reddit.com/r/wallstreetbets/comments/1352x2d/highly_regarded_of_you/)
-- [Jamie Dimon right now.](https://www.reddit.com/r/wallstreetbets/comments/135288z/jamie_dimon_right_now/)
-- [Natural Growth](https://www.reddit.com/r/wallstreetbets/comments/1351ufz/natural_growth/)
-- [BREAKING NEWS: Another Congressman literally traded banking stocks again. Lois Frankel sold $FRC on March 16th, avoiding the remaining 80%](https://www.reddit.com/r/wallstreetbets/comments/1351rvf/breaking_news_another_congressman_literally/)
+- [Biden proposes 30% climate change tax on cryptocurrency mining](https://www.reddit.com/r/wallstreetbets/comments/13638zl/biden_proposes_30_climate_change_tax_on/)
+- [Why tf are CVNA puts not printing yet???](https://www.reddit.com/r/wallstreetbets/comments/13620mf/why_tf_are_cvna_puts_not_printing_yet/)
+- [FRC or Bust!?](https://www.reddit.com/r/wallstreetbets/comments/135yyec/frc_or_bust/)
+- [What Are Your Moves Tomorrow, May 03, 2023](https://www.reddit.com/r/wallstreetbets/comments/135yin9/what_are_your_moves_tomorrow_may_03_2023/)
+- [This is also my investment strategy](https://www.reddit.com/r/wallstreetbets/comments/135y3op/this_is_also_my_investment_strategy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
