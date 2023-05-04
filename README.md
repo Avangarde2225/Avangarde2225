@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Biden proposes 30% climate change tax on cryptocurrency mining](https://www.reddit.com/r/wallstreetbets/comments/13638zl/biden_proposes_30_climate_change_tax_on/)
-- [Why tf are CVNA puts not printing yet???](https://www.reddit.com/r/wallstreetbets/comments/13620mf/why_tf_are_cvna_puts_not_printing_yet/)
-- [FRC or Bust!?](https://www.reddit.com/r/wallstreetbets/comments/135yyec/frc_or_bust/)
-- [What Are Your Moves Tomorrow, May 03, 2023](https://www.reddit.com/r/wallstreetbets/comments/135yin9/what_are_your_moves_tomorrow_may_03_2023/)
-- [This is also my investment strategy](https://www.reddit.com/r/wallstreetbets/comments/135y3op/this_is_also_my_investment_strategy/)
+- [“The extent of these effects remain uncertain” -Powell](https://www.reddit.com/r/wallstreetbets/comments/1373742/the_extent_of_these_effects_remain_uncertain/)
+- [Strong. Sound. Resilient.](https://www.reddit.com/r/wallstreetbets/comments/1372awi/strong_sound_resilient/)
+- [Banking system is sound and resilient....meanwhile](https://www.reddit.com/r/wallstreetbets/comments/1370tyg/banking_system_is_sound_and_resilientmeanwhile/)
+- [Ah shit here we go again….](https://www.reddit.com/r/wallstreetbets/comments/13701i5/ah_shit_here_we_go_again/)
+- [Can I call my mom now? Regional bank contagion continues.](https://www.reddit.com/r/wallstreetbets/comments/136znu1/can_i_call_my_mom_now_regional_bank_contagion/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
