@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [“The extent of these effects remain uncertain” -Powell](https://www.reddit.com/r/wallstreetbets/comments/1373742/the_extent_of_these_effects_remain_uncertain/)
-- [Strong. Sound. Resilient.](https://www.reddit.com/r/wallstreetbets/comments/1372awi/strong_sound_resilient/)
-- [Banking system is sound and resilient....meanwhile](https://www.reddit.com/r/wallstreetbets/comments/1370tyg/banking_system_is_sound_and_resilientmeanwhile/)
-- [Ah shit here we go again….](https://www.reddit.com/r/wallstreetbets/comments/13701i5/ah_shit_here_we_go_again/)
-- [Can I call my mom now? Regional bank contagion continues.](https://www.reddit.com/r/wallstreetbets/comments/136znu1/can_i_call_my_mom_now_regional_bank_contagion/)
+- [Thank you Tim Cook!](https://www.reddit.com/r/wallstreetbets/comments/13811jp/thank_you_tim_cook/)
+- [Absolute Legend](https://www.reddit.com/r/wallstreetbets/comments/137ynjc/absolute_legend/)
+- [What Are Your Moves Tomorrow, May 05, 2023](https://www.reddit.com/r/wallstreetbets/comments/137y5xm/what_are_your_moves_tomorrow_may_05_2023/)
+- [.](https://www.reddit.com/r/wallstreetbets/comments/137xscn/_/)
+- [He sure does, that’s for sure.](https://www.reddit.com/r/wallstreetbets/comments/137xdvt/he_sure_does_thats_for_sure/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
