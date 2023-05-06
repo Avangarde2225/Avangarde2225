@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thank you Tim Cook!](https://www.reddit.com/r/wallstreetbets/comments/13811jp/thank_you_tim_cook/)
-- [Absolute Legend](https://www.reddit.com/r/wallstreetbets/comments/137ynjc/absolute_legend/)
-- [What Are Your Moves Tomorrow, May 05, 2023](https://www.reddit.com/r/wallstreetbets/comments/137y5xm/what_are_your_moves_tomorrow_may_05_2023/)
-- [.](https://www.reddit.com/r/wallstreetbets/comments/137xscn/_/)
-- [He sure does, that’s for sure.](https://www.reddit.com/r/wallstreetbets/comments/137xdvt/he_sure_does_thats_for_sure/)
+- [Last week I showed this screenshot to an officer and he let me park in the handicap spot &lpar;peaked at $230k in 2021&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1394y0c/last_week_i_showed_this_screenshot_to_an_officer/)
+- [A special message from Tim 🍏](https://www.reddit.com/r/wallstreetbets/comments/1393l9d/a_special_message_from_tim/)
+- [Sorry for the losses 💔📉😦 - r/wallstreetbets posted a net loss of $2.6M in April 2023](https://www.reddit.com/r/wallstreetbets/comments/1393dmg/sorry_for_the_losses_rwallstreetbets_posted_a_net/)
+- [Everything is fine](https://www.reddit.com/r/wallstreetbets/comments/13928y9/everything_is_fine/)
+- [„I‘m bullish on Rome.“ - Jimius Cramer, Sept 476 AC](https://www.reddit.com/r/wallstreetbets/comments/1392888/im_bullish_on_rome_jimius_cramer_sept_476_ac/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
