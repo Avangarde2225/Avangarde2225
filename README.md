@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Last week I showed this screenshot to an officer and he let me park in the handicap spot &lpar;peaked at $230k in 2021&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1394y0c/last_week_i_showed_this_screenshot_to_an_officer/)
-- [A special message from Tim 🍏](https://www.reddit.com/r/wallstreetbets/comments/1393l9d/a_special_message_from_tim/)
-- [Sorry for the losses 💔📉😦 - r/wallstreetbets posted a net loss of $2.6M in April 2023](https://www.reddit.com/r/wallstreetbets/comments/1393dmg/sorry_for_the_losses_rwallstreetbets_posted_a_net/)
-- [Everything is fine](https://www.reddit.com/r/wallstreetbets/comments/13928y9/everything_is_fine/)
-- [„I‘m bullish on Rome.“ - Jimius Cramer, Sept 476 AC](https://www.reddit.com/r/wallstreetbets/comments/1392888/im_bullish_on_rome_jimius_cramer_sept_476_ac/)
+- [Puts on WFC](https://www.reddit.com/r/wallstreetbets/comments/13a69j6/puts_on_wfc/)
+- [Let me be your Bernie Madoff](https://www.reddit.com/r/wallstreetbets/comments/13a5rcp/let_me_be_your_bernie_madoff/)
+- [Its official. When a book published in 1949 calls you a 🤡 6 years before you were born, Warren Buffet is one of us.](https://www.reddit.com/r/wallstreetbets/comments/13a39by/its_official_when_a_book_published_in_1949_calls/)
+- [Put on RIVN](https://www.reddit.com/r/wallstreetbets/comments/13a1ejx/put_on_rivn/)
+- [BTFD!](https://www.reddit.com/r/wallstreetbets/comments/13a14i0/btfd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
