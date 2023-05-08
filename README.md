@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on WFC](https://www.reddit.com/r/wallstreetbets/comments/13a69j6/puts_on_wfc/)
-- [Let me be your Bernie Madoff](https://www.reddit.com/r/wallstreetbets/comments/13a5rcp/let_me_be_your_bernie_madoff/)
-- [Its official. When a book published in 1949 calls you a 🤡 6 years before you were born, Warren Buffet is one of us.](https://www.reddit.com/r/wallstreetbets/comments/13a39by/its_official_when_a_book_published_in_1949_calls/)
-- [Put on RIVN](https://www.reddit.com/r/wallstreetbets/comments/13a1ejx/put_on_rivn/)
-- [BTFD!](https://www.reddit.com/r/wallstreetbets/comments/13a14i0/btfd/)
+- [Do you think he’s happy with his Rivian?](https://www.reddit.com/r/wallstreetbets/comments/13b7v9o/do_you_think_hes_happy_with_his_rivian/)
+- [NYT Sunday crossword is telling me to bet it all on 0DTEs this week](https://www.reddit.com/r/wallstreetbets/comments/13b7qs7/nyt_sunday_crossword_is_telling_me_to_bet_it_all/)
+- [Buffet and Munger&#39;s take on banks explained:](https://www.reddit.com/r/wallstreetbets/comments/13b6ykx/buffet_and_mungers_take_on_banks_explained/)
+- [Green futes = down Monday](https://www.reddit.com/r/wallstreetbets/comments/13b68e3/green_futes_down_monday/)
+- [Warren Buffet : I have to give verbal blowjobs to Washington and Beijing](https://www.reddit.com/r/wallstreetbets/comments/13b4eot/warren_buffet_i_have_to_give_verbal_blowjobs_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
