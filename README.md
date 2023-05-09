@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do you think he’s happy with his Rivian?](https://www.reddit.com/r/wallstreetbets/comments/13b7v9o/do_you_think_hes_happy_with_his_rivian/)
-- [NYT Sunday crossword is telling me to bet it all on 0DTEs this week](https://www.reddit.com/r/wallstreetbets/comments/13b7qs7/nyt_sunday_crossword_is_telling_me_to_bet_it_all/)
-- [Buffet and Munger&#39;s take on banks explained:](https://www.reddit.com/r/wallstreetbets/comments/13b6ykx/buffet_and_mungers_take_on_banks_explained/)
-- [Green futes = down Monday](https://www.reddit.com/r/wallstreetbets/comments/13b68e3/green_futes_down_monday/)
-- [Warren Buffet : I have to give verbal blowjobs to Washington and Beijing](https://www.reddit.com/r/wallstreetbets/comments/13b4eot/warren_buffet_i_have_to_give_verbal_blowjobs_to/)
+- [I Guess We Can All Relate 🤣](https://www.reddit.com/r/wallstreetbets/comments/13c8cvt/i_guess_we_can_all_relate/)
+- [If WSB could read they would be profitable](https://www.reddit.com/r/wallstreetbets/comments/13c8a2z/if_wsb_could_read_they_would_be_profitable/)
+- [Andddddd it&#39;s gone.](https://www.reddit.com/r/wallstreetbets/comments/13c5mtn/andddddd_its_gone/)
+- [Karp on the phone with Cramer:](https://www.reddit.com/r/wallstreetbets/comments/13c4crq/karp_on_the_phone_with_cramer/)
+- [PLTR](https://www.reddit.com/r/wallstreetbets/comments/13c3u7k/pltr/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
