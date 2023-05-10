@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I Guess We Can All Relate 🤣](https://www.reddit.com/r/wallstreetbets/comments/13c8cvt/i_guess_we_can_all_relate/)
-- [If WSB could read they would be profitable](https://www.reddit.com/r/wallstreetbets/comments/13c8a2z/if_wsb_could_read_they_would_be_profitable/)
-- [Andddddd it&#39;s gone.](https://www.reddit.com/r/wallstreetbets/comments/13c5mtn/andddddd_its_gone/)
-- [Karp on the phone with Cramer:](https://www.reddit.com/r/wallstreetbets/comments/13c4crq/karp_on_the_phone_with_cramer/)
-- [PLTR](https://www.reddit.com/r/wallstreetbets/comments/13c3u7k/pltr/)
+- [Average development of a degenerate gambling addict](https://www.reddit.com/r/wallstreetbets/comments/13d9yk8/average_development_of_a_degenerate_gambling/)
+- [F*ck your calls &lpar;Update 1&rpar;](https://www.reddit.com/r/wallstreetbets/comments/13d9fsn/fck_your_calls_update_1/)
+- [Anyone going in this today because of UPST?](https://www.reddit.com/r/wallstreetbets/comments/13d87ly/anyone_going_in_this_today_because_of_upst/)
+- [Added to SOFI YOLO. Debt ceiling concerns will be a nothing burger. I’m buying where the CEO is buying.](https://www.reddit.com/r/wallstreetbets/comments/13d7tdi/added_to_sofi_yolo_debt_ceiling_concerns_will_be/)
+- [Tomorrow is the markets D-Day &lpar;CPI Breakdown and Analysis&rpar;… 5/9/23 SPY/ ES Futures, and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/13d54bo/tomorrow_is_the_markets_dday_cpi_breakdown_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
