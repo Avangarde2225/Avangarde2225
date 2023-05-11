@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Average development of a degenerate gambling addict](https://www.reddit.com/r/wallstreetbets/comments/13d9yk8/average_development_of_a_degenerate_gambling/)
-- [F*ck your calls &lpar;Update 1&rpar;](https://www.reddit.com/r/wallstreetbets/comments/13d9fsn/fck_your_calls_update_1/)
-- [Anyone going in this today because of UPST?](https://www.reddit.com/r/wallstreetbets/comments/13d87ly/anyone_going_in_this_today_because_of_upst/)
-- [Added to SOFI YOLO. Debt ceiling concerns will be a nothing burger. I’m buying where the CEO is buying.](https://www.reddit.com/r/wallstreetbets/comments/13d7tdi/added_to_sofi_yolo_debt_ceiling_concerns_will_be/)
-- [Tomorrow is the markets D-Day &lpar;CPI Breakdown and Analysis&rpar;… 5/9/23 SPY/ ES Futures, and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/13d54bo/tomorrow_is_the_markets_dday_cpi_breakdown_and/)
+- [Money printer goes PRRRR](https://www.reddit.com/r/wallstreetbets/comments/13e6l6a/money_printer_goes_prrrr/)
+- [Here&#39;s why $GOOGL was up today](https://www.reddit.com/r/wallstreetbets/comments/13e52w8/heres_why_googl_was_up_today/)
+- [So, we can lose money all day long now 🦧](https://www.reddit.com/r/wallstreetbets/comments/13e4r9m/so_we_can_lose_money_all_day_long_now/)
+- [Airbnb stock crashes as co-founders lose $3 billion in one day](https://www.reddit.com/r/wallstreetbets/comments/13e4ikd/airbnb_stock_crashes_as_cofounders_lose_3_billion/)
+- [Old ladies like her desire a hot young man](https://www.reddit.com/r/wallstreetbets/comments/13e445n/old_ladies_like_her_desire_a_hot_young_man/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
