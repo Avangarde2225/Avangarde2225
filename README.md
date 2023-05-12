@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Money printer goes PRRRR](https://www.reddit.com/r/wallstreetbets/comments/13e6l6a/money_printer_goes_prrrr/)
-- [Here&#39;s why $GOOGL was up today](https://www.reddit.com/r/wallstreetbets/comments/13e52w8/heres_why_googl_was_up_today/)
-- [So, we can lose money all day long now 🦧](https://www.reddit.com/r/wallstreetbets/comments/13e4r9m/so_we_can_lose_money_all_day_long_now/)
-- [Airbnb stock crashes as co-founders lose $3 billion in one day](https://www.reddit.com/r/wallstreetbets/comments/13e4ikd/airbnb_stock_crashes_as_cofounders_lose_3_billion/)
-- [Old ladies like her desire a hot young man](https://www.reddit.com/r/wallstreetbets/comments/13e445n/old_ladies_like_her_desire_a_hot_young_man/)
+- [Hi, I am Twitter&#39;s new CEO AMA](https://www.reddit.com/r/wallstreetbets/comments/13f1k1z/hi_i_am_twitters_new_ceo_ama/)
+- [Peloton recalls 2.2 million exercise bikes: ‘Immediately stop using,&#39; CPSC says](https://www.reddit.com/r/wallstreetbets/comments/13ezfh9/peloton_recalls_22_million_exercise_bikes/)
+- [Elon Musk says he&#39;s stepping down as Twitter CEO](https://www.reddit.com/r/wallstreetbets/comments/13ey9ub/elon_musk_says_hes_stepping_down_as_twitter_ceo/)
+- [What Are Your Moves Tomorrow, May 12, 2023](https://www.reddit.com/r/wallstreetbets/comments/13ey81h/what_are_your_moves_tomorrow_may_12_2023/)
+- [The Fed hiked the interest rates 7 times in 2022, just as Jamie Dimon predicted](https://www.reddit.com/r/wallstreetbets/comments/13exyl2/the_fed_hiked_the_interest_rates_7_times_in_2022/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
