@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hi, I am Twitter&#39;s new CEO AMA](https://www.reddit.com/r/wallstreetbets/comments/13f1k1z/hi_i_am_twitters_new_ceo_ama/)
-- [Peloton recalls 2.2 million exercise bikes: ‘Immediately stop using,&#39; CPSC says](https://www.reddit.com/r/wallstreetbets/comments/13ezfh9/peloton_recalls_22_million_exercise_bikes/)
-- [Elon Musk says he&#39;s stepping down as Twitter CEO](https://www.reddit.com/r/wallstreetbets/comments/13ey9ub/elon_musk_says_hes_stepping_down_as_twitter_ceo/)
-- [What Are Your Moves Tomorrow, May 12, 2023](https://www.reddit.com/r/wallstreetbets/comments/13ey81h/what_are_your_moves_tomorrow_may_12_2023/)
-- [The Fed hiked the interest rates 7 times in 2022, just as Jamie Dimon predicted](https://www.reddit.com/r/wallstreetbets/comments/13exyl2/the_fed_hiked_the_interest_rates_7_times_in_2022/)
+- [A recession and a credit crunch could result in $1 trillion of corporate debt defaults, Bank of America says](https://www.reddit.com/r/wallstreetbets/comments/13g0tla/a_recession_and_a_credit_crunch_could_result_in_1/)
+- [Puts on CNBC pie charts](https://www.reddit.com/r/wallstreetbets/comments/13g0ko7/puts_on_cnbc_pie_charts/)
+- [Proof! I was the first bag holding Ape DRSs shares 15 years before WallStreetBets.](https://www.reddit.com/r/wallstreetbets/comments/13fzyhm/proof_i_was_the_first_bag_holding_ape_drss_shares/)
+- [Unveiling My $132k PLTR Trade: Leveraging Anomaly-Detection Strategy and Greek Moons](https://www.reddit.com/r/wallstreetbets/comments/13fzt15/unveiling_my_132k_pltr_trade_leveraging/)
+- [Hello, I’m Jim Cramer. AMA.](https://www.reddit.com/r/wallstreetbets/comments/13fzo08/hello_im_jim_cramer_ama/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
