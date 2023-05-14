@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A recession and a credit crunch could result in $1 trillion of corporate debt defaults, Bank of America says](https://www.reddit.com/r/wallstreetbets/comments/13g0tla/a_recession_and_a_credit_crunch_could_result_in_1/)
-- [Puts on CNBC pie charts](https://www.reddit.com/r/wallstreetbets/comments/13g0ko7/puts_on_cnbc_pie_charts/)
-- [Proof! I was the first bag holding Ape DRSs shares 15 years before WallStreetBets.](https://www.reddit.com/r/wallstreetbets/comments/13fzyhm/proof_i_was_the_first_bag_holding_ape_drss_shares/)
-- [Unveiling My $132k PLTR Trade: Leveraging Anomaly-Detection Strategy and Greek Moons](https://www.reddit.com/r/wallstreetbets/comments/13fzt15/unveiling_my_132k_pltr_trade_leveraging/)
-- [Hello, I’m Jim Cramer. AMA.](https://www.reddit.com/r/wallstreetbets/comments/13fzo08/hello_im_jim_cramer_ama/)
+- [My Thoughts on the Performance Raise...](https://www.reddit.com/r/wallstreetbets/comments/13gwv6w/my_thoughts_on_the_performance_raise/)
+- [Pickleball is replacing Bed Bath &amp; Beyond and Old Navy at malls](https://www.reddit.com/r/wallstreetbets/comments/13gta1q/pickleball_is_replacing_bed_bath_beyond_and_old/)
+- [spotted in the wild](https://www.reddit.com/r/wallstreetbets/comments/13gt82e/spotted_in_the_wild/)
+- [FDIC to hit biggest US banks with $16bn bill for SVB clean-up](https://www.reddit.com/r/wallstreetbets/comments/13gq3u9/fdic_to_hit_biggest_us_banks_with_16bn_bill_for/)
+- [Bailing Out of A Broken Trade](https://www.reddit.com/r/wallstreetbets/comments/13gpe6w/bailing_out_of_a_broken_trade/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
