@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My Thoughts on the Performance Raise...](https://www.reddit.com/r/wallstreetbets/comments/13gwv6w/my_thoughts_on_the_performance_raise/)
-- [Pickleball is replacing Bed Bath &amp; Beyond and Old Navy at malls](https://www.reddit.com/r/wallstreetbets/comments/13gta1q/pickleball_is_replacing_bed_bath_beyond_and_old/)
-- [spotted in the wild](https://www.reddit.com/r/wallstreetbets/comments/13gt82e/spotted_in_the_wild/)
-- [FDIC to hit biggest US banks with $16bn bill for SVB clean-up](https://www.reddit.com/r/wallstreetbets/comments/13gq3u9/fdic_to_hit_biggest_us_banks_with_16bn_bill_for/)
-- [Bailing Out of A Broken Trade](https://www.reddit.com/r/wallstreetbets/comments/13gpe6w/bailing_out_of_a_broken_trade/)
+- [Calls on Alphabet and Wendy’s for figuring out AI blow jobs](https://www.reddit.com/r/wallstreetbets/comments/13hroj9/calls_on_alphabet_and_wendys_for_figuring_out_ai/)
+- [Some big insider moves from Kellogg&#39;s &lpar;$K&rpar; 🥣](https://www.reddit.com/r/wallstreetbets/comments/13hq48h/some_big_insider_moves_from_kelloggs_k/)
+- [What do you all use to track the latest congress trades these days?](https://www.reddit.com/r/wallstreetbets/comments/13hpu2m/what_do_you_all_use_to_track_the_latest_congress/)
+- [Jim Cramer: An economic wave is about to hit that will be fantastic for investors](https://www.reddit.com/r/wallstreetbets/comments/13hpku0/jim_cramer_an_economic_wave_is_about_to_hit_that/)
+- [2011 U.S. Debt Ceiling Crisis timeline!](https://www.reddit.com/r/wallstreetbets/comments/13hn8fi/2011_us_debt_ceiling_crisis_timeline/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
