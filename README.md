@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calls on Alphabet and Wendy’s for figuring out AI blow jobs](https://www.reddit.com/r/wallstreetbets/comments/13hroj9/calls_on_alphabet_and_wendys_for_figuring_out_ai/)
-- [Some big insider moves from Kellogg&#39;s &lpar;$K&rpar; 🥣](https://www.reddit.com/r/wallstreetbets/comments/13hq48h/some_big_insider_moves_from_kelloggs_k/)
-- [What do you all use to track the latest congress trades these days?](https://www.reddit.com/r/wallstreetbets/comments/13hpu2m/what_do_you_all_use_to_track_the_latest_congress/)
-- [Jim Cramer: An economic wave is about to hit that will be fantastic for investors](https://www.reddit.com/r/wallstreetbets/comments/13hpku0/jim_cramer_an_economic_wave_is_about_to_hit_that/)
-- [2011 U.S. Debt Ceiling Crisis timeline!](https://www.reddit.com/r/wallstreetbets/comments/13hn8fi/2011_us_debt_ceiling_crisis_timeline/)
+- [Where did all my monie go?](https://www.reddit.com/r/wallstreetbets/comments/13ip9p4/where_did_all_my_monie_go/)
+- [Sharing my fortune with all of you, best regards.](https://www.reddit.com/r/wallstreetbets/comments/13ip0t4/sharing_my_fortune_with_all_of_you_best_regards/)
+- [Lost porn: The dangers of anti-depressants and gambling addiction](https://www.reddit.com/r/wallstreetbets/comments/13iocfi/lost_porn_the_dangers_of_antidepressants_and/)
+- [Once valued at $5.7 billion, Vice Media just filed for bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/13inmae/once_valued_at_57_billion_vice_media_just_filed/)
+- [Elon Musk Subpoened in Jefferey Epstein case!](https://www.reddit.com/r/wallstreetbets/comments/13imguy/elon_musk_subpoened_in_jefferey_epstein_case/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
