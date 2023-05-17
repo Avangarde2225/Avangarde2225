@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Where did all my monie go?](https://www.reddit.com/r/wallstreetbets/comments/13ip9p4/where_did_all_my_monie_go/)
-- [Sharing my fortune with all of you, best regards.](https://www.reddit.com/r/wallstreetbets/comments/13ip0t4/sharing_my_fortune_with_all_of_you_best_regards/)
-- [Lost porn: The dangers of anti-depressants and gambling addiction](https://www.reddit.com/r/wallstreetbets/comments/13iocfi/lost_porn_the_dangers_of_antidepressants_and/)
-- [Once valued at $5.7 billion, Vice Media just filed for bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/13inmae/once_valued_at_57_billion_vice_media_just_filed/)
-- [Elon Musk Subpoened in Jefferey Epstein case!](https://www.reddit.com/r/wallstreetbets/comments/13imguy/elon_musk_subpoened_in_jefferey_epstein_case/)
+- [Basically](https://www.reddit.com/r/wallstreetbets/comments/13jkg0y/basically/)
+- [Warren Buffett completely sells his TSMC stake, largest chip producer for Apple phones](https://www.reddit.com/r/wallstreetbets/comments/13jj3iu/warren_buffett_completely_sells_his_tsmc_stake/)
+- [What Exactly Does WSB Want?](https://www.reddit.com/r/wallstreetbets/comments/13jiu6s/what_exactly_does_wsb_want/)
+- [30k SPY call 7dte](https://www.reddit.com/r/wallstreetbets/comments/13jidws/30k_spy_call_7dte/)
+- [Did we just break the Trendy Range? 5-16-23 SPY/ ES Futures and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/13jgp14/did_we_just_break_the_trendy_range_51623_spy_es/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
