@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A positive outlook on NKE&lpar;with TA and negative analysis&rpar;](https://www.reddit.com/r/wallstreetbets/comments/13kfu9k/a_positive_outlook_on_nkewith_ta_and_negative/)
-- [$Goog Gains](https://www.reddit.com/r/wallstreetbets/comments/13kdwlg/goog_gains/)
-- [Debt Cieling Bears 🐻](https://www.reddit.com/r/wallstreetbets/comments/13kdfyq/debt_cieling_bears/)
-- [The ultimate bear trap… 5/17/23 SPY/ ES futures, VIX and DXY/10YR Yield Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/13kdf2m/the_ultimate_bear_trap_51723_spy_es_futures_vix/)
-- [WHO DID THIS?](https://www.reddit.com/r/wallstreetbets/comments/13kdepb/who_did_this/)
+- [Bullish on Skynet](https://www.reddit.com/r/wallstreetbets/comments/13lbzw7/bullish_on_skynet/)
+- [You just need to be right twice I guess](https://www.reddit.com/r/wallstreetbets/comments/13lboqt/you_just_need_to_be_right_twice_i_guess/)
+- [Breaking: Jerome Powell reflects on SPX hitting 4200](https://www.reddit.com/r/wallstreetbets/comments/13lbfvs/breaking_jerome_powell_reflects_on_spx_hitting/)
+- [Skynet](https://www.reddit.com/r/wallstreetbets/comments/13la1am/skynet/)
+- [one don&#39;t simply fight against CEOs who tattooed their company](https://www.reddit.com/r/wallstreetbets/comments/13l9iw2/one_dont_simply_fight_against_ceos_who_tattooed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
