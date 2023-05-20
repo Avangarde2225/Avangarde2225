@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bullish on Skynet](https://www.reddit.com/r/wallstreetbets/comments/13lbzw7/bullish_on_skynet/)
-- [You just need to be right twice I guess](https://www.reddit.com/r/wallstreetbets/comments/13lboqt/you_just_need_to_be_right_twice_i_guess/)
-- [Breaking: Jerome Powell reflects on SPX hitting 4200](https://www.reddit.com/r/wallstreetbets/comments/13lbfvs/breaking_jerome_powell_reflects_on_spx_hitting/)
-- [Skynet](https://www.reddit.com/r/wallstreetbets/comments/13la1am/skynet/)
-- [one don&#39;t simply fight against CEOs who tattooed their company](https://www.reddit.com/r/wallstreetbets/comments/13l9iw2/one_dont_simply_fight_against_ceos_who_tattooed/)
+- [$1.3 billion worth of leftover Yeezys will start selling this month, Adidas confirms](https://www.reddit.com/r/wallstreetbets/comments/13marhd/13_billion_worth_of_leftover_yeezys_will_start/)
+- [Getting out of my PLTR hole after 2 years](https://www.reddit.com/r/wallstreetbets/comments/13mahwe/getting_out_of_my_pltr_hole_after_2_years/)
+- [Fox News &lpar;$FOX&rpar; Just Axed Its Investigative Unit, Sources Say](https://www.reddit.com/r/wallstreetbets/comments/13m9ml8/fox_news_fox_just_axed_its_investigative_unit/)
+- [WSB user found in the wild.](https://www.reddit.com/r/wallstreetbets/comments/13m7oup/wsb_user_found_in_the_wild/)
+- [Never believed I would end up posting here... 328k loss in 2 years](https://www.reddit.com/r/wallstreetbets/comments/13m6uey/never_believed_i_would_end_up_posting_here_328k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
