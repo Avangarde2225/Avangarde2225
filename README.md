@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$1.3 billion worth of leftover Yeezys will start selling this month, Adidas confirms](https://www.reddit.com/r/wallstreetbets/comments/13marhd/13_billion_worth_of_leftover_yeezys_will_start/)
-- [Getting out of my PLTR hole after 2 years](https://www.reddit.com/r/wallstreetbets/comments/13mahwe/getting_out_of_my_pltr_hole_after_2_years/)
-- [Fox News &lpar;$FOX&rpar; Just Axed Its Investigative Unit, Sources Say](https://www.reddit.com/r/wallstreetbets/comments/13m9ml8/fox_news_fox_just_axed_its_investigative_unit/)
-- [WSB user found in the wild.](https://www.reddit.com/r/wallstreetbets/comments/13m7oup/wsb_user_found_in_the_wild/)
-- [Never believed I would end up posting here... 328k loss in 2 years](https://www.reddit.com/r/wallstreetbets/comments/13m6uey/never_believed_i_would_end_up_posting_here_328k/)
+- [Bulls get ready!!!](https://www.reddit.com/r/wallstreetbets/comments/13ncx53/bulls_get_ready/)
+- [Has anyone elses life completely gone to shit/went haywire, since they discovered wsb?](https://www.reddit.com/r/wallstreetbets/comments/13ncjqd/has_anyone_elses_life_completely_gone_to_shitwent/)
+- [QQQ is running on fumes …](https://www.reddit.com/r/wallstreetbets/comments/13ncf1d/qqq_is_running_on_fumes/)
+- [INTC vs AMD: Benchmark, Price Target Range, Deep analysis &amp; Fundamentals](https://www.reddit.com/r/wallstreetbets/comments/13nb8mh/intc_vs_amd_benchmark_price_target_range_deep/)
+- [Puts on big ben](https://www.reddit.com/r/wallstreetbets/comments/13nav5w/puts_on_big_ben/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
