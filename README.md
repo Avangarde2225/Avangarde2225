@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [2 years of investing. thanks guys.](https://www.reddit.com/r/wallstreetbets/comments/13p7bos/2_years_of_investing_thanks_guys/)
-- [So many lines](https://www.reddit.com/r/wallstreetbets/comments/13p6jrs/so_many_lines/)
-- [See you guys tomorrow!](https://www.reddit.com/r/wallstreetbets/comments/13p5exq/see_you_guys_tomorrow/)
-- [Your investment money is going to be my investment money](https://www.reddit.com/r/wallstreetbets/comments/13p5eeh/your_investment_money_is_going_to_be_my/)
-- [Everybody remembers what the stock market did after the debt ceiling was lifted in 2011, right?](https://www.reddit.com/r/wallstreetbets/comments/13p567i/everybody_remembers_what_the_stock_market_did/)
+- [Me loaded up with puts watching the debt ceiling debacle](https://www.reddit.com/r/wallstreetbets/comments/13q37dd/me_loaded_up_with_puts_watching_the_debt_ceiling/)
+- [Market Recap - 5/23/23 - Next leg down?](https://www.reddit.com/r/wallstreetbets/comments/13q2hw2/market_recap_52323_next_leg_down/)
+- [California Made Over $215 Million in Marijuana Taxes in Q1, 2023](https://www.reddit.com/r/wallstreetbets/comments/13q1xs6/california_made_over_215_million_in_marijuana/)
+- [10k SPY call 3DTE](https://www.reddit.com/r/wallstreetbets/comments/13q1omm/10k_spy_call_3dte/)
+- [How can BABA has book value per share 54.90 while APPL at 3.95](https://www.reddit.com/r/wallstreetbets/comments/13q16jw/how_can_baba_has_book_value_per_share_5490_while/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
