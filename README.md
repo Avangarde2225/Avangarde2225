@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me loaded up with puts watching the debt ceiling debacle](https://www.reddit.com/r/wallstreetbets/comments/13q37dd/me_loaded_up_with_puts_watching_the_debt_ceiling/)
-- [Market Recap - 5/23/23 - Next leg down?](https://www.reddit.com/r/wallstreetbets/comments/13q2hw2/market_recap_52323_next_leg_down/)
-- [California Made Over $215 Million in Marijuana Taxes in Q1, 2023](https://www.reddit.com/r/wallstreetbets/comments/13q1xs6/california_made_over_215_million_in_marijuana/)
-- [10k SPY call 3DTE](https://www.reddit.com/r/wallstreetbets/comments/13q1omm/10k_spy_call_3dte/)
-- [How can BABA has book value per share 54.90 while APPL at 3.95](https://www.reddit.com/r/wallstreetbets/comments/13q16jw/how_can_baba_has_book_value_per_share_5490_while/)
+- [NVDA gainsss how you like huh](https://www.reddit.com/r/wallstreetbets/comments/13r13t8/nvda_gainsss_how_you_like_huh/)
+- [NVDfuckinA](https://www.reddit.com/r/wallstreetbets/comments/13r070x/nvdfuckina/)
+- [$NVDA Earnings: stock rises +26% after hours adding +$200B in market cap.](https://www.reddit.com/r/wallstreetbets/comments/13qzs6z/nvda_earnings_stock_rises_26_after_hours_adding/)
+- [Mofos who sold $NVDA right before earnings:](https://www.reddit.com/r/wallstreetbets/comments/13qzk9j/mofos_who_sold_nvda_right_before_earnings/)
+- [NVDA regrets 😂 🤦‍♂️](https://www.reddit.com/r/wallstreetbets/comments/13qzj9k/nvda_regrets/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
