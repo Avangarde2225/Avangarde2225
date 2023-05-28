@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVDA short seller dinner looking delicious!](https://www.reddit.com/r/wallstreetbets/comments/13srsfz/nvda_short_seller_dinner_looking_delicious/)
-- [People who keep shorting nvdia right now](https://www.reddit.com/r/wallstreetbets/comments/13srrev/people_who_keep_shorting_nvdia_right_now/)
-- [NVDA bears with Sir David Attenborough](https://www.reddit.com/r/wallstreetbets/comments/13sowgy/nvda_bears_with_sir_david_attenborough/)
-- [Why is the market rallying?](https://www.reddit.com/r/wallstreetbets/comments/13so6gg/why_is_the_market_rallying/)
-- [Invested in NVIDIA in October last year, now 202% in profit](https://www.reddit.com/r/wallstreetbets/comments/13snd97/invested_in_nvidia_in_october_last_year_now_202/)
+- [What kind of troll is this?](https://www.reddit.com/r/wallstreetbets/comments/13tm59d/what_kind_of_troll_is_this/)
+- [did someone say Fuck Your Puts?..](https://www.reddit.com/r/wallstreetbets/comments/13tlqw9/did_someone_say_fuck_your_puts/)
+- [BEWARE when trading options on EBAY, NVDA or any other div paying stock.. ignored ex-divs in the past and ended up subsidizing Citadel :&lpar;](https://www.reddit.com/r/wallstreetbets/comments/13tl2zn/beware_when_trading_options_on_ebay_nvda_or_any/)
+- [State Farm to stop accepting homeowners insurance applications in California due to wildfires, construction costs](https://www.reddit.com/r/wallstreetbets/comments/13tkf6y/state_farm_to_stop_accepting_homeowners_insurance/)
+- [Soon to be bag holders in 1925. Nothing much has changed.](https://www.reddit.com/r/wallstreetbets/comments/13tjuza/soon_to_be_bag_holders_in_1925_nothing_much_has/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
