@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bears on actual life support rn](https://www.reddit.com/r/wallstreetbets/comments/13w5xis/bears_on_actual_life_support_rn/)
-- [Twitter Is Now Worth Just 33% of Elon Musk’s Purchase Price, Fidelity Says](https://www.reddit.com/r/wallstreetbets/comments/13w5w60/twitter_is_now_worth_just_33_of_elon_musks/)
-- [Yes - The Fed Will Continue Raising Interest Rates](https://www.reddit.com/r/wallstreetbets/comments/13w3whn/yes_the_fed_will_continue_raising_interest_rates/)
-- [exciting journey as a bear in 2023](https://www.reddit.com/r/wallstreetbets/comments/13w3h5z/exciting_journey_as_a_bear_in_2023/)
-- [+6.3k from AI calls today. Back from the dead ☠️](https://www.reddit.com/r/wallstreetbets/comments/13w3gjj/63k_from_ai_calls_today_back_from_the_dead/)
+- [Put on lou lou lemon.](https://www.reddit.com/r/wallstreetbets/comments/13x04fu/put_on_lou_lou_lemon/)
+- [buy puts on every regional bank](https://www.reddit.com/r/wallstreetbets/comments/13wzzqm/buy_puts_on_every_regional_bank/)
+- [The Fed Wants To Skip On A June Rate Increase And Then Hike Later - UNREAL](https://www.reddit.com/r/wallstreetbets/comments/13wz6r2/the_fed_wants_to_skip_on_a_june_rate_increase_and/)
+- [Deja-VU Fed Speaker Addition… 5-31-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/13wx40t/dejavu_fed_speaker_addition_53123_spy_es_futures/)
+- [40k SPY 7/21 puts](https://www.reddit.com/r/wallstreetbets/comments/13wwpuv/40k_spy_721_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
