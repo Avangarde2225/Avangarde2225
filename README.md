@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tomorrow&#39;s weather forecast](https://www.reddit.com/r/wallstreetbets/comments/140v5vd/tomorrows_weather_forecast/)
-- [Is the Recession coming faster than expected?](https://www.reddit.com/r/wallstreetbets/comments/140pogf/is_the_recession_coming_faster_than_expected/)
-- [U.S. Treasury announced it&#39;s issuing over $170 BILLION .. and that&#39;s only for this week](https://www.reddit.com/r/wallstreetbets/comments/140nxah/us_treasury_announced_its_issuing_over_170/)
-- [Weekend Recap - Week ended June 2 - valuation and prediction update](https://www.reddit.com/r/wallstreetbets/comments/140mnwd/weekend_recap_week_ended_june_2_valuation_and/)
-- [Saudi Arabia Shakes Up Oil Market in Latest OPEC+ Meeting](https://www.reddit.com/r/wallstreetbets/comments/140lzbb/saudi_arabia_shakes_up_oil_market_in_latest_opec/)
+- [All in on Apple, they&#39;ve created the perfect device.](https://www.reddit.com/r/wallstreetbets/comments/141vf72/all_in_on_apple_theyve_created_the_perfect_device/)
+- [Apple Stock Hits All-Time High—Then Immediately Falls After Revealing Price Tag For AI Headset](https://www.reddit.com/r/wallstreetbets/comments/141u45o/apple_stock_hits_alltime_highthen_immediately/)
+- [I am all in.](https://www.reddit.com/r/wallstreetbets/comments/141tfvc/i_am_all_in/)
+- [What TF has a $1750 mortgage ?!](https://www.reddit.com/r/wallstreetbets/comments/141tf1s/what_tf_has_a_1750_mortgage/)
+- [Me buying AAPL at ATH](https://www.reddit.com/r/wallstreetbets/comments/141s3ft/me_buying_aapl_at_ath/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
