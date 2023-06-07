@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [All in on Apple, they&#39;ve created the perfect device.](https://www.reddit.com/r/wallstreetbets/comments/141vf72/all_in_on_apple_theyve_created_the_perfect_device/)
-- [Apple Stock Hits All-Time High—Then Immediately Falls After Revealing Price Tag For AI Headset](https://www.reddit.com/r/wallstreetbets/comments/141u45o/apple_stock_hits_alltime_highthen_immediately/)
-- [I am all in.](https://www.reddit.com/r/wallstreetbets/comments/141tfvc/i_am_all_in/)
-- [What TF has a $1750 mortgage ?!](https://www.reddit.com/r/wallstreetbets/comments/141tf1s/what_tf_has_a_1750_mortgage/)
-- [Me buying AAPL at ATH](https://www.reddit.com/r/wallstreetbets/comments/141s3ft/me_buying_aapl_at_ath/)
+- [$135,000 loss on ai](https://www.reddit.com/r/wallstreetbets/comments/142vw62/135000_loss_on_ai/)
+- [Puts on AAPL until they release Apple Vision](https://www.reddit.com/r/wallstreetbets/comments/142vcet/puts_on_aapl_until_they_release_apple_vision/)
+- [$MVIS Rally](https://www.reddit.com/r/wallstreetbets/comments/142teh4/mvis_rally/)
+- [My suggestion before y&#39;all make the next trade.](https://www.reddit.com/r/wallstreetbets/comments/142t345/my_suggestion_before_yall_make_the_next_trade/)
+- [Options trading is glorified gambling](https://www.reddit.com/r/wallstreetbets/comments/142sz52/options_trading_is_glorified_gambling/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
