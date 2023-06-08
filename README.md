@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$135,000 loss on ai](https://www.reddit.com/r/wallstreetbets/comments/142vw62/135000_loss_on_ai/)
-- [Puts on AAPL until they release Apple Vision](https://www.reddit.com/r/wallstreetbets/comments/142vcet/puts_on_aapl_until_they_release_apple_vision/)
-- [$MVIS Rally](https://www.reddit.com/r/wallstreetbets/comments/142teh4/mvis_rally/)
-- [My suggestion before y&#39;all make the next trade.](https://www.reddit.com/r/wallstreetbets/comments/142t345/my_suggestion_before_yall_make_the_next_trade/)
-- [Options trading is glorified gambling](https://www.reddit.com/r/wallstreetbets/comments/142sz52/options_trading_is_glorified_gambling/)
+- [Ape gets MEGA GUH&#39;d during earnings](https://www.reddit.com/r/wallstreetbets/comments/143shnz/ape_gets_mega_guhd_during_earnings/)
+- [Uhh guys?](https://www.reddit.com/r/wallstreetbets/comments/143rchi/uhh_guys/)
+- [$AAPL to the moon](https://www.reddit.com/r/wallstreetbets/comments/143r9dx/aapl_to_the_moon/)
+- [What stocks are good plays on wildfires?](https://www.reddit.com/r/wallstreetbets/comments/143qg0w/what_stocks_are_good_plays_on_wildfires/)
+- [Its time for a bold prediction… 6-7-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis &lpar;bonus tesla daily&rpar;](https://www.reddit.com/r/wallstreetbets/comments/143pynm/its_time_for_a_bold_prediction_6723_spy_es/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
