@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ape gets MEGA GUH&#39;d during earnings](https://www.reddit.com/r/wallstreetbets/comments/143shnz/ape_gets_mega_guhd_during_earnings/)
-- [Uhh guys?](https://www.reddit.com/r/wallstreetbets/comments/143rchi/uhh_guys/)
-- [$AAPL to the moon](https://www.reddit.com/r/wallstreetbets/comments/143r9dx/aapl_to_the_moon/)
-- [What stocks are good plays on wildfires?](https://www.reddit.com/r/wallstreetbets/comments/143qg0w/what_stocks_are_good_plays_on_wildfires/)
-- [Its time for a bold prediction… 6-7-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis &lpar;bonus tesla daily&rpar;](https://www.reddit.com/r/wallstreetbets/comments/143pynm/its_time_for_a_bold_prediction_6723_spy_es/)
+- [TSLA - 6/9 250c - YOLO](https://www.reddit.com/r/wallstreetbets/comments/144mivi/tsla_69_250c_yolo/)
+- [CVNA more pain to come.](https://www.reddit.com/r/wallstreetbets/comments/144mhh6/cvna_more_pain_to_come/)
+- [Is this bull market in the room with us right now…? 6-8-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis &lpar;TSLA Update&rpar;](https://www.reddit.com/r/wallstreetbets/comments/144m7or/is_this_bull_market_in_the_room_with_us_right_now/)
+- [TSLA gains! $90K+ 📈📈](https://www.reddit.com/r/wallstreetbets/comments/144li53/tsla_gains_90k/)
+- [The power of the money printer in the palm of my hand](https://www.reddit.com/r/wallstreetbets/comments/144lh1d/the_power_of_the_money_printer_in_the_palm_of_my/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
