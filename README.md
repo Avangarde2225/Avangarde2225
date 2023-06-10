@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TSLA - 6/9 250c - YOLO](https://www.reddit.com/r/wallstreetbets/comments/144mivi/tsla_69_250c_yolo/)
-- [CVNA more pain to come.](https://www.reddit.com/r/wallstreetbets/comments/144mhh6/cvna_more_pain_to_come/)
-- [Is this bull market in the room with us right now…? 6-8-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis &lpar;TSLA Update&rpar;](https://www.reddit.com/r/wallstreetbets/comments/144m7or/is_this_bull_market_in_the_room_with_us_right_now/)
-- [TSLA gains! $90K+ 📈📈](https://www.reddit.com/r/wallstreetbets/comments/144li53/tsla_gains_90k/)
-- [The power of the money printer in the palm of my hand](https://www.reddit.com/r/wallstreetbets/comments/144lh1d/the_power_of_the_money_printer_in_the_palm_of_my/)
+- [Thanks WSB!](https://www.reddit.com/r/wallstreetbets/comments/145izmu/thanks_wsb/)
+- [x52x has entered the Hall of Legends](https://www.reddit.com/r/wallstreetbets/comments/145i9ka/x52x_has_entered_the_hall_of_legends/)
+- [Losses are imaginary, memes are forever $MVIS](https://www.reddit.com/r/wallstreetbets/comments/145hu7j/losses_are_imaginary_memes_are_forever_mvis/)
+- [$160k gain. Road to 1 mil. Thank you daddy elon and su bae. Quite literally balls deep in calls. Fuck having cash reserves.](https://www.reddit.com/r/wallstreetbets/comments/145g5z4/160k_gain_road_to_1_mil_thank_you_daddy_elon_and/)
+- [Tsla calls 8k-&gt;65k overnight. Started the month with just $400. 1600% return in 3weeks. Before this I was a broke 21 yr old college student](https://www.reddit.com/r/wallstreetbets/comments/145frnx/tsla_calls_8k65k_overnight_started_the_month_with/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
