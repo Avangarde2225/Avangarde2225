@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks WSB!](https://www.reddit.com/r/wallstreetbets/comments/145izmu/thanks_wsb/)
-- [x52x has entered the Hall of Legends](https://www.reddit.com/r/wallstreetbets/comments/145i9ka/x52x_has_entered_the_hall_of_legends/)
-- [Losses are imaginary, memes are forever $MVIS](https://www.reddit.com/r/wallstreetbets/comments/145hu7j/losses_are_imaginary_memes_are_forever_mvis/)
-- [$160k gain. Road to 1 mil. Thank you daddy elon and su bae. Quite literally balls deep in calls. Fuck having cash reserves.](https://www.reddit.com/r/wallstreetbets/comments/145g5z4/160k_gain_road_to_1_mil_thank_you_daddy_elon_and/)
-- [Tsla calls 8k-&gt;65k overnight. Started the month with just $400. 1600% return in 3weeks. Before this I was a broke 21 yr old college student](https://www.reddit.com/r/wallstreetbets/comments/145frnx/tsla_calls_8k65k_overnight_started_the_month_with/)
+- [Me watching tech moon](https://www.reddit.com/r/wallstreetbets/comments/146c1bn/me_watching_tech_moon/)
+- [SP500 is at Extreme Greet level right now](https://www.reddit.com/r/wallstreetbets/comments/146a2t6/sp500_is_at_extreme_greet_level_right_now/)
+- [the last chairbender going after $coin &amp; $bnb](https://www.reddit.com/r/wallstreetbets/comments/1469wvt/the_last_chairbender_going_after_coin_bnb/)
+- [Suggest a penny stock to invest](https://www.reddit.com/r/wallstreetbets/comments/14689se/suggest_a_penny_stock_to_invest/)
+- [How to trade like a professional from Jim Cramer.](https://www.reddit.com/r/wallstreetbets/comments/14681qu/how_to_trade_like_a_professional_from_jim_cramer/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
