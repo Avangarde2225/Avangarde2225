@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me watching tech moon](https://www.reddit.com/r/wallstreetbets/comments/146c1bn/me_watching_tech_moon/)
-- [SP500 is at Extreme Greet level right now](https://www.reddit.com/r/wallstreetbets/comments/146a2t6/sp500_is_at_extreme_greet_level_right_now/)
-- [the last chairbender going after $coin &amp; $bnb](https://www.reddit.com/r/wallstreetbets/comments/1469wvt/the_last_chairbender_going_after_coin_bnb/)
-- [Suggest a penny stock to invest](https://www.reddit.com/r/wallstreetbets/comments/14689se/suggest_a_penny_stock_to_invest/)
-- [How to trade like a professional from Jim Cramer.](https://www.reddit.com/r/wallstreetbets/comments/14681qu/how_to_trade_like_a_professional_from_jim_cramer/)
+- [My friend definitely belongs on this sub. “Just invest in daily interest compounding and be a millionaire bro”](https://www.reddit.com/r/wallstreetbets/comments/1479ger/my_friend_definitely_belongs_on_this_sub_just/)
+- [Hacker drains Russian special services wallets, transfers funds to Ukraine](https://www.reddit.com/r/wallstreetbets/comments/1478wsy/hacker_drains_russian_special_services_wallets/)
+- [Could easily become a fitness sub following this simple workout](https://www.reddit.com/r/wallstreetbets/comments/1477rpd/could_easily_become_a_fitness_sub_following_this/)
+- [Everyone vs Bears](https://www.reddit.com/r/wallstreetbets/comments/1477p30/everyone_vs_bears/)
+- [My wife will understand right?](https://www.reddit.com/r/wallstreetbets/comments/1477hsd/my_wife_will_understand_right/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
