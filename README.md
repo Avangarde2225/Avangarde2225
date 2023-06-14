@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Daddy Pow is looking forward to a hike tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1481377/daddy_pow_is_looking_forward_to_a_hike_tomorrow/)
-- [Spotted a wild one in Montreal today](https://www.reddit.com/r/wallstreetbets/comments/1480n39/spotted_a_wild_one_in_montreal_today/)
-- [&quot;An average user of r/wallstreetbets&quot; according to BlueWillow AI](https://www.reddit.com/r/wallstreetbets/comments/14804ap/an_average_user_of_rwallstreetbets_according_to/)
-- [Only one key matters on FOMC](https://www.reddit.com/r/wallstreetbets/comments/147zbcl/only_one_key_matters_on_fomc/)
-- [No worries. Just borrow some more to pay for it.](https://www.reddit.com/r/wallstreetbets/comments/147zady/no_worries_just_borrow_some_more_to_pay_for_it/)
+- [UPDATE: TSM $110 Call on 6/30 - $27k gain at open - $64k gain in a week](https://www.reddit.com/r/wallstreetbets/comments/148shyl/update_tsm_110_call_on_630_27k_gain_at_open_64k/)
+- [Post CPI and Pre-FOMC Day… 6-13-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/148qba9/post_cpi_and_prefomc_day_61323_spy_es_futures_qqq/)
+- [Tell me your signaling to your friends without signaling to your friends](https://www.reddit.com/r/wallstreetbets/comments/148p8yc/tell_me_your_signaling_to_your_friends_without/)
+- [SP 500 Fear and Greed Index Hits New Highs, Investors Greet the News with Feet-First Investing](https://www.reddit.com/r/wallstreetbets/comments/148p74s/sp_500_fear_and_greed_index_hits_new_highs/)
+- [What Are Your Moves Tomorrow, June 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/148o6b6/what_are_your_moves_tomorrow_june_14_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
