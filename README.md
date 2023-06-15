@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [UPDATE: TSM $110 Call on 6/30 - $27k gain at open - $64k gain in a week](https://www.reddit.com/r/wallstreetbets/comments/148shyl/update_tsm_110_call_on_630_27k_gain_at_open_64k/)
-- [Post CPI and Pre-FOMC Day… 6-13-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/148qba9/post_cpi_and_prefomc_day_61323_spy_es_futures_qqq/)
-- [Tell me your signaling to your friends without signaling to your friends](https://www.reddit.com/r/wallstreetbets/comments/148p8yc/tell_me_your_signaling_to_your_friends_without/)
-- [SP 500 Fear and Greed Index Hits New Highs, Investors Greet the News with Feet-First Investing](https://www.reddit.com/r/wallstreetbets/comments/148p74s/sp_500_fear_and_greed_index_hits_new_highs/)
-- [What Are Your Moves Tomorrow, June 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/148o6b6/what_are_your_moves_tomorrow_june_14_2023/)
+- [I made $410k today 🥵](https://www.reddit.com/r/wallstreetbets/comments/149ips5/i_made_410k_today/)
+- [The Hawkish Pause… 6-14-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/149ikk0/the_hawkish_pause_61423_spy_es_futures_qqq_and/)
+- [Institutions clearly knew about this pause before the public did.](https://www.reddit.com/r/wallstreetbets/comments/149i9ni/institutions_clearly_knew_about_this_pause_before/)
+- [Another $1.2m gain](https://www.reddit.com/r/wallstreetbets/comments/149hrxo/another_12m_gain/)
+- [What Are Your Moves Tomorrow, June 15, 2023](https://www.reddit.com/r/wallstreetbets/comments/149hiod/what_are_your_moves_tomorrow_june_15_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
