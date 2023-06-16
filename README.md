@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I made $410k today 🥵](https://www.reddit.com/r/wallstreetbets/comments/149ips5/i_made_410k_today/)
-- [The Hawkish Pause… 6-14-23 SPY/ ES Futures, QQQ and VIX Daily Market Analysis](https://www.reddit.com/r/wallstreetbets/comments/149ikk0/the_hawkish_pause_61423_spy_es_futures_qqq_and/)
-- [Institutions clearly knew about this pause before the public did.](https://www.reddit.com/r/wallstreetbets/comments/149i9ni/institutions_clearly_knew_about_this_pause_before/)
-- [Another $1.2m gain](https://www.reddit.com/r/wallstreetbets/comments/149hrxo/another_12m_gain/)
-- [What Are Your Moves Tomorrow, June 15, 2023](https://www.reddit.com/r/wallstreetbets/comments/149hiod/what_are_your_moves_tomorrow_june_15_2023/)
+- [$15000](https://www.reddit.com/r/wallstreetbets/comments/14afw4c/15000/)
+- [Staying dark: 5,000 subreddits refuse to come back despite passing deadline](https://www.reddit.com/r/wallstreetbets/comments/14afi3u/staying_dark_5000_subreddits_refuse_to_come_back/)
+- [Goldman Sachs under federal investigation over role in SVB collapse, reports](https://www.reddit.com/r/wallstreetbets/comments/14af7m4/goldman_sachs_under_federal_investigation_over/)
+- [Virgin Galactic &lpar;SPCE&rpar; Announces Start of Commercial Spaceflight Service](https://www.reddit.com/r/wallstreetbets/comments/14acsjj/virgin_galactic_spce_announces_start_of/)
+- [2023 EOY. Hell, why not?](https://www.reddit.com/r/wallstreetbets/comments/14achlh/2023_eoy_hell_why_not/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
