@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A story told in three post titles. I love wsb](https://www.reddit.com/r/wallstreetbets/comments/14bbtvp/a_story_told_in_three_post_titles_i_love_wsb/)
-- [We didn’t even get to fill those gaps today](https://www.reddit.com/r/wallstreetbets/comments/14bb8rw/we_didnt_even_get_to_fill_those_gaps_today/)
-- [My life’s over, here’s my final advice](https://www.reddit.com/r/wallstreetbets/comments/14b963y/my_lifes_over_heres_my_final_advice/)
-- [&quot;Chill out on crypto, bro&quot;](https://www.reddit.com/r/wallstreetbets/comments/14b8o0g/chill_out_on_crypto_bro/)
-- [He must be part of Wall Street Bets](https://www.reddit.com/r/wallstreetbets/comments/14b7uwg/he_must_be_part_of_wall_street_bets/)
+- [Update](https://www.reddit.com/r/wallstreetbets/comments/14c5bgo/update/)
+- [Warren Buffett Sub Lurk Confirmed - Wendy&#39;s Stock Leads Over McDonald&#39;s This Year](https://www.reddit.com/r/wallstreetbets/comments/14c4cri/warren_buffett_sub_lurk_confirmed_wendys_stock/)
+- [6-19-23 Short Week Index Moves - EEs OnlyCrayons](https://www.reddit.com/r/wallstreetbets/comments/14c4cnx/61923_short_week_index_moves_ees_onlycrayons/)
+- [Only 7 Stocks Are Powering the S&amp;P 500 &lpar;The Myth of the Diversified Portfolio&rpar;:](https://www.reddit.com/r/wallstreetbets/comments/14c10pq/only_7_stocks_are_powering_the_sp_500_the_myth_of/)
+- [U.S. National Debt Surpasses $32 Trillion for the First Time](https://www.reddit.com/r/wallstreetbets/comments/14byfh8/us_national_debt_surpasses_32_trillion_for_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
