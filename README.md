@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Update](https://www.reddit.com/r/wallstreetbets/comments/14c5bgo/update/)
-- [Warren Buffett Sub Lurk Confirmed - Wendy&#39;s Stock Leads Over McDonald&#39;s This Year](https://www.reddit.com/r/wallstreetbets/comments/14c4cri/warren_buffett_sub_lurk_confirmed_wendys_stock/)
-- [6-19-23 Short Week Index Moves - EEs OnlyCrayons](https://www.reddit.com/r/wallstreetbets/comments/14c4cnx/61923_short_week_index_moves_ees_onlycrayons/)
-- [Only 7 Stocks Are Powering the S&amp;P 500 &lpar;The Myth of the Diversified Portfolio&rpar;:](https://www.reddit.com/r/wallstreetbets/comments/14c10pq/only_7_stocks_are_powering_the_sp_500_the_myth_of/)
-- [U.S. National Debt Surpasses $32 Trillion for the First Time](https://www.reddit.com/r/wallstreetbets/comments/14byfh8/us_national_debt_surpasses_32_trillion_for_the/)
+- [Spotted a Rivian out in the wild today. Very Bullish.](https://www.reddit.com/r/wallstreetbets/comments/14cxyof/spotted_a_rivian_out_in_the_wild_today_very/)
+- [NCAA panel recommends marijuana be dropped from banned substance list](https://www.reddit.com/r/wallstreetbets/comments/14cx7vq/ncaa_panel_recommends_marijuana_be_dropped_from/)
+- [$FGEN 2x-3x imminent](https://www.reddit.com/r/wallstreetbets/comments/14cwp2p/fgen_2x3x_imminent/)
+- [Looking for YOLO advice](https://www.reddit.com/r/wallstreetbets/comments/14cvw39/looking_for_yolo_advice/)
+- [It&#39;s been fun boys](https://www.reddit.com/r/wallstreetbets/comments/14cvmtm/its_been_fun_boys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
