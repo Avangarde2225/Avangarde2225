@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Spotted a Rivian out in the wild today. Very Bullish.](https://www.reddit.com/r/wallstreetbets/comments/14cxyof/spotted_a_rivian_out_in_the_wild_today_very/)
-- [NCAA panel recommends marijuana be dropped from banned substance list](https://www.reddit.com/r/wallstreetbets/comments/14cx7vq/ncaa_panel_recommends_marijuana_be_dropped_from/)
-- [$FGEN 2x-3x imminent](https://www.reddit.com/r/wallstreetbets/comments/14cwp2p/fgen_2x3x_imminent/)
-- [Looking for YOLO advice](https://www.reddit.com/r/wallstreetbets/comments/14cvw39/looking_for_yolo_advice/)
-- [It&#39;s been fun boys](https://www.reddit.com/r/wallstreetbets/comments/14cvmtm/its_been_fun_boys/)
+- [Tell me why I shouldn’t buy leap calls on Target](https://www.reddit.com/r/wallstreetbets/comments/14dtqhr/tell_me_why_i_shouldnt_buy_leap_calls_on_target/)
+- [AI could add $4.4 trillion to the global economy per year &lpar;per McKinsey&rpar;](https://www.reddit.com/r/wallstreetbets/comments/14dsscm/ai_could_add_44_trillion_to_the_global_economy/)
+- [Bullish on $TGT](https://www.reddit.com/r/wallstreetbets/comments/14dpxxl/bullish_on_tgt/)
+- [What Are Your Moves Tomorrow, June 20, 2023](https://www.reddit.com/r/wallstreetbets/comments/14doz0o/what_are_your_moves_tomorrow_june_20_2023/)
+- [What Recession? The Wall St China Trap and your money](https://www.reddit.com/r/wallstreetbets/comments/14dohtz/what_recession_the_wall_st_china_trap_and_your/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
