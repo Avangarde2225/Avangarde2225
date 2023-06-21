@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tell me why I shouldn’t buy leap calls on Target](https://www.reddit.com/r/wallstreetbets/comments/14dtqhr/tell_me_why_i_shouldnt_buy_leap_calls_on_target/)
-- [AI could add $4.4 trillion to the global economy per year &lpar;per McKinsey&rpar;](https://www.reddit.com/r/wallstreetbets/comments/14dsscm/ai_could_add_44_trillion_to_the_global_economy/)
-- [Bullish on $TGT](https://www.reddit.com/r/wallstreetbets/comments/14dpxxl/bullish_on_tgt/)
-- [What Are Your Moves Tomorrow, June 20, 2023](https://www.reddit.com/r/wallstreetbets/comments/14doz0o/what_are_your_moves_tomorrow_june_20_2023/)
-- [What Recession? The Wall St China Trap and your money](https://www.reddit.com/r/wallstreetbets/comments/14dohtz/what_recession_the_wall_st_china_trap_and_your/)
+- [&quot;The market can self-regulate!&quot; Market: Submarine = 1 $LOGI controller, 2 bathtubs from $HD, duct tape from $MMM &amp; 1 walkie-talkie from $DG](https://www.reddit.com/r/wallstreetbets/comments/14epx27/the_market_can_selfregulate_market_submarine_1/)
+- [Anyone else loading up on calls? I’m going to buy a Lamborghini aventador](https://www.reddit.com/r/wallstreetbets/comments/14epssj/anyone_else_loading_up_on_calls_im_going_to_buy_a/)
+- [Buying Tesla has paid off. What to do, what to do…..submitted again so you kids would know what my stock was. Sorry.](https://www.reddit.com/r/wallstreetbets/comments/14eoruz/buying_tesla_has_paid_off_what_to_do_what_to/)
+- [Shorts Have Already Lost $120 Billion This Year](https://www.reddit.com/r/wallstreetbets/comments/14eorhz/shorts_have_already_lost_120_billion_this_year/)
+- [The first two stocks I ever bought on RH &lpar;$NVDA &amp; $AMD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/14eo3eq/the_first_two_stocks_i_ever_bought_on_rh_nvda_amd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
