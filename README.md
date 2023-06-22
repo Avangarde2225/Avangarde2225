@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;The market can self-regulate!&quot; Market: Submarine = 1 $LOGI controller, 2 bathtubs from $HD, duct tape from $MMM &amp; 1 walkie-talkie from $DG](https://www.reddit.com/r/wallstreetbets/comments/14epx27/the_market_can_selfregulate_market_submarine_1/)
-- [Anyone else loading up on calls? I’m going to buy a Lamborghini aventador](https://www.reddit.com/r/wallstreetbets/comments/14epssj/anyone_else_loading_up_on_calls_im_going_to_buy_a/)
-- [Buying Tesla has paid off. What to do, what to do…..submitted again so you kids would know what my stock was. Sorry.](https://www.reddit.com/r/wallstreetbets/comments/14eoruz/buying_tesla_has_paid_off_what_to_do_what_to/)
-- [Shorts Have Already Lost $120 Billion This Year](https://www.reddit.com/r/wallstreetbets/comments/14eorhz/shorts_have_already_lost_120_billion_this_year/)
-- [The first two stocks I ever bought on RH &lpar;$NVDA &amp; $AMD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/14eo3eq/the_first_two_stocks_i_ever_bought_on_rh_nvda_amd/)
+- [I would like to submit the phrase Cocaine Bear Market for consideration](https://www.reddit.com/r/wallstreetbets/comments/14fmnnl/i_would_like_to_submit_the_phrase_cocaine_bear/)
+- [Welp](https://www.reddit.com/r/wallstreetbets/comments/14flthj/welp/)
+- [First week with options 📉](https://www.reddit.com/r/wallstreetbets/comments/14fkptz/first_week_with_options/)
+- [AMD three day trading results: My only regret is not shorting it harder and longer](https://www.reddit.com/r/wallstreetbets/comments/14fjw4l/amd_three_day_trading_results_my_only_regret_is/)
+- [Update on the last post…what is next revival Thursday Or funeral Thursday?](https://www.reddit.com/r/wallstreetbets/comments/14fjqlw/update_on_the_last_postwhat_is_next_revival/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
