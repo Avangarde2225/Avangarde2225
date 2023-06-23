@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I would like to submit the phrase Cocaine Bear Market for consideration](https://www.reddit.com/r/wallstreetbets/comments/14fmnnl/i_would_like_to_submit_the_phrase_cocaine_bear/)
-- [Welp](https://www.reddit.com/r/wallstreetbets/comments/14flthj/welp/)
-- [First week with options 📉](https://www.reddit.com/r/wallstreetbets/comments/14fkptz/first_week_with_options/)
-- [AMD three day trading results: My only regret is not shorting it harder and longer](https://www.reddit.com/r/wallstreetbets/comments/14fjw4l/amd_three_day_trading_results_my_only_regret_is/)
-- [Update on the last post…what is next revival Thursday Or funeral Thursday?](https://www.reddit.com/r/wallstreetbets/comments/14fjqlw/update_on_the_last_postwhat_is_next_revival/)
+- [WTF is this expression?](https://www.reddit.com/r/wallstreetbets/comments/14gix9y/wtf_is_this_expression/)
+- [At what point is it time to short Berkshire](https://www.reddit.com/r/wallstreetbets/comments/14gie35/at_what_point_is_it_time_to_short_berkshire/)
+- [Calls on Virgin Galactic](https://www.reddit.com/r/wallstreetbets/comments/14ghzuw/calls_on_virgin_galactic/)
+- [TSLA ranks 2nd to last on JD Power quality survey](https://www.reddit.com/r/wallstreetbets/comments/14ghwhg/tsla_ranks_2nd_to_last_on_jd_power_quality_survey/)
+- [3M Settles ‘Forever Chemicals’ Litigation for Up to $12.5 Billion](https://www.reddit.com/r/wallstreetbets/comments/14ghe55/3m_settles_forever_chemicals_litigation_for_up_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
