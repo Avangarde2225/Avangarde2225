@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WTF is this expression?](https://www.reddit.com/r/wallstreetbets/comments/14gix9y/wtf_is_this_expression/)
-- [At what point is it time to short Berkshire](https://www.reddit.com/r/wallstreetbets/comments/14gie35/at_what_point_is_it_time_to_short_berkshire/)
-- [Calls on Virgin Galactic](https://www.reddit.com/r/wallstreetbets/comments/14ghzuw/calls_on_virgin_galactic/)
-- [TSLA ranks 2nd to last on JD Power quality survey](https://www.reddit.com/r/wallstreetbets/comments/14ghwhg/tsla_ranks_2nd_to_last_on_jd_power_quality_survey/)
-- [3M Settles ‘Forever Chemicals’ Litigation for Up to $12.5 Billion](https://www.reddit.com/r/wallstreetbets/comments/14ghe55/3m_settles_forever_chemicals_litigation_for_up_to/)
+- [Choose Your Fighter 🚨](https://www.reddit.com/r/wallstreetbets/comments/14hdunm/choose_your_fighter/)
+- [Virgin &quot;apes&quot; on Reddit: doing research and discussing stocks. An actual Chad ape:](https://www.reddit.com/r/wallstreetbets/comments/14hcxou/virgin_apes_on_reddit_doing_research_and/)
+- [After buying calls at the top](https://www.reddit.com/r/wallstreetbets/comments/14hci38/after_buying_calls_at_the_top/)
+- [Live footage of the Zuckerberg Musk fight](https://www.reddit.com/r/wallstreetbets/comments/14hcccg/live_footage_of_the_zuckerberg_musk_fight/)
+- [Calls on controller stick drift](https://www.reddit.com/r/wallstreetbets/comments/14hau86/calls_on_controller_stick_drift/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
