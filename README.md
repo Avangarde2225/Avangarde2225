@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [elon vs mark cage match](https://www.reddit.com/r/wallstreetbets/comments/14j1wos/elon_vs_mark_cage_match/)
-- [VisualMod decided to post twice in one post](https://www.reddit.com/r/wallstreetbets/comments/14j0zfq/visualmod_decided_to_post_twice_in_one_post/)
-- [Elon’s mommy won’t let him fight](https://www.reddit.com/r/wallstreetbets/comments/14j0dvb/elons_mommy_wont_let_him_fight/)
-- [“Markets does whatever it wants” isn’t it all just robots and algorithms anyway?](https://www.reddit.com/r/wallstreetbets/comments/14iw6qc/markets_does_whatever_it_wants_isnt_it_all_just/)
-- [What could go wrong?](https://www.reddit.com/r/wallstreetbets/comments/14iw30h/what_could_go_wrong/)
+- [PIF increases stake in LCID. With 65% of the float locked up this looks like a setup for a catastrophic squeeze.](https://www.reddit.com/r/wallstreetbets/comments/14jy60b/pif_increases_stake_in_lcid_with_65_of_the_float/)
+- [My wife&#39;s boyfriend isn&#39;t the only one packing](https://www.reddit.com/r/wallstreetbets/comments/14jxxmw/my_wifes_boyfriend_isnt_the_only_one_packing/)
+- [Trading options like](https://www.reddit.com/r/wallstreetbets/comments/14jxena/trading_options_like/)
+- [Buy a Singapore Condo NOW!! Pt.2](https://www.reddit.com/r/wallstreetbets/comments/14jxcmc/buy_a_singapore_condo_now_pt2/)
+- [Some DD on how to deal with scammers](https://www.reddit.com/r/wallstreetbets/comments/14jx7le/some_dd_on_how_to_deal_with_scammers/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
