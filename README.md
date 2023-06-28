@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PIF increases stake in LCID. With 65% of the float locked up this looks like a setup for a catastrophic squeeze.](https://www.reddit.com/r/wallstreetbets/comments/14jy60b/pif_increases_stake_in_lcid_with_65_of_the_float/)
-- [My wife&#39;s boyfriend isn&#39;t the only one packing](https://www.reddit.com/r/wallstreetbets/comments/14jxxmw/my_wifes_boyfriend_isnt_the_only_one_packing/)
-- [Trading options like](https://www.reddit.com/r/wallstreetbets/comments/14jxena/trading_options_like/)
-- [Buy a Singapore Condo NOW!! Pt.2](https://www.reddit.com/r/wallstreetbets/comments/14jxcmc/buy_a_singapore_condo_now_pt2/)
-- [Some DD on how to deal with scammers](https://www.reddit.com/r/wallstreetbets/comments/14jx7le/some_dd_on_how_to_deal_with_scammers/)
+- [New York 🦈](https://www.reddit.com/r/wallstreetbets/comments/14ktu1g/new_york/)
+- [So with new&lpar;s&rpar; of potential restrictions of AI chip being sold to China, could we revisit 2022 chip sell off?](https://www.reddit.com/r/wallstreetbets/comments/14ktfln/so_with_news_of_potential_restrictions_of_ai_chip/)
+- [Anyone know why NVDA is down 3% AH? Is it because i bought 5k 30/6 420C thinking it’d keep going up? FML , life is so unfair](https://www.reddit.com/r/wallstreetbets/comments/14kte8o/anyone_know_why_nvda_is_down_3_ah_is_it_because_i/)
+- [Should I risk it all for the tendies?](https://www.reddit.com/r/wallstreetbets/comments/14kt9tj/should_i_risk_it_all_for_the_tendies/)
+- [What awaits at the end of the retail business cycle](https://www.reddit.com/r/wallstreetbets/comments/14ks8yn/what_awaits_at_the_end_of_the_retail_business/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
