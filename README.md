@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [New York 🦈](https://www.reddit.com/r/wallstreetbets/comments/14ktu1g/new_york/)
-- [So with new&lpar;s&rpar; of potential restrictions of AI chip being sold to China, could we revisit 2022 chip sell off?](https://www.reddit.com/r/wallstreetbets/comments/14ktfln/so_with_news_of_potential_restrictions_of_ai_chip/)
-- [Anyone know why NVDA is down 3% AH? Is it because i bought 5k 30/6 420C thinking it’d keep going up? FML , life is so unfair](https://www.reddit.com/r/wallstreetbets/comments/14kte8o/anyone_know_why_nvda_is_down_3_ah_is_it_because_i/)
-- [Should I risk it all for the tendies?](https://www.reddit.com/r/wallstreetbets/comments/14kt9tj/should_i_risk_it_all_for_the_tendies/)
-- [What awaits at the end of the retail business cycle](https://www.reddit.com/r/wallstreetbets/comments/14ks8yn/what_awaits_at_the_end_of_the_retail_business/)
+- [My life is over. What have I done](https://www.reddit.com/r/wallstreetbets/comments/14lp0qj/my_life_is_over_what_have_i_done/)
+- [Teamsters: Nationwide UPS Strike is Imminent](https://www.reddit.com/r/wallstreetbets/comments/14lngwo/teamsters_nationwide_ups_strike_is_imminent/)
+- [Musk vs Zuckerberg. The fight of the Century !!!](https://www.reddit.com/r/wallstreetbets/comments/14llabn/musk_vs_zuckerberg_the_fight_of_the_century/)
+- [HES ALIVE!! CVNA 🌕 $30+ this week](https://www.reddit.com/r/wallstreetbets/comments/14lkq6j/hes_alive_cvna_30_this_week/)
+- [Federal Reserve says 23 biggest banks weathered severe recession scenario in stress test](https://www.reddit.com/r/wallstreetbets/comments/14lkcky/federal_reserve_says_23_biggest_banks_weathered/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
