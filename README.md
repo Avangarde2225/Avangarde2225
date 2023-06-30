@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My life is over. What have I done](https://www.reddit.com/r/wallstreetbets/comments/14lp0qj/my_life_is_over_what_have_i_done/)
-- [Teamsters: Nationwide UPS Strike is Imminent](https://www.reddit.com/r/wallstreetbets/comments/14lngwo/teamsters_nationwide_ups_strike_is_imminent/)
-- [Musk vs Zuckerberg. The fight of the Century !!!](https://www.reddit.com/r/wallstreetbets/comments/14llabn/musk_vs_zuckerberg_the_fight_of_the_century/)
-- [HES ALIVE!! CVNA 🌕 $30+ this week](https://www.reddit.com/r/wallstreetbets/comments/14lkq6j/hes_alive_cvna_30_this_week/)
-- [Federal Reserve says 23 biggest banks weathered severe recession scenario in stress test](https://www.reddit.com/r/wallstreetbets/comments/14lkcky/federal_reserve_says_23_biggest_banks_weathered/)
+- [Sriracha shortage sees sauce prices spike to over $70 a bottle](https://www.reddit.com/r/wallstreetbets/comments/14mkba5/sriracha_shortage_sees_sauce_prices_spike_to_over/)
+- [Money. Printer. Go. BRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR](https://www.reddit.com/r/wallstreetbets/comments/14mk63s/money_printer_go/)
+- [I didnt hear no bell &lpar; randy marsh voice &rpar;](https://www.reddit.com/r/wallstreetbets/comments/14mjpse/i_didnt_hear_no_bell_randy_marsh_voice/)
+- [This is seriously hurting my self-esteem](https://www.reddit.com/r/wallstreetbets/comments/14mjd1f/this_is_seriously_hurting_my_selfesteem/)
+- [After years of practice in the stock market, I’ve decided to apply my “wisdom” and “invest” in other channels. WCGW?](https://www.reddit.com/r/wallstreetbets/comments/14mhyv1/after_years_of_practice_in_the_stock_market_ive/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
