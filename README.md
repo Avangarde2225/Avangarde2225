@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sriracha shortage sees sauce prices spike to over $70 a bottle](https://www.reddit.com/r/wallstreetbets/comments/14mkba5/sriracha_shortage_sees_sauce_prices_spike_to_over/)
-- [Money. Printer. Go. BRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR](https://www.reddit.com/r/wallstreetbets/comments/14mk63s/money_printer_go/)
-- [I didnt hear no bell &lpar; randy marsh voice &rpar;](https://www.reddit.com/r/wallstreetbets/comments/14mjpse/i_didnt_hear_no_bell_randy_marsh_voice/)
-- [This is seriously hurting my self-esteem](https://www.reddit.com/r/wallstreetbets/comments/14mjd1f/this_is_seriously_hurting_my_selfesteem/)
-- [After years of practice in the stock market, I’ve decided to apply my “wisdom” and “invest” in other channels. WCGW?](https://www.reddit.com/r/wallstreetbets/comments/14mhyv1/after_years_of_practice_in_the_stock_market_ive/)
+- [NEED HELP not my account](https://www.reddit.com/r/wallstreetbets/comments/14nfo61/need_help_not_my_account/)
+- [Apple is now as valuable as Tesla, Berkshire Hathaway, Meta and Netflix - combined after hitting $3 trillion market value](https://www.reddit.com/r/wallstreetbets/comments/14nf6af/apple_is_now_as_valuable_as_tesla_berkshire/)
+- [Tim Apple $AAPL 40k YOLO🍎🍏](https://www.reddit.com/r/wallstreetbets/comments/14nbryb/tim_apple_aapl_40k_yolo/)
+- [Small Progress.](https://www.reddit.com/r/wallstreetbets/comments/14nbnjm/small_progress/)
+- [Loss 800 Apple 7/7 put contracts](https://www.reddit.com/r/wallstreetbets/comments/14nbbuu/loss_800_apple_77_put_contracts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
