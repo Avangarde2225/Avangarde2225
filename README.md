@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [After bagholding $TSLA for almost two years, finally out of the red.](https://www.reddit.com/r/wallstreetbets/comments/14pytdb/after_bagholding_tsla_for_almost_two_years/)
-- [America Should Move Their Factories To Mexico!](https://www.reddit.com/r/wallstreetbets/comments/14pwm5p/america_should_move_their_factories_to_mexico/)
-- [209 you say? sure, why not](https://www.reddit.com/r/wallstreetbets/comments/14puvpc/209_you_say_sure_why_not/)
-- [Group Barbeque Thread for July 4th, 2023](https://www.reddit.com/r/wallstreetbets/comments/14pt4eq/group_barbeque_thread_for_july_4th_2023/)
-- [☠️🩸AstraZeneca &lpar;NASDAQ: AZN&rpar; Phase 3 Drug for Lung Cancer Killed People. Here is why the Stock WILL Bleed to Death This Week 🩸☠️.](https://www.reddit.com/r/wallstreetbets/comments/14psecq/astrazeneca_nasdaq_azn_phase_3_drug_for_lung/)
+- [I think the motley fool needs some new thumbnails](https://www.reddit.com/r/wallstreetbets/comments/14qvax5/i_think_the_motley_fool_needs_some_new_thumbnails/)
+- [God bless America. Reminder to take your profits.](https://www.reddit.com/r/wallstreetbets/comments/14qskum/god_bless_america_reminder_to_take_your_profits/)
+- [What Are Your Moves Tomorrow, July 05, 2023](https://www.reddit.com/r/wallstreetbets/comments/14qpb7x/what_are_your_moves_tomorrow_july_05_2023/)
+- [What keeps you at night](https://www.reddit.com/r/wallstreetbets/comments/14qpasg/what_keeps_you_at_night/)
+- [Real estate top is in](https://www.reddit.com/r/wallstreetbets/comments/14qoxgf/real_estate_top_is_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
