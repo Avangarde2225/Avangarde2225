@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I think the motley fool needs some new thumbnails](https://www.reddit.com/r/wallstreetbets/comments/14qvax5/i_think_the_motley_fool_needs_some_new_thumbnails/)
-- [God bless America. Reminder to take your profits.](https://www.reddit.com/r/wallstreetbets/comments/14qskum/god_bless_america_reminder_to_take_your_profits/)
-- [What Are Your Moves Tomorrow, July 05, 2023](https://www.reddit.com/r/wallstreetbets/comments/14qpb7x/what_are_your_moves_tomorrow_july_05_2023/)
-- [What keeps you at night](https://www.reddit.com/r/wallstreetbets/comments/14qpasg/what_keeps_you_at_night/)
-- [Real estate top is in](https://www.reddit.com/r/wallstreetbets/comments/14qoxgf/real_estate_top_is_in/)
+- [The prophecy was foretold](https://www.reddit.com/r/wallstreetbets/comments/14rru0w/the_prophecy_was_foretold/)
+- [$TSLA earnings📈📈](https://www.reddit.com/r/wallstreetbets/comments/14rr1ve/tsla_earnings/)
+- [Started trading spreads, and options in general a month ago, I think I’m off to a pretty great start.](https://www.reddit.com/r/wallstreetbets/comments/14rqec5/started_trading_spreads_and_options_in_general_a/)
+- [100k of call options on some potato chip factory and a reverse viagra company. Degenerate plays are #poweredbypltr gains](https://www.reddit.com/r/wallstreetbets/comments/14rqcl4/100k_of_call_options_on_some_potato_chip_factory/)
+- [every earnings call](https://www.reddit.com/r/wallstreetbets/comments/14rodnx/every_earnings_call/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
