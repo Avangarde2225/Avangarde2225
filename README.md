@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The prophecy was foretold](https://www.reddit.com/r/wallstreetbets/comments/14rru0w/the_prophecy_was_foretold/)
-- [$TSLA earnings📈📈](https://www.reddit.com/r/wallstreetbets/comments/14rr1ve/tsla_earnings/)
-- [Started trading spreads, and options in general a month ago, I think I’m off to a pretty great start.](https://www.reddit.com/r/wallstreetbets/comments/14rqec5/started_trading_spreads_and_options_in_general_a/)
-- [100k of call options on some potato chip factory and a reverse viagra company. Degenerate plays are #poweredbypltr gains](https://www.reddit.com/r/wallstreetbets/comments/14rqcl4/100k_of_call_options_on_some_potato_chip_factory/)
-- [every earnings call](https://www.reddit.com/r/wallstreetbets/comments/14rodnx/every_earnings_call/)
+- [The name of the company: Tesla Inc.](https://www.reddit.com/r/wallstreetbets/comments/14sobnz/the_name_of_the_company_tesla_inc/)
+- [A new challenger arrives](https://www.reddit.com/r/wallstreetbets/comments/14sncxr/a_new_challenger_arrives/)
+- [FDA grants full approval for Biogen Alzheimer’s drug that slows cognitive decline](https://www.reddit.com/r/wallstreetbets/comments/14sly5g/fda_grants_full_approval_for_biogen_alzheimers/)
+- [There’s a new EV Belle of the Ball](https://www.reddit.com/r/wallstreetbets/comments/14slc5c/theres_a_new_ev_belle_of_the_ball/)
+- [RIVN YOLO Price Point $40](https://www.reddit.com/r/wallstreetbets/comments/14sk7uh/rivn_yolo_price_point_40/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
