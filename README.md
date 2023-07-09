@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is financial advice](https://www.reddit.com/r/wallstreetbets/comments/14tkrjc/this_is_financial_advice/)
-- [What are you, some kinda money allergic pleb? YOLO, RIVN Calls](https://www.reddit.com/r/wallstreetbets/comments/14tjwhe/what_are_you_some_kinda_money_allergic_pleb_yolo/)
-- [INVERSE BULL STRATEGY = 132K](https://www.reddit.com/r/wallstreetbets/comments/14tj4s5/inverse_bull_strategy_132k/)
-- [Listen to Dr. Copper.](https://www.reddit.com/r/wallstreetbets/comments/14ti9nv/listen_to_dr_copper/)
-- [Most Anticipated Earnings Releases for the week beginning July 10th, 2023](https://www.reddit.com/r/wallstreetbets/comments/14ti2q5/most_anticipated_earnings_releases_for_the_week/)
+- [SPYRIM](https://www.reddit.com/r/wallstreetbets/comments/14ujvnj/spyrim/)
+- [$ATVI / $MSFT hearing outcome predictions?](https://www.reddit.com/r/wallstreetbets/comments/14uje87/atvi_msft_hearing_outcome_predictions/)
+- [RTX – we love big weapons and FCF](https://www.reddit.com/r/wallstreetbets/comments/14ugpdz/rtx_we_love_big_weapons_and_fcf/)
+- [How the heck does a boomer stock Sirius Radio make so much money?](https://www.reddit.com/r/wallstreetbets/comments/14ughe0/how_the_heck_does_a_boomer_stock_sirius_radio/)
+- [Two days before it bottomed: Rivian Stock Is Reaching New Lows. Sell It Anyway, Say Analysts](https://www.reddit.com/r/wallstreetbets/comments/14ucp5t/two_days_before_it_bottomed_rivian_stock_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
