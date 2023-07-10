@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPYRIM](https://www.reddit.com/r/wallstreetbets/comments/14ujvnj/spyrim/)
-- [$ATVI / $MSFT hearing outcome predictions?](https://www.reddit.com/r/wallstreetbets/comments/14uje87/atvi_msft_hearing_outcome_predictions/)
-- [RTX – we love big weapons and FCF](https://www.reddit.com/r/wallstreetbets/comments/14ugpdz/rtx_we_love_big_weapons_and_fcf/)
-- [How the heck does a boomer stock Sirius Radio make so much money?](https://www.reddit.com/r/wallstreetbets/comments/14ughe0/how_the_heck_does_a_boomer_stock_sirius_radio/)
-- [Two days before it bottomed: Rivian Stock Is Reaching New Lows. Sell It Anyway, Say Analysts](https://www.reddit.com/r/wallstreetbets/comments/14ucp5t/two_days_before_it_bottomed_rivian_stock_is/)
+- [JPow raising him right](https://www.reddit.com/r/wallstreetbets/comments/14veubk/jpow_raising_him_right/)
+- [Auto-finance delinquencies rise past Great Recession peak - what&#39;s the best way to profit off this tragedy? without being a bad boy Repo man](https://www.reddit.com/r/wallstreetbets/comments/14vef89/autofinance_delinquencies_rise_past_great/)
+- [My broker gifted this bottles to everyone that had +250k on their account... Little do they know that I lost almost all of it](https://www.reddit.com/r/wallstreetbets/comments/14vcxkf/my_broker_gifted_this_bottles_to_everyone_that/)
+- [I spent $72k &lpar;my entire savings&rpar; on SPY 380 puts expiring 9/29](https://www.reddit.com/r/wallstreetbets/comments/14vcnmv/i_spent_72k_my_entire_savings_on_spy_380_puts/)
+- [BB Will it move?](https://www.reddit.com/r/wallstreetbets/comments/14vc702/bb_will_it_move/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
