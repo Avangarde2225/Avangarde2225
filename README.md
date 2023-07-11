@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [JPow raising him right](https://www.reddit.com/r/wallstreetbets/comments/14veubk/jpow_raising_him_right/)
-- [Auto-finance delinquencies rise past Great Recession peak - what&#39;s the best way to profit off this tragedy? without being a bad boy Repo man](https://www.reddit.com/r/wallstreetbets/comments/14vef89/autofinance_delinquencies_rise_past_great/)
-- [My broker gifted this bottles to everyone that had +250k on their account... Little do they know that I lost almost all of it](https://www.reddit.com/r/wallstreetbets/comments/14vcxkf/my_broker_gifted_this_bottles_to_everyone_that/)
-- [I spent $72k &lpar;my entire savings&rpar; on SPY 380 puts expiring 9/29](https://www.reddit.com/r/wallstreetbets/comments/14vcnmv/i_spent_72k_my_entire_savings_on_spy_380_puts/)
-- [BB Will it move?](https://www.reddit.com/r/wallstreetbets/comments/14vc702/bb_will_it_move/)
+- [If you bought the S&amp;P on the day this 1979 article was published, you would have made 17.9% average annual return over the next 21 years.](https://www.reddit.com/r/wallstreetbets/comments/14w8vcz/if_you_bought_the_sp_on_the_day_this_1979_article/)
+- [Meta thrilled as Threads just obliterates ChatGPT&#39;s record in five days](https://www.reddit.com/r/wallstreetbets/comments/14w8t5k/meta_thrilled_as_threads_just_obliterates/)
+- [WSB nutcracker sending regards from a small shop in a small town in CA…](https://www.reddit.com/r/wallstreetbets/comments/14w864h/wsb_nutcracker_sending_regards_from_a_small_shop/)
+- [Wave of auto-loan defaults are symptoms of a much larger issue.](https://www.reddit.com/r/wallstreetbets/comments/14w85d3/wave_of_autoloan_defaults_are_symptoms_of_a_much/)
+- [Rally totally justified. Only up from here.](https://www.reddit.com/r/wallstreetbets/comments/14w8228/rally_totally_justified_only_up_from_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
