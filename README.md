@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If you bought the S&amp;P on the day this 1979 article was published, you would have made 17.9% average annual return over the next 21 years.](https://www.reddit.com/r/wallstreetbets/comments/14w8vcz/if_you_bought_the_sp_on_the_day_this_1979_article/)
-- [Meta thrilled as Threads just obliterates ChatGPT&#39;s record in five days](https://www.reddit.com/r/wallstreetbets/comments/14w8t5k/meta_thrilled_as_threads_just_obliterates/)
-- [WSB nutcracker sending regards from a small shop in a small town in CA…](https://www.reddit.com/r/wallstreetbets/comments/14w864h/wsb_nutcracker_sending_regards_from_a_small_shop/)
-- [Wave of auto-loan defaults are symptoms of a much larger issue.](https://www.reddit.com/r/wallstreetbets/comments/14w85d3/wave_of_autoloan_defaults_are_symptoms_of_a_much/)
-- [Rally totally justified. Only up from here.](https://www.reddit.com/r/wallstreetbets/comments/14w8228/rally_totally_justified_only_up_from_here/)
+- [There is absolutely no possible way $ABNB isn’t being manipulated right now](https://www.reddit.com/r/wallstreetbets/comments/14x6sav/there_is_absolutely_no_possible_way_abnb_isnt/)
+- [Saudi Public Investment Fund reports $16 billion in 2022 losses as LIV Golf merger moves forward](https://www.reddit.com/r/wallstreetbets/comments/14x5pq6/saudi_public_investment_fund_reports_16_billion/)
+- [Been watching this chart for years. Bullish indicator confirmed. Tomorrow we moon.](https://www.reddit.com/r/wallstreetbets/comments/14x5lak/been_watching_this_chart_for_years_bullish/)
+- [BANBET! Zuck moneyline over Elon](https://www.reddit.com/r/wallstreetbets/comments/14x4zhe/banbet_zuck_moneyline_over_elon/)
+- [An interview with a bear](https://www.reddit.com/r/wallstreetbets/comments/14x4b52/an_interview_with_a_bear/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
