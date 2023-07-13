@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [There is absolutely no possible way $ABNB isn’t being manipulated right now](https://www.reddit.com/r/wallstreetbets/comments/14x6sav/there_is_absolutely_no_possible_way_abnb_isnt/)
-- [Saudi Public Investment Fund reports $16 billion in 2022 losses as LIV Golf merger moves forward](https://www.reddit.com/r/wallstreetbets/comments/14x5pq6/saudi_public_investment_fund_reports_16_billion/)
-- [Been watching this chart for years. Bullish indicator confirmed. Tomorrow we moon.](https://www.reddit.com/r/wallstreetbets/comments/14x5lak/been_watching_this_chart_for_years_bullish/)
-- [BANBET! Zuck moneyline over Elon](https://www.reddit.com/r/wallstreetbets/comments/14x4zhe/banbet_zuck_moneyline_over_elon/)
-- [An interview with a bear](https://www.reddit.com/r/wallstreetbets/comments/14x4b52/an_interview_with_a_bear/)
+- [AI! This changes everything! NASDAQ 30,000.](https://www.reddit.com/r/wallstreetbets/comments/14y4pyu/ai_this_changes_everything_nasdaq_30000/)
+- [Twitter and Elon Musk face $736 million lawsuit for allegedly refusing severance for fired employees](https://www.reddit.com/r/wallstreetbets/comments/14y34wt/twitter_and_elon_musk_face_736_million_lawsuit/)
+- [Update on 10k in PYPL](https://www.reddit.com/r/wallstreetbets/comments/14y16pd/update_on_10k_in_pypl/)
+- [‘YOLO’ spenders are propping up the economy —but they’re about to run out of cash](https://www.reddit.com/r/wallstreetbets/comments/14y07a7/yolo_spenders_are_propping_up_the_economy_but/)
+- [This sub has become a cesspool of filth and lunacy](https://www.reddit.com/r/wallstreetbets/comments/14xzm2p/this_sub_has_become_a_cesspool_of_filth_and_lunacy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
