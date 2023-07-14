@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AI! This changes everything! NASDAQ 30,000.](https://www.reddit.com/r/wallstreetbets/comments/14y4pyu/ai_this_changes_everything_nasdaq_30000/)
-- [Twitter and Elon Musk face $736 million lawsuit for allegedly refusing severance for fired employees](https://www.reddit.com/r/wallstreetbets/comments/14y34wt/twitter_and_elon_musk_face_736_million_lawsuit/)
-- [Update on 10k in PYPL](https://www.reddit.com/r/wallstreetbets/comments/14y16pd/update_on_10k_in_pypl/)
-- [‘YOLO’ spenders are propping up the economy —but they’re about to run out of cash](https://www.reddit.com/r/wallstreetbets/comments/14y07a7/yolo_spenders_are_propping_up_the_economy_but/)
-- [This sub has become a cesspool of filth and lunacy](https://www.reddit.com/r/wallstreetbets/comments/14xzm2p/this_sub_has_become_a_cesspool_of_filth_and_lunacy/)
+- [Potential Reddit IPO investors doing their DD.](https://www.reddit.com/r/wallstreetbets/comments/14yzyld/potential_reddit_ipo_investors_doing_their_dd/)
+- [To be clear, I honestly am bearish on this market and have been for a while. I guess we all really should inverse ourselves.](https://www.reddit.com/r/wallstreetbets/comments/14yzp0o/to_be_clear_i_honestly_am_bearish_on_this_market/)
+- [Bear Market](https://www.reddit.com/r/wallstreetbets/comments/14yziz5/bear_market/)
+- [I have a blown up taxable account with $1.85 left. What 0dte can I buy tomorrow to turn it around?](https://www.reddit.com/r/wallstreetbets/comments/14yyijt/i_have_a_blown_up_taxable_account_with_185_left/)
+- [You know this is gonna happen....](https://www.reddit.com/r/wallstreetbets/comments/14yxeja/you_know_this_is_gonna_happen/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
