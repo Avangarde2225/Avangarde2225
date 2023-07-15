@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Potential Reddit IPO investors doing their DD.](https://www.reddit.com/r/wallstreetbets/comments/14yzyld/potential_reddit_ipo_investors_doing_their_dd/)
-- [To be clear, I honestly am bearish on this market and have been for a while. I guess we all really should inverse ourselves.](https://www.reddit.com/r/wallstreetbets/comments/14yzp0o/to_be_clear_i_honestly_am_bearish_on_this_market/)
-- [Bear Market](https://www.reddit.com/r/wallstreetbets/comments/14yziz5/bear_market/)
-- [I have a blown up taxable account with $1.85 left. What 0dte can I buy tomorrow to turn it around?](https://www.reddit.com/r/wallstreetbets/comments/14yyijt/i_have_a_blown_up_taxable_account_with_185_left/)
-- [You know this is gonna happen....](https://www.reddit.com/r/wallstreetbets/comments/14yxeja/you_know_this_is_gonna_happen/)
+- [Saw this and thought of you Nvidia bros, assume this was the DD? Wen beach party?](https://www.reddit.com/r/wallstreetbets/comments/14zwx11/saw_this_and_thought_of_you_nvidia_bros_assume/)
+- [Aww did someone try to unionize?](https://www.reddit.com/r/wallstreetbets/comments/14zwjtp/aww_did_someone_try_to_unionize/)
+- [All in $PYPL Update #1](https://www.reddit.com/r/wallstreetbets/comments/14zveqh/all_in_pypl_update_1/)
+- [Top confirmed](https://www.reddit.com/r/wallstreetbets/comments/14zu6va/top_confirmed/)
+- [19 year old lost all my savings.](https://www.reddit.com/r/wallstreetbets/comments/14zr3jj/19_year_old_lost_all_my_savings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
