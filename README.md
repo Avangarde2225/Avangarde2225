@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Saw this and thought of you Nvidia bros, assume this was the DD? Wen beach party?](https://www.reddit.com/r/wallstreetbets/comments/14zwx11/saw_this_and_thought_of_you_nvidia_bros_assume/)
-- [Aww did someone try to unionize?](https://www.reddit.com/r/wallstreetbets/comments/14zwjtp/aww_did_someone_try_to_unionize/)
-- [All in $PYPL Update #1](https://www.reddit.com/r/wallstreetbets/comments/14zveqh/all_in_pypl_update_1/)
-- [Top confirmed](https://www.reddit.com/r/wallstreetbets/comments/14zu6va/top_confirmed/)
-- [19 year old lost all my savings.](https://www.reddit.com/r/wallstreetbets/comments/14zr3jj/19_year_old_lost_all_my_savings/)
+- [AI-related stocks drove virtually all of the S&amp;P 500 returns in 2023 - is AI hype just a bubble?](https://www.reddit.com/r/wallstreetbets/comments/150r4nl/airelated_stocks_drove_virtually_all_of_the_sp/)
+- [Last minute appeal to block $69 billion Microsoft-Activision deal is blocked](https://www.reddit.com/r/wallstreetbets/comments/150q20a/last_minute_appeal_to_block_69_billion/)
+- [My thesis areound $RIOT and $mara](https://www.reddit.com/r/wallstreetbets/comments/150pcgh/my_thesis_areound_riot_and_mara/)
+- [SAFE Banking has Confirmed Support of 9 Republican Senators to Overcome Filibuster](https://www.reddit.com/r/wallstreetbets/comments/150neq1/safe_banking_has_confirmed_support_of_9/)
+- [Based on a True Story](https://www.reddit.com/r/wallstreetbets/comments/150jt42/based_on_a_true_story/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
