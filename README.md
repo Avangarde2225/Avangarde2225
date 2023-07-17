@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AI-related stocks drove virtually all of the S&amp;P 500 returns in 2023 - is AI hype just a bubble?](https://www.reddit.com/r/wallstreetbets/comments/150r4nl/airelated_stocks_drove_virtually_all_of_the_sp/)
-- [Last minute appeal to block $69 billion Microsoft-Activision deal is blocked](https://www.reddit.com/r/wallstreetbets/comments/150q20a/last_minute_appeal_to_block_69_billion/)
-- [My thesis areound $RIOT and $mara](https://www.reddit.com/r/wallstreetbets/comments/150pcgh/my_thesis_areound_riot_and_mara/)
-- [SAFE Banking has Confirmed Support of 9 Republican Senators to Overcome Filibuster](https://www.reddit.com/r/wallstreetbets/comments/150neq1/safe_banking_has_confirmed_support_of_9/)
-- [Based on a True Story](https://www.reddit.com/r/wallstreetbets/comments/150jt42/based_on_a_true_story/)
+- [Wayfair DD -Aggregation from Discord and Elsewhere](https://www.reddit.com/r/wallstreetbets/comments/151l4jm/wayfair_dd_aggregation_from_discord_and_elsewhere/)
+- [$NVDA Gains - took half off of the table during the recent run off](https://www.reddit.com/r/wallstreetbets/comments/151kuoe/nvda_gains_took_half_off_of_the_table_during_the/)
+- [I’ve been trading since 2016. 7 years in the making and these are my results 🥲](https://www.reddit.com/r/wallstreetbets/comments/151kf3e/ive_been_trading_since_2016_7_years_in_the_making/)
+- [What Are Your Moves Tomorrow, July 17, 2023](https://www.reddit.com/r/wallstreetbets/comments/151fx28/what_are_your_moves_tomorrow_july_17_2023/)
+- [All in on calls, forever. 🐻 r fuck](https://www.reddit.com/r/wallstreetbets/comments/151d7te/all_in_on_calls_forever_r_fuck/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
