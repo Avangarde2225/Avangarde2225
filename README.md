@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wayfair DD -Aggregation from Discord and Elsewhere](https://www.reddit.com/r/wallstreetbets/comments/151l4jm/wayfair_dd_aggregation_from_discord_and_elsewhere/)
-- [$NVDA Gains - took half off of the table during the recent run off](https://www.reddit.com/r/wallstreetbets/comments/151kuoe/nvda_gains_took_half_off_of_the_table_during_the/)
-- [I’ve been trading since 2016. 7 years in the making and these are my results 🥲](https://www.reddit.com/r/wallstreetbets/comments/151kf3e/ive_been_trading_since_2016_7_years_in_the_making/)
-- [What Are Your Moves Tomorrow, July 17, 2023](https://www.reddit.com/r/wallstreetbets/comments/151fx28/what_are_your_moves_tomorrow_july_17_2023/)
-- [All in on calls, forever. 🐻 r fuck](https://www.reddit.com/r/wallstreetbets/comments/151d7te/all_in_on_calls_forever_r_fuck/)
+- [Cashed out pre-earnings for 3x gain. Position: 10x $TSLA 300 Strike price LEAPS](https://www.reddit.com/r/wallstreetbets/comments/152hbyx/cashed_out_preearnings_for_3x_gain_position_10x/)
+- [Fuck the haters, NEGG is my $250,000 play within the month! YOU WILL REMEMBER WHEN YOU CALLED ME REGARDED!!!](https://www.reddit.com/r/wallstreetbets/comments/152fo6a/fuck_the_haters_negg_is_my_250000_play_within_the/)
+- [$40k PLTR CALLS YOLO](https://www.reddit.com/r/wallstreetbets/comments/152dwyz/40k_pltr_calls_yolo/)
+- [TSLA is overvalued and should go down so I bought calls](https://www.reddit.com/r/wallstreetbets/comments/152dpfe/tsla_is_overvalued_and_should_go_down_so_i_bought/)
+- [I am the Bull Flag](https://www.reddit.com/r/wallstreetbets/comments/152d5bu/i_am_the_bull_flag/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
