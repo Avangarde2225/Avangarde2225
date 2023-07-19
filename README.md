@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cashed out pre-earnings for 3x gain. Position: 10x $TSLA 300 Strike price LEAPS](https://www.reddit.com/r/wallstreetbets/comments/152hbyx/cashed_out_preearnings_for_3x_gain_position_10x/)
-- [Fuck the haters, NEGG is my $250,000 play within the month! YOU WILL REMEMBER WHEN YOU CALLED ME REGARDED!!!](https://www.reddit.com/r/wallstreetbets/comments/152fo6a/fuck_the_haters_negg_is_my_250000_play_within_the/)
-- [$40k PLTR CALLS YOLO](https://www.reddit.com/r/wallstreetbets/comments/152dwyz/40k_pltr_calls_yolo/)
-- [TSLA is overvalued and should go down so I bought calls](https://www.reddit.com/r/wallstreetbets/comments/152dpfe/tsla_is_overvalued_and_should_go_down_so_i_bought/)
-- [I am the Bull Flag](https://www.reddit.com/r/wallstreetbets/comments/152d5bu/i_am_the_bull_flag/)
+- [New robinhood features allows you to see how big of a loser you are 😭](https://www.reddit.com/r/wallstreetbets/comments/153fgnc/new_robinhood_features_allows_you_to_see_how_big/)
+- [I thought y&#39;all were broke???](https://www.reddit.com/r/wallstreetbets/comments/153dods/i_thought_yall_were_broke/)
+- [$CVNA Moving Up Results 2 Weeks to Tomorrow Morning](https://www.reddit.com/r/wallstreetbets/comments/153dbtn/cvna_moving_up_results_2_weeks_to_tomorrow_morning/)
+- [$CVNA YOLO ~54K FD | Earnings Moved Up From Aug 3rd | Thoughts](https://www.reddit.com/r/wallstreetbets/comments/153c7l2/cvna_yolo_54k_fd_earnings_moved_up_from_aug_3rd/)
+- [CVNA moving earnings up to 7/19](https://www.reddit.com/r/wallstreetbets/comments/153appo/cvna_moving_earnings_up_to_719/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
