@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [New robinhood features allows you to see how big of a loser you are 😭](https://www.reddit.com/r/wallstreetbets/comments/153fgnc/new_robinhood_features_allows_you_to_see_how_big/)
-- [I thought y&#39;all were broke???](https://www.reddit.com/r/wallstreetbets/comments/153dods/i_thought_yall_were_broke/)
-- [$CVNA Moving Up Results 2 Weeks to Tomorrow Morning](https://www.reddit.com/r/wallstreetbets/comments/153dbtn/cvna_moving_up_results_2_weeks_to_tomorrow_morning/)
-- [$CVNA YOLO ~54K FD | Earnings Moved Up From Aug 3rd | Thoughts](https://www.reddit.com/r/wallstreetbets/comments/153c7l2/cvna_yolo_54k_fd_earnings_moved_up_from_aug_3rd/)
-- [CVNA moving earnings up to 7/19](https://www.reddit.com/r/wallstreetbets/comments/153appo/cvna_moving_earnings_up_to_719/)
+- [How the tesla earnings call went today](https://www.reddit.com/r/wallstreetbets/comments/154a7s4/how_the_tesla_earnings_call_went_today/)
+- [📉](https://www.reddit.com/r/wallstreetbets/comments/1549e2f/_/)
+- [Carvana W](https://www.reddit.com/r/wallstreetbets/comments/1547xlv/carvana_w/)
+- [Netflix You Guys Are Fucking Idiots](https://www.reddit.com/r/wallstreetbets/comments/1547c2l/netflix_you_guys_are_fucking_idiots/)
+- [See ya later boys...](https://www.reddit.com/r/wallstreetbets/comments/1547a5q/see_ya_later_boys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
