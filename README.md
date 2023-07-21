@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How the tesla earnings call went today](https://www.reddit.com/r/wallstreetbets/comments/154a7s4/how_the_tesla_earnings_call_went_today/)
-- [📉](https://www.reddit.com/r/wallstreetbets/comments/1549e2f/_/)
-- [Carvana W](https://www.reddit.com/r/wallstreetbets/comments/1547xlv/carvana_w/)
-- [Netflix You Guys Are Fucking Idiots](https://www.reddit.com/r/wallstreetbets/comments/1547c2l/netflix_you_guys_are_fucking_idiots/)
-- [See ya later boys...](https://www.reddit.com/r/wallstreetbets/comments/1547a5q/see_ya_later_boys/)
+- [To all the TSLA veterans: any hope for a bounce?](https://www.reddit.com/r/wallstreetbets/comments/1554wx1/to_all_the_tsla_veterans_any_hope_for_a_bounce/)
+- [Satellite radio rocks](https://www.reddit.com/r/wallstreetbets/comments/15541j6/satellite_radio_rocks/)
+- [My life since joining this sub](https://www.reddit.com/r/wallstreetbets/comments/1553v7y/my_life_since_joining_this_sub/)
+- [Tsla Yolo](https://www.reddit.com/r/wallstreetbets/comments/1553oly/tsla_yolo/)
+- [TSLA Calls vanquished my last hope. Had $1k 24 hours ago](https://www.reddit.com/r/wallstreetbets/comments/1552yul/tsla_calls_vanquished_my_last_hope_had_1k_24/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
