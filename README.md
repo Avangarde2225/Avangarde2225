@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Prediction: $META will become a $1T Company after Earnings next week.](https://www.reddit.com/r/wallstreetbets/comments/1562xds/prediction_meta_will_become_a_1t_company_after/)
-- [What would stop me from making more on call options if I had won that billion dollar lottery?](https://www.reddit.com/r/wallstreetbets/comments/1561azp/what_would_stop_me_from_making_more_on_call/)
-- [New here, and to options trading in general. Rate my setup.](https://www.reddit.com/r/wallstreetbets/comments/155zx3v/new_here_and_to_options_trading_in_general_rate/)
-- [THE COURTS HAVE BLOCKED AMC FROM CONCERTING $APE INTO $AMC SHARES. A MOVE WHICH WOULD HAVE MASSIVELY DILUTED $AMC....LETS GO BOYS 💹](https://www.reddit.com/r/wallstreetbets/comments/155zisu/the_courts_have_blocked_amc_from_concerting_ape/)
-- [Many need to hear this ahead of Earnings/FOMC week...](https://www.reddit.com/r/wallstreetbets/comments/155yrlr/many_need_to_hear_this_ahead_of_earningsfomc_week/)
+- [Come on fellow traders, show us your loss porn🥰](https://www.reddit.com/r/wallstreetbets/comments/156zt48/come_on_fellow_traders_show_us_your_loss_porn/)
+- [This time is not different](https://www.reddit.com/r/wallstreetbets/comments/156vnml/this_time_is_not_different/)
+- [Ford receives $9.2 Billion loan to build three EV factories. Bullish on Ford?](https://www.reddit.com/r/wallstreetbets/comments/156uzua/ford_receives_92_billion_loan_to_build_three_ev/)
+- [Huge comeback from last summer](https://www.reddit.com/r/wallstreetbets/comments/156uvxb/huge_comeback_from_last_summer/)
+- [DDOG Analysis](https://www.reddit.com/r/wallstreetbets/comments/156s63q/ddog_analysis/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
