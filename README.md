@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Come on fellow traders, show us your loss porn🥰](https://www.reddit.com/r/wallstreetbets/comments/156zt48/come_on_fellow_traders_show_us_your_loss_porn/)
-- [This time is not different](https://www.reddit.com/r/wallstreetbets/comments/156vnml/this_time_is_not_different/)
-- [Ford receives $9.2 Billion loan to build three EV factories. Bullish on Ford?](https://www.reddit.com/r/wallstreetbets/comments/156uzua/ford_receives_92_billion_loan_to_build_three_ev/)
-- [Huge comeback from last summer](https://www.reddit.com/r/wallstreetbets/comments/156uvxb/huge_comeback_from_last_summer/)
-- [DDOG Analysis](https://www.reddit.com/r/wallstreetbets/comments/156s63q/ddog_analysis/)
+- [“Day trading and pornography” I feel attacked](https://www.reddit.com/r/wallstreetbets/comments/157urnx/day_trading_and_pornography_i_feel_attacked/)
+- [AI Trading Bots: Why Aren&#39;t They Taking Over Day Trading? and What Will Happen When They Do?](https://www.reddit.com/r/wallstreetbets/comments/157t68o/ai_trading_bots_why_arent_they_taking_over_day/)
+- [Serious question, how did you get the funding to start trading stocks?](https://www.reddit.com/r/wallstreetbets/comments/157t0vr/serious_question_how_did_you_get_the_funding_to/)
+- [CVX, Chevron spills the beans early, gonna kill earnings this friday, leaks sneak peek](https://www.reddit.com/r/wallstreetbets/comments/157s3mj/cvx_chevron_spills_the_beans_early_gonna_kill/)
+- [After losing $50k I made it back🙌🏼 thanks Nvidia](https://www.reddit.com/r/wallstreetbets/comments/157p5xa/after_losing_50k_i_made_it_back_thanks_nvidia/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
