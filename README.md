@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [“Day trading and pornography” I feel attacked](https://www.reddit.com/r/wallstreetbets/comments/157urnx/day_trading_and_pornography_i_feel_attacked/)
-- [AI Trading Bots: Why Aren&#39;t They Taking Over Day Trading? and What Will Happen When They Do?](https://www.reddit.com/r/wallstreetbets/comments/157t68o/ai_trading_bots_why_arent_they_taking_over_day/)
-- [Serious question, how did you get the funding to start trading stocks?](https://www.reddit.com/r/wallstreetbets/comments/157t0vr/serious_question_how_did_you_get_the_funding_to/)
-- [CVX, Chevron spills the beans early, gonna kill earnings this friday, leaks sneak peek](https://www.reddit.com/r/wallstreetbets/comments/157s3mj/cvx_chevron_spills_the_beans_early_gonna_kill/)
-- [After losing $50k I made it back🙌🏼 thanks Nvidia](https://www.reddit.com/r/wallstreetbets/comments/157p5xa/after_losing_50k_i_made_it_back_thanks_nvidia/)
+- [Puts on TSLA](https://www.reddit.com/r/wallstreetbets/comments/158qiii/puts_on_tsla/)
+- [Tesla stock downgraded by UBS](https://www.reddit.com/r/wallstreetbets/comments/158q6lk/tesla_stock_downgraded_by_ubs/)
+- [Bears waiting for big tech earnings](https://www.reddit.com/r/wallstreetbets/comments/158q1rv/bears_waiting_for_big_tech_earnings/)
+- [$11K Loss on Tesla..](https://www.reddit.com/r/wallstreetbets/comments/158pk8p/11k_loss_on_tesla/)
+- [I’m going to beg Jerome Powell to hike interest rates another 300bps after this!](https://www.reddit.com/r/wallstreetbets/comments/158o7ui/im_going_to_beg_jerome_powell_to_hike_interest/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
