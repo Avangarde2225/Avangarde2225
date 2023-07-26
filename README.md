@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on TSLA](https://www.reddit.com/r/wallstreetbets/comments/158qiii/puts_on_tsla/)
-- [Tesla stock downgraded by UBS](https://www.reddit.com/r/wallstreetbets/comments/158q6lk/tesla_stock_downgraded_by_ubs/)
-- [Bears waiting for big tech earnings](https://www.reddit.com/r/wallstreetbets/comments/158q1rv/bears_waiting_for_big_tech_earnings/)
-- [$11K Loss on Tesla..](https://www.reddit.com/r/wallstreetbets/comments/158pk8p/11k_loss_on_tesla/)
-- [I’m going to beg Jerome Powell to hike interest rates another 300bps after this!](https://www.reddit.com/r/wallstreetbets/comments/158o7ui/im_going_to_beg_jerome_powell_to_hike_interest/)
+- [Maybe made the luckiest buy of my life. 30k in a day &lpar;$RTX&rpar;](https://www.reddit.com/r/wallstreetbets/comments/159o8u7/maybe_made_the_luckiest_buy_of_my_life_30k_in_a/)
+- [JPOW WILL SAVE US](https://www.reddit.com/r/wallstreetbets/comments/159nkdk/jpow_will_save_us/)
+- [Spotify suffers $6 billion bloodbath amid price hikes](https://www.reddit.com/r/wallstreetbets/comments/159nf42/spotify_suffers_6_billion_bloodbath_amid_price/)
+- [Brace yourselves, Rate hike is coming !](https://www.reddit.com/r/wallstreetbets/comments/159l0pm/brace_yourselves_rate_hike_is_coming/)
+- [$DISH update, news is out, stock 🚀🚀🚀 &lpar;Original OP&rpar;](https://www.reddit.com/r/wallstreetbets/comments/159kcpv/dish_update_news_is_out_stock_original_op/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
