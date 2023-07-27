@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Maybe made the luckiest buy of my life. 30k in a day &lpar;$RTX&rpar;](https://www.reddit.com/r/wallstreetbets/comments/159o8u7/maybe_made_the_luckiest_buy_of_my_life_30k_in_a/)
-- [JPOW WILL SAVE US](https://www.reddit.com/r/wallstreetbets/comments/159nkdk/jpow_will_save_us/)
-- [Spotify suffers $6 billion bloodbath amid price hikes](https://www.reddit.com/r/wallstreetbets/comments/159nf42/spotify_suffers_6_billion_bloodbath_amid_price/)
-- [Brace yourselves, Rate hike is coming !](https://www.reddit.com/r/wallstreetbets/comments/159l0pm/brace_yourselves_rate_hike_is_coming/)
-- [$DISH update, news is out, stock 🚀🚀🚀 &lpar;Original OP&rpar;](https://www.reddit.com/r/wallstreetbets/comments/159kcpv/dish_update_news_is_out_stock_original_op/)
+- [Choo chooooo Regards!](https://www.reddit.com/r/wallstreetbets/comments/15al60o/choo_chooooo_regards/)
+- [Tech earnings this week](https://www.reddit.com/r/wallstreetbets/comments/15ajyhv/tech_earnings_this_week/)
+- [Finally broke even after 13 months of HELL](https://www.reddit.com/r/wallstreetbets/comments/15ajqpw/finally_broke_even_after_13_months_of_hell/)
+- [Zuck&#39;s &quot;Year of Efficiency&quot;](https://www.reddit.com/r/wallstreetbets/comments/15aj6fo/zucks_year_of_efficiency/)
+- [Some people here should not be trading at all or ever again.](https://www.reddit.com/r/wallstreetbets/comments/15ai5d2/some_people_here_should_not_be_trading_at_all_or/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
