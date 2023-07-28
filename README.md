@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Choo chooooo Regards!](https://www.reddit.com/r/wallstreetbets/comments/15al60o/choo_chooooo_regards/)
-- [Tech earnings this week](https://www.reddit.com/r/wallstreetbets/comments/15ajyhv/tech_earnings_this_week/)
-- [Finally broke even after 13 months of HELL](https://www.reddit.com/r/wallstreetbets/comments/15ajqpw/finally_broke_even_after_13_months_of_hell/)
-- [Zuck&#39;s &quot;Year of Efficiency&quot;](https://www.reddit.com/r/wallstreetbets/comments/15aj6fo/zucks_year_of_efficiency/)
-- [Some people here should not be trading at all or ever again.](https://www.reddit.com/r/wallstreetbets/comments/15ai5d2/some_people_here_should_not_be_trading_at_all_or/)
+- [Most Anticipated Earnings Releases for the week beginning July 31st, 2023](https://www.reddit.com/r/wallstreetbets/comments/15bhvvh/most_anticipated_earnings_releases_for_the_week/)
+- [Fuck Cathie Wood, fuck j pow, fuck pelosi, fuck biden, fuck the illuminati and fuck the $dish guy](https://www.reddit.com/r/wallstreetbets/comments/15bglh1/fuck_cathie_wood_fuck_j_pow_fuck_pelosi_fuck/)
+- [Tupper-where?](https://www.reddit.com/r/wallstreetbets/comments/15bgbg4/tupperwhere/)
+- [Really I couldn’t have lost 3 more cents today…](https://www.reddit.com/r/wallstreetbets/comments/15bfhmu/really_i_couldnt_have_lost_3_more_cents_today/)
+- [Do you guys know the GREEKS and Why the DISH GUY FAILED &lpar;Don&#39;t trade options close to expiry&rpar;](https://www.reddit.com/r/wallstreetbets/comments/15be5a2/do_you_guys_know_the_greeks_and_why_the_dish_guy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
