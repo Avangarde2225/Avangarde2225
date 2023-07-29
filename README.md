@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Most Anticipated Earnings Releases for the week beginning July 31st, 2023](https://www.reddit.com/r/wallstreetbets/comments/15bhvvh/most_anticipated_earnings_releases_for_the_week/)
-- [Fuck Cathie Wood, fuck j pow, fuck pelosi, fuck biden, fuck the illuminati and fuck the $dish guy](https://www.reddit.com/r/wallstreetbets/comments/15bglh1/fuck_cathie_wood_fuck_j_pow_fuck_pelosi_fuck/)
-- [Tupper-where?](https://www.reddit.com/r/wallstreetbets/comments/15bgbg4/tupperwhere/)
-- [Really I couldn’t have lost 3 more cents today…](https://www.reddit.com/r/wallstreetbets/comments/15bfhmu/really_i_couldnt_have_lost_3_more_cents_today/)
-- [Do you guys know the GREEKS and Why the DISH GUY FAILED &lpar;Don&#39;t trade options close to expiry&rpar;](https://www.reddit.com/r/wallstreetbets/comments/15be5a2/do_you_guys_know_the_greeks_and_why_the_dish_guy/)
+- [What if I took out 7 loans but each loan amount follows the Fibonacci sequence in thousands &lpar;1-1-2-3-5-8-13&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/15ccsyi/what_if_i_took_out_7_loans_but_each_loan_amount/)
+- [stock trading experience](https://www.reddit.com/r/wallstreetbets/comments/15cci2d/stock_trading_experience/)
+- [My YOLO story continues](https://www.reddit.com/r/wallstreetbets/comments/15cccu5/my_yolo_story_continues/)
+- [Account progression today](https://www.reddit.com/r/wallstreetbets/comments/15cauhn/account_progression_today/)
+- [0DTE lotto trades gone wrong. Not sure how I’m going to recover from this.](https://www.reddit.com/r/wallstreetbets/comments/15ca8zp/0dte_lotto_trades_gone_wrong_not_sure_how_im/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
