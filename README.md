@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What if I took out 7 loans but each loan amount follows the Fibonacci sequence in thousands &lpar;1-1-2-3-5-8-13&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/15ccsyi/what_if_i_took_out_7_loans_but_each_loan_amount/)
-- [stock trading experience](https://www.reddit.com/r/wallstreetbets/comments/15cci2d/stock_trading_experience/)
-- [My YOLO story continues](https://www.reddit.com/r/wallstreetbets/comments/15cccu5/my_yolo_story_continues/)
-- [Account progression today](https://www.reddit.com/r/wallstreetbets/comments/15cauhn/account_progression_today/)
-- [0DTE lotto trades gone wrong. Not sure how I’m going to recover from this.](https://www.reddit.com/r/wallstreetbets/comments/15ca8zp/0dte_lotto_trades_gone_wrong_not_sure_how_im/)
+- [Inflation won&#39;t get to 2% in many years because the FDIC will continue to bailout banks to prevent bank failures](https://www.reddit.com/r/wallstreetbets/comments/15d6cbb/inflation_wont_get_to_2_in_many_years_because_the/)
+- [Floating Trains and LK-99](https://www.reddit.com/r/wallstreetbets/comments/15d66mi/floating_trains_and_lk99/)
+- [Is this a glitch?](https://www.reddit.com/r/wallstreetbets/comments/15d61d9/is_this_a_glitch/)
+- [Wish me luck next week $ROKU 💎](https://www.reddit.com/r/wallstreetbets/comments/15d5u6p/wish_me_luck_next_week_roku/)
+- [What is the most you lost during one Day](https://www.reddit.com/r/wallstreetbets/comments/15d4ut2/what_is_the_most_you_lost_during_one_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
