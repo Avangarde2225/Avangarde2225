@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ACLS is the Balls](https://www.reddit.com/r/wallstreetbets/comments/15e0v7t/acls_is_the_balls/)
-- [AAA Earnings](https://www.reddit.com/r/wallstreetbets/comments/15dzpvn/aaa_earnings/)
-- [$AAPL 8.5k - 40k YOLO update](https://www.reddit.com/r/wallstreetbets/comments/15dxzi1/aapl_85k_40k_yolo_update/)
-- [This is not Apple, Nvidia, or Tesla its the US debt](https://www.reddit.com/r/wallstreetbets/comments/15dxamt/this_is_not_apple_nvidia_or_tesla_its_the_us_debt/)
-- [LK-99 - The Potential Revolutionary Room-Temperature Superconductor](https://www.reddit.com/r/wallstreetbets/comments/15dvw9i/lk99_the_potential_revolutionary_roomtemperature/)
+- [Thinking about going all in on $TLRY here to average down my cost basis from $20](https://www.reddit.com/r/wallstreetbets/comments/15ewd2g/thinking_about_going_all_in_on_tlry_here_to/)
+- [In your face Cathie Woods.](https://www.reddit.com/r/wallstreetbets/comments/15eu16r/in_your_face_cathie_woods/)
+- [Maybe it&#39;ll work next time...](https://www.reddit.com/r/wallstreetbets/comments/15esxyi/maybe_itll_work_next_time/)
+- [Treasury wants to borrow 1.85T during 2H of this yr. &lpar; Rrp stands at 1.82T &rpar;](https://www.reddit.com/r/wallstreetbets/comments/15escoz/treasury_wants_to_borrow_185t_during_2h_of_this/)
+- [I got these new coasters today!](https://www.reddit.com/r/wallstreetbets/comments/15es44p/i_got_these_new_coasters_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
