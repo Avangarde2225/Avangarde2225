@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thinking about going all in on $TLRY here to average down my cost basis from $20](https://www.reddit.com/r/wallstreetbets/comments/15ewd2g/thinking_about_going_all_in_on_tlry_here_to/)
-- [In your face Cathie Woods.](https://www.reddit.com/r/wallstreetbets/comments/15eu16r/in_your_face_cathie_woods/)
-- [Maybe it&#39;ll work next time...](https://www.reddit.com/r/wallstreetbets/comments/15esxyi/maybe_itll_work_next_time/)
-- [Treasury wants to borrow 1.85T during 2H of this yr. &lpar; Rrp stands at 1.82T &rpar;](https://www.reddit.com/r/wallstreetbets/comments/15escoz/treasury_wants_to_borrow_185t_during_2h_of_this/)
-- [I got these new coasters today!](https://www.reddit.com/r/wallstreetbets/comments/15es44p/i_got_these_new_coasters_today/)
+- [Invest in options](https://www.reddit.com/r/wallstreetbets/comments/15fqey9/invest_in_options/)
+- [No longer AAA 😳 Fitch downgrades US debt rating. Flight to safe assets.](https://www.reddit.com/r/wallstreetbets/comments/15fpwn9/no_longer_aaa_fitch_downgrades_us_debt_rating/)
+- [US Credit Rating Downgraded From AAA by Fitch](https://www.reddit.com/r/wallstreetbets/comments/15fpg32/us_credit_rating_downgraded_from_aaa_by_fitch/)
+- [It ain’t much but it’s honest work $AMD edition](https://www.reddit.com/r/wallstreetbets/comments/15foiow/it_aint_much_but_its_honest_work_amd_edition/)
+- [I actually did it &lpar;lost 10k. I make 21k/yr&rpar;](https://www.reddit.com/r/wallstreetbets/comments/15fo9v1/i_actually_did_it_lost_10k_i_make_21kyr/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
