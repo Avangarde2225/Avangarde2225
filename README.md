@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Invest in options](https://www.reddit.com/r/wallstreetbets/comments/15fqey9/invest_in_options/)
-- [No longer AAA 😳 Fitch downgrades US debt rating. Flight to safe assets.](https://www.reddit.com/r/wallstreetbets/comments/15fpwn9/no_longer_aaa_fitch_downgrades_us_debt_rating/)
-- [US Credit Rating Downgraded From AAA by Fitch](https://www.reddit.com/r/wallstreetbets/comments/15fpg32/us_credit_rating_downgraded_from_aaa_by_fitch/)
-- [It ain’t much but it’s honest work $AMD edition](https://www.reddit.com/r/wallstreetbets/comments/15foiow/it_aint_much_but_its_honest_work_amd_edition/)
-- [I actually did it &lpar;lost 10k. I make 21k/yr&rpar;](https://www.reddit.com/r/wallstreetbets/comments/15fo9v1/i_actually_did_it_lost_10k_i_make_21kyr/)
+- [Is this what you guys tell yourselves as you refund your trading account?](https://www.reddit.com/r/wallstreetbets/comments/15gob7a/is_this_what_you_guys_tell_yourselves_as_you/)
+- [SPY Puts 11k Gain Today](https://www.reddit.com/r/wallstreetbets/comments/15gmsyo/spy_puts_11k_gain_today/)
+- [Guys, rule number 1 of trading options. Don&#39;t yolo your life savings.](https://www.reddit.com/r/wallstreetbets/comments/15gl9ic/guys_rule_number_1_of_trading_options_dont_yolo/)
+- [uhhh PYPL bros?](https://www.reddit.com/r/wallstreetbets/comments/15gjuns/uhhh_pypl_bros/)
+- [Fitch You Fucking Idiots](https://www.reddit.com/r/wallstreetbets/comments/15gjrct/fitch_you_fucking_idiots/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
