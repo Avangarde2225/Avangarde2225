@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is this what you guys tell yourselves as you refund your trading account?](https://www.reddit.com/r/wallstreetbets/comments/15gob7a/is_this_what_you_guys_tell_yourselves_as_you/)
-- [SPY Puts 11k Gain Today](https://www.reddit.com/r/wallstreetbets/comments/15gmsyo/spy_puts_11k_gain_today/)
-- [Guys, rule number 1 of trading options. Don&#39;t yolo your life savings.](https://www.reddit.com/r/wallstreetbets/comments/15gl9ic/guys_rule_number_1_of_trading_options_dont_yolo/)
-- [uhhh PYPL bros?](https://www.reddit.com/r/wallstreetbets/comments/15gjuns/uhhh_pypl_bros/)
-- [Fitch You Fucking Idiots](https://www.reddit.com/r/wallstreetbets/comments/15gjrct/fitch_you_fucking_idiots/)
+- [-$100k today $PYPL](https://www.reddit.com/r/wallstreetbets/comments/15hiuvs/100k_today_pypl/)
+- [AAPL Earnings 📉📉📉](https://www.reddit.com/r/wallstreetbets/comments/15hha9j/aapl_earnings/)
+- [Need help! Do I sell and be done with it? I hate the stock market and want to go home.](https://www.reddit.com/r/wallstreetbets/comments/15hg5ax/need_help_do_i_sell_and_be_done_with_it_i_hate/)
+- [Petition to ban $SHOP guy](https://www.reddit.com/r/wallstreetbets/comments/15hfz1j/petition_to_ban_shop_guy/)
+- [🚀](https://www.reddit.com/r/wallstreetbets/comments/15hf1c7/_/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
