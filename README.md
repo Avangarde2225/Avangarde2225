@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [-$100k today $PYPL](https://www.reddit.com/r/wallstreetbets/comments/15hiuvs/100k_today_pypl/)
-- [AAPL Earnings 📉📉📉](https://www.reddit.com/r/wallstreetbets/comments/15hha9j/aapl_earnings/)
-- [Need help! Do I sell and be done with it? I hate the stock market and want to go home.](https://www.reddit.com/r/wallstreetbets/comments/15hg5ax/need_help_do_i_sell_and_be_done_with_it_i_hate/)
-- [Petition to ban $SHOP guy](https://www.reddit.com/r/wallstreetbets/comments/15hfz1j/petition_to_ban_shop_guy/)
-- [🚀](https://www.reddit.com/r/wallstreetbets/comments/15hf1c7/_/)
+- [Did any of you jerks make money this week?](https://www.reddit.com/r/wallstreetbets/comments/15ifpth/did_any_of_you_jerks_make_money_this_week/)
+- [Big day](https://www.reddit.com/r/wallstreetbets/comments/15idwom/big_day/)
+- [Most Anticipated Earnings Releases for the week beginning August 7th, 2023](https://www.reddit.com/r/wallstreetbets/comments/15ic5fc/most_anticipated_earnings_releases_for_the_week/)
+- [AAPL: a picture worth a thousand words](https://www.reddit.com/r/wallstreetbets/comments/15ib6m6/aapl_a_picture_worth_a_thousand_words/)
+- [Cathie&#39;s One Night Stand. Thoughts on this you fellow ARK pay pigs](https://www.reddit.com/r/wallstreetbets/comments/15ib600/cathies_one_night_stand_thoughts_on_this_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
