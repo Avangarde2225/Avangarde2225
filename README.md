@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Did any of you jerks make money this week?](https://www.reddit.com/r/wallstreetbets/comments/15ifpth/did_any_of_you_jerks_make_money_this_week/)
-- [Big day](https://www.reddit.com/r/wallstreetbets/comments/15idwom/big_day/)
-- [Most Anticipated Earnings Releases for the week beginning August 7th, 2023](https://www.reddit.com/r/wallstreetbets/comments/15ic5fc/most_anticipated_earnings_releases_for_the_week/)
-- [AAPL: a picture worth a thousand words](https://www.reddit.com/r/wallstreetbets/comments/15ib6m6/aapl_a_picture_worth_a_thousand_words/)
-- [Cathie&#39;s One Night Stand. Thoughts on this you fellow ARK pay pigs](https://www.reddit.com/r/wallstreetbets/comments/15ib600/cathies_one_night_stand_thoughts_on_this_you/)
+- [No shit they actually made a movie about WSB and GameStop?](https://www.reddit.com/r/wallstreetbets/comments/15jb8ht/no_shit_they_actually_made_a_movie_about_wsb_and/)
+- [Finally, confirmation that I belong here!](https://www.reddit.com/r/wallstreetbets/comments/15j9lor/finally_confirmation_that_i_belong_here/)
+- [Anyone else bank on the QS meltdown??](https://www.reddit.com/r/wallstreetbets/comments/15j7swp/anyone_else_bank_on_the_qs_meltdown/)
+- [Failed quant job interview intelligence test. This was one of the questions. Apparently there is a right answer.😒](https://www.reddit.com/r/wallstreetbets/comments/15j533s/failed_quant_job_interview_intelligence_test_this/)
+- [Anyone concerned about the CRE crisis coming?](https://www.reddit.com/r/wallstreetbets/comments/15j4z3g/anyone_concerned_about_the_cre_crisis_coming/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
