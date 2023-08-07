@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [No shit they actually made a movie about WSB and GameStop?](https://www.reddit.com/r/wallstreetbets/comments/15jb8ht/no_shit_they_actually_made_a_movie_about_wsb_and/)
-- [Finally, confirmation that I belong here!](https://www.reddit.com/r/wallstreetbets/comments/15j9lor/finally_confirmation_that_i_belong_here/)
-- [Anyone else bank on the QS meltdown??](https://www.reddit.com/r/wallstreetbets/comments/15j7swp/anyone_else_bank_on_the_qs_meltdown/)
-- [Failed quant job interview intelligence test. This was one of the questions. Apparently there is a right answer.😒](https://www.reddit.com/r/wallstreetbets/comments/15j533s/failed_quant_job_interview_intelligence_test_this/)
-- [Anyone concerned about the CRE crisis coming?](https://www.reddit.com/r/wallstreetbets/comments/15j4z3g/anyone_concerned_about_the_cre_crisis_coming/)
+- [Head-to-head match up for Zuck vs Musk](https://www.reddit.com/r/wallstreetbets/comments/15k509q/headtohead_match_up_for_zuck_vs_musk/)
+- [Getting Ready for Monday](https://www.reddit.com/r/wallstreetbets/comments/15k48ad/getting_ready_for_monday/)
+- [Mortgage rates at its highest in 23 years, don&#39;t worry you all it&#39;s priced in](https://www.reddit.com/r/wallstreetbets/comments/15k33aj/mortgage_rates_at_its_highest_in_23_years_dont/)
+- [Major indexes don&#39;t look so good on a monthly view](https://www.reddit.com/r/wallstreetbets/comments/15k2w21/major_indexes_dont_look_so_good_on_a_monthly_view/)
+- [What happens to Tesla stock if Mark kills Elon?](https://www.reddit.com/r/wallstreetbets/comments/15jztze/what_happens_to_tesla_stock_if_mark_kills_elon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
