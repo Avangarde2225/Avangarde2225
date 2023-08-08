@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Head-to-head match up for Zuck vs Musk](https://www.reddit.com/r/wallstreetbets/comments/15k509q/headtohead_match_up_for_zuck_vs_musk/)
-- [Getting Ready for Monday](https://www.reddit.com/r/wallstreetbets/comments/15k48ad/getting_ready_for_monday/)
-- [Mortgage rates at its highest in 23 years, don&#39;t worry you all it&#39;s priced in](https://www.reddit.com/r/wallstreetbets/comments/15k33aj/mortgage_rates_at_its_highest_in_23_years_dont/)
-- [Major indexes don&#39;t look so good on a monthly view](https://www.reddit.com/r/wallstreetbets/comments/15k2w21/major_indexes_dont_look_so_good_on_a_monthly_view/)
-- [What happens to Tesla stock if Mark kills Elon?](https://www.reddit.com/r/wallstreetbets/comments/15jztze/what_happens_to_tesla_stock_if_mark_kills_elon/)
+- [$30k Tesla YOLO - 🐻](https://www.reddit.com/r/wallstreetbets/comments/15l05rw/30k_tesla_yolo/)
+- [Just remember: the market is supposed to go up.](https://www.reddit.com/r/wallstreetbets/comments/15ky9t3/just_remember_the_market_is_supposed_to_go_up/)
+- [$37k PYPL YOLO](https://www.reddit.com/r/wallstreetbets/comments/15kxsjf/37k_pypl_yolo/)
+- [I belong here](https://www.reddit.com/r/wallstreetbets/comments/15kxip1/i_belong_here/)
+- [💎 Palantir Earnings Soar: $1 Billion Buyback Approved – Time for a Moonshot! 🚀💎✋](https://www.reddit.com/r/wallstreetbets/comments/15kxasi/palantir_earnings_soar_1_billion_buyback_approved/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
