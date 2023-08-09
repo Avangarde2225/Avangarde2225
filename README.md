@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$30k Tesla YOLO - 🐻](https://www.reddit.com/r/wallstreetbets/comments/15l05rw/30k_tesla_yolo/)
-- [Just remember: the market is supposed to go up.](https://www.reddit.com/r/wallstreetbets/comments/15ky9t3/just_remember_the_market_is_supposed_to_go_up/)
-- [$37k PYPL YOLO](https://www.reddit.com/r/wallstreetbets/comments/15kxsjf/37k_pypl_yolo/)
-- [I belong here](https://www.reddit.com/r/wallstreetbets/comments/15kxip1/i_belong_here/)
-- [💎 Palantir Earnings Soar: $1 Billion Buyback Approved – Time for a Moonshot! 🚀💎✋](https://www.reddit.com/r/wallstreetbets/comments/15kxasi/palantir_earnings_soar_1_billion_buyback_approved/)
+- [DD- Dead Disney: Why you should bet against the mouse.](https://www.reddit.com/r/wallstreetbets/comments/15lwt1v/dd_dead_disney_why_you_should_bet_against_the/)
+- [WeWork Raises ‘Substantial Doubt’ About Staying in Business](https://www.reddit.com/r/wallstreetbets/comments/15lv8qx/wework_raises_substantial_doubt_about_staying_in/)
+- [Consumer Spending is Slowing, Apple Can Fix This by Adding 4 Cameras to the iPhone 15](https://www.reddit.com/r/wallstreetbets/comments/15luv5k/consumer_spending_is_slowing_apple_can_fix_this/)
+- [Walt Disney Co. &lpar;DIS&rpar;’s ESPN Is Getting Into Sports Betting With Penn Entertainment](https://www.reddit.com/r/wallstreetbets/comments/15lu0ht/walt_disney_co_diss_espn_is_getting_into_sports/)
+- [That‘s a prescription](https://www.reddit.com/r/wallstreetbets/comments/15ltj6i/thats_a_prescription/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
