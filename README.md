@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DD- Dead Disney: Why you should bet against the mouse.](https://www.reddit.com/r/wallstreetbets/comments/15lwt1v/dd_dead_disney_why_you_should_bet_against_the/)
-- [WeWork Raises ‘Substantial Doubt’ About Staying in Business](https://www.reddit.com/r/wallstreetbets/comments/15lv8qx/wework_raises_substantial_doubt_about_staying_in/)
-- [Consumer Spending is Slowing, Apple Can Fix This by Adding 4 Cameras to the iPhone 15](https://www.reddit.com/r/wallstreetbets/comments/15luv5k/consumer_spending_is_slowing_apple_can_fix_this/)
-- [Walt Disney Co. &lpar;DIS&rpar;’s ESPN Is Getting Into Sports Betting With Penn Entertainment](https://www.reddit.com/r/wallstreetbets/comments/15lu0ht/walt_disney_co_diss_espn_is_getting_into_sports/)
-- [That‘s a prescription](https://www.reddit.com/r/wallstreetbets/comments/15ltj6i/thats_a_prescription/)
+- [Disney&#39;s Earnings Roller Coaster](https://www.reddit.com/r/wallstreetbets/comments/15mspt5/disneys_earnings_roller_coaster/)
+- [Whelp, looks like this is the beginning of the end for NVDA...](https://www.reddit.com/r/wallstreetbets/comments/15mre0x/whelp_looks_like_this_is_the_beginning_of_the_end/)
+- [Disney Raises Prices for Streaming Services by as Much as 27%](https://www.reddit.com/r/wallstreetbets/comments/15mrbsa/disney_raises_prices_for_streaming_services_by_as/)
+- [I didn’t hear no bell!!!](https://www.reddit.com/r/wallstreetbets/comments/15mrayh/i_didnt_hear_no_bell/)
+- [Dude this stock sucks &lpar;PYPL&rpar;](https://www.reddit.com/r/wallstreetbets/comments/15mr8ro/dude_this_stock_sucks_pypl/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
