@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Disney&#39;s Earnings Roller Coaster](https://www.reddit.com/r/wallstreetbets/comments/15mspt5/disneys_earnings_roller_coaster/)
-- [Whelp, looks like this is the beginning of the end for NVDA...](https://www.reddit.com/r/wallstreetbets/comments/15mre0x/whelp_looks_like_this_is_the_beginning_of_the_end/)
-- [Disney Raises Prices for Streaming Services by as Much as 27%](https://www.reddit.com/r/wallstreetbets/comments/15mrbsa/disney_raises_prices_for_streaming_services_by_as/)
-- [I didn’t hear no bell!!!](https://www.reddit.com/r/wallstreetbets/comments/15mrayh/i_didnt_hear_no_bell/)
-- [Dude this stock sucks &lpar;PYPL&rpar;](https://www.reddit.com/r/wallstreetbets/comments/15mr8ro/dude_this_stock_sucks_pypl/)
+- [Sell NVDA](https://www.reddit.com/r/wallstreetbets/comments/15u2qq4/sell_nvda/)
+- [Waiting for market open ...](https://www.reddit.com/r/wallstreetbets/comments/15u2pel/waiting_for_market_open/)
+- [u/Cookies_and_Beandip on notice](https://www.reddit.com/r/wallstreetbets/comments/15u2472/ucookies_and_beandip_on_notice/)
+- [Yes, Mortgage Rates Are Now The Highest in More Than 20 Years, But Not Much Higher Than Yesterday](https://www.reddit.com/r/wallstreetbets/comments/15u1kd2/yes_mortgage_rates_are_now_the_highest_in_more/)
+- [China Evergrande files for chapter 15 bankruptcy in US - court filing](https://www.reddit.com/r/wallstreetbets/comments/15tztim/china_evergrande_files_for_chapter_15_bankruptcy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
