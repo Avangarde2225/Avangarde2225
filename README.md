@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sell NVDA](https://www.reddit.com/r/wallstreetbets/comments/15u2qq4/sell_nvda/)
-- [Waiting for market open ...](https://www.reddit.com/r/wallstreetbets/comments/15u2pel/waiting_for_market_open/)
-- [u/Cookies_and_Beandip on notice](https://www.reddit.com/r/wallstreetbets/comments/15u2472/ucookies_and_beandip_on_notice/)
-- [Yes, Mortgage Rates Are Now The Highest in More Than 20 Years, But Not Much Higher Than Yesterday](https://www.reddit.com/r/wallstreetbets/comments/15u1kd2/yes_mortgage_rates_are_now_the_highest_in_more/)
-- [China Evergrande files for chapter 15 bankruptcy in US - court filing](https://www.reddit.com/r/wallstreetbets/comments/15tztim/china_evergrande_files_for_chapter_15_bankruptcy/)
+- [From Rock Bottom Too Rock Top......For Nowwwww](https://www.reddit.com/r/wallstreetbets/comments/15uy9x9/from_rock_bottom_too_rock_topfor_nowwwww/)
+- [Uh just found out my spouse put ALL our savings in US Steel… crazy?](https://www.reddit.com/r/wallstreetbets/comments/15uy1fm/uh_just_found_out_my_spouse_put_all_our_savings/)
+- [At least I have my health right?](https://www.reddit.com/r/wallstreetbets/comments/15uxh1z/at_least_i_have_my_health_right/)
+- [Bulls hang in there !](https://www.reddit.com/r/wallstreetbets/comments/15uuqek/bulls_hang_in_there/)
+- [Weekend Discussion Thread for the Weekend of August 19, 2023](https://www.reddit.com/r/wallstreetbets/comments/15uunf8/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
