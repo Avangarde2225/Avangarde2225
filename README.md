@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [From Rock Bottom Too Rock Top......For Nowwwww](https://www.reddit.com/r/wallstreetbets/comments/15uy9x9/from_rock_bottom_too_rock_topfor_nowwwww/)
-- [Uh just found out my spouse put ALL our savings in US Steel… crazy?](https://www.reddit.com/r/wallstreetbets/comments/15uy1fm/uh_just_found_out_my_spouse_put_all_our_savings/)
-- [At least I have my health right?](https://www.reddit.com/r/wallstreetbets/comments/15uxh1z/at_least_i_have_my_health_right/)
-- [Bulls hang in there !](https://www.reddit.com/r/wallstreetbets/comments/15uuqek/bulls_hang_in_there/)
-- [Weekend Discussion Thread for the Weekend of August 19, 2023](https://www.reddit.com/r/wallstreetbets/comments/15uunf8/weekend_discussion_thread_for_the_weekend_of/)
+- [Playboy set to rival OnlyFans](https://www.reddit.com/r/wallstreetbets/comments/15vvj5n/playboy_set_to_rival_onlyfans/)
+- [Looks like inflations back on the menu boys](https://www.reddit.com/r/wallstreetbets/comments/15vv1l9/looks_like_inflations_back_on_the_menu_boys/)
+- [Chimerix’s Drug Candidate Improves Survival for Patients with Incurable Brain Tumor](https://www.reddit.com/r/wallstreetbets/comments/15vu9ta/chimerixs_drug_candidate_improves_survival_for/)
+- [Yolo 79k short nasdaq](https://www.reddit.com/r/wallstreetbets/comments/15vtlni/yolo_79k_short_nasdaq/)
+- [The bear memes will continue until morale improves](https://www.reddit.com/r/wallstreetbets/comments/15vrxmh/the_bear_memes_will_continue_until_morale_improves/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
