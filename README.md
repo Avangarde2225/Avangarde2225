@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Only NVDA Earnings Can Save Me. Down 5K to date.](https://www.reddit.com/r/wallstreetbets/comments/15wrnuh/only_nvda_earnings_can_save_me_down_5k_to_date/)
-- [Just found the new banner for this sub](https://www.reddit.com/r/wallstreetbets/comments/15wqetz/just_found_the_new_banner_for_this_sub/)
-- [Controversial Chinese app Temu &lpar;PDD holdings&rpar; is now #1 in the app store - despite growing concerns](https://www.reddit.com/r/wallstreetbets/comments/15wq9ry/controversial_chinese_app_temu_pdd_holdings_is/)
-- [Companies like Tyson are actually losing money on sales of pork and chicken....](https://www.reddit.com/r/wallstreetbets/comments/15wnfgp/companies_like_tyson_are_actually_losing_money_on/)
-- [Is this that guy everybody hates?](https://www.reddit.com/r/wallstreetbets/comments/15wmwwb/is_this_that_guy_everybody_hates/)
+- [All hail our lord and saviour, $NVDA](https://www.reddit.com/r/wallstreetbets/comments/15xmfb6/all_hail_our_lord_and_saviour_nvda/)
+- [Regard?](https://www.reddit.com/r/wallstreetbets/comments/15xm70w/regard/)
+- [It’s over Nvidia bers](https://www.reddit.com/r/wallstreetbets/comments/15xksap/its_over_nvidia_bers/)
+- [PYPL 30k all in](https://www.reddit.com/r/wallstreetbets/comments/15xkq75/pypl_30k_all_in/)
+- [Live look at Nvidia bears](https://www.reddit.com/r/wallstreetbets/comments/15xjv1f/live_look_at_nvidia_bears/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
