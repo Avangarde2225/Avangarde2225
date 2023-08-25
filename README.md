@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I quit options this year and bought NVDA shares… is this how you non-degenerates live?](https://www.reddit.com/r/wallstreetbets/comments/15zkqcr/i_quit_options_this_year_and_bought_nvda_shares/)
-- [NVDA and a quick lesson on P/E](https://www.reddit.com/r/wallstreetbets/comments/15zhyrh/nvda_and_a_quick_lesson_on_pe/)
-- [BREAKING: Nvidia announces new product](https://www.reddit.com/r/wallstreetbets/comments/15zgz6y/breaking_nvidia_announces_new_product/)
-- [Only good stonk in my portfolio](https://www.reddit.com/r/wallstreetbets/comments/15zgv1v/only_good_stonk_in_my_portfolio/)
-- [Cramer was eventually right](https://www.reddit.com/r/wallstreetbets/comments/15zgqpe/cramer_was_eventually_right/)
+- [NVDA bulls very quiet today](https://www.reddit.com/r/wallstreetbets/comments/160ftsl/nvda_bulls_very_quiet_today/)
+- [BETR Down 93% on IPO](https://www.reddit.com/r/wallstreetbets/comments/160ddd4/betr_down_93_on_ipo/)
+- [Bought jan 28 2019 on the advice of one of you regards. Thanks regards.](https://www.reddit.com/r/wallstreetbets/comments/160cu3w/bought_jan_28_2019_on_the_advice_of_one_of_you/)
+- [Holy AMC massive short squeeze! Let&#39;s fuckin go! 🚀🚀🚀#apesneverleft #getrektshorts #lambosonorder](https://www.reddit.com/r/wallstreetbets/comments/160cqcn/holy_amc_massive_short_squeeze_lets_fuckin_go/)
+- [What Are Your Moves Tomorrow, August 25, 2023](https://www.reddit.com/r/wallstreetbets/comments/160chf2/what_are_your_moves_tomorrow_august_25_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
