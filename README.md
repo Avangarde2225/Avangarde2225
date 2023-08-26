@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVDA bulls very quiet today](https://www.reddit.com/r/wallstreetbets/comments/160ftsl/nvda_bulls_very_quiet_today/)
-- [BETR Down 93% on IPO](https://www.reddit.com/r/wallstreetbets/comments/160ddd4/betr_down_93_on_ipo/)
-- [Bought jan 28 2019 on the advice of one of you regards. Thanks regards.](https://www.reddit.com/r/wallstreetbets/comments/160cu3w/bought_jan_28_2019_on_the_advice_of_one_of_you/)
-- [Holy AMC massive short squeeze! Let&#39;s fuckin go! 🚀🚀🚀#apesneverleft #getrektshorts #lambosonorder](https://www.reddit.com/r/wallstreetbets/comments/160cqcn/holy_amc_massive_short_squeeze_lets_fuckin_go/)
-- [What Are Your Moves Tomorrow, August 25, 2023](https://www.reddit.com/r/wallstreetbets/comments/160chf2/what_are_your_moves_tomorrow_august_25_2023/)
+- [One of these things is not like the others... Market close 08/25/2023](https://www.reddit.com/r/wallstreetbets/comments/161bfdk/one_of_these_things_is_not_like_the_others_market/)
+- [Op-Ed: Less affordable homes don’t just ruin American dreams, they’re a threat to the economy](https://www.reddit.com/r/wallstreetbets/comments/161ar67/oped_less_affordable_homes_dont_just_ruin/)
+- [Diversity is the key to success](https://www.reddit.com/r/wallstreetbets/comments/161a1l9/diversity_is_the_key_to_success/)
+- [Weekend Discussion Thread for the Weekend of August 26, 2023](https://www.reddit.com/r/wallstreetbets/comments/1619hr0/weekend_discussion_thread_for_the_weekend_of/)
+- [Prime Migration: From Amazon to Upsized Opportunities!&quot;](https://www.reddit.com/r/wallstreetbets/comments/1619fa0/prime_migration_from_amazon_to_upsized/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
