@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One of these things is not like the others... Market close 08/25/2023](https://www.reddit.com/r/wallstreetbets/comments/161bfdk/one_of_these_things_is_not_like_the_others_market/)
-- [Op-Ed: Less affordable homes don’t just ruin American dreams, they’re a threat to the economy](https://www.reddit.com/r/wallstreetbets/comments/161ar67/oped_less_affordable_homes_dont_just_ruin/)
-- [Diversity is the key to success](https://www.reddit.com/r/wallstreetbets/comments/161a1l9/diversity_is_the_key_to_success/)
-- [Weekend Discussion Thread for the Weekend of August 26, 2023](https://www.reddit.com/r/wallstreetbets/comments/1619hr0/weekend_discussion_thread_for_the_weekend_of/)
-- [Prime Migration: From Amazon to Upsized Opportunities!&quot;](https://www.reddit.com/r/wallstreetbets/comments/1619fa0/prime_migration_from_amazon_to_upsized/)
+- [We going up](https://www.reddit.com/r/wallstreetbets/comments/1628w86/we_going_up/)
+- [Trump, Biden policies shifted trade from China at a cost, study shows. U.S. trade has shifted away from China in a huge way.](https://www.reddit.com/r/wallstreetbets/comments/162880g/trump_biden_policies_shifted_trade_from_china_at/)
+- [How to Start a Fire: WSB Edition](https://www.reddit.com/r/wallstreetbets/comments/16274cp/how_to_start_a_fire_wsb_edition/)
+- [New Meme stock?](https://www.reddit.com/r/wallstreetbets/comments/1626ndx/new_meme_stock/)
+- [22k nvda play 13 contracts and 209 shares had 2 ports fully loaded](https://www.reddit.com/r/wallstreetbets/comments/1625iqn/22k_nvda_play_13_contracts_and_209_shares_had_2/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
