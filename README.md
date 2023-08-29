@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dumb similarity?](https://www.reddit.com/r/wallstreetbets/comments/1636ylc/dumb_similarity/)
-- [What is the appropriate subreddit to post seeking interns to support macro hedge fund research?](https://www.reddit.com/r/wallstreetbets/comments/1636x6f/what_is_the_appropriate_subreddit_to_post_seeking/)
-- [Do you think the Fed will make another rate hike in September 2023?](https://www.reddit.com/r/wallstreetbets/comments/1636gln/do_you_think_the_fed_will_make_another_rate_hike/)
-- [FRHC &lpar;Freedom Holding&rpar; Russian company recently attacked by Hindenburg &lpar;short hedgy&rpar; has been exonerated, SQUEEZE is likely](https://www.reddit.com/r/wallstreetbets/comments/163664b/frhc_freedom_holding_russian_company_recently/)
-- [Sometimes I think the US economy itself is a bubble](https://www.reddit.com/r/wallstreetbets/comments/16363pe/sometimes_i_think_the_us_economy_itself_is_a/)
+- [Every Single Time.](https://www.reddit.com/r/wallstreetbets/comments/164154v/every_single_time/)
+- [I’m on a heater](https://www.reddit.com/r/wallstreetbets/comments/1640u5n/im_on_a_heater/)
+- [The market took away my ability to cry](https://www.reddit.com/r/wallstreetbets/comments/163yao6/the_market_took_away_my_ability_to_cry/)
+- [When you make a profit and sell, then see that stock or option increase substantially in value, how do you deal with the frustration?](https://www.reddit.com/r/wallstreetbets/comments/163y7hh/when_you_make_a_profit_and_sell_then_see_that/)
+- [The Fed - Episode 1 - JPow Briefs Jackson&#39;s Hole](https://www.reddit.com/r/wallstreetbets/comments/163xxgt/the_fed_episode_1_jpow_briefs_jacksons_hole/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
