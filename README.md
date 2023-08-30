@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Every Single Time.](https://www.reddit.com/r/wallstreetbets/comments/164154v/every_single_time/)
-- [I’m on a heater](https://www.reddit.com/r/wallstreetbets/comments/1640u5n/im_on_a_heater/)
-- [The market took away my ability to cry](https://www.reddit.com/r/wallstreetbets/comments/163yao6/the_market_took_away_my_ability_to_cry/)
-- [When you make a profit and sell, then see that stock or option increase substantially in value, how do you deal with the frustration?](https://www.reddit.com/r/wallstreetbets/comments/163y7hh/when_you_make_a_profit_and_sell_then_see_that/)
-- [The Fed - Episode 1 - JPow Briefs Jackson&#39;s Hole](https://www.reddit.com/r/wallstreetbets/comments/163xxgt/the_fed_episode_1_jpow_briefs_jacksons_hole/)
+- [+$1,5m on 607 SPX 0dte](https://www.reddit.com/r/wallstreetbets/comments/164xl1g/15m_on_607_spx_0dte/)
+- [The Duality of Regards](https://www.reddit.com/r/wallstreetbets/comments/164xja1/the_duality_of_regards/)
+- [Never had more than 30k at one time in my life. Made that within 7 hours today...](https://www.reddit.com/r/wallstreetbets/comments/164w8ol/never_had_more_than_30k_at_one_time_in_my_life/)
+- [I have become Printer...](https://www.reddit.com/r/wallstreetbets/comments/164w39y/i_have_become_printer/)
+- [The prodigal son regards.](https://www.reddit.com/r/wallstreetbets/comments/164vdkl/the_prodigal_son_regards/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
