@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [+$1,5m on 607 SPX 0dte](https://www.reddit.com/r/wallstreetbets/comments/164xl1g/15m_on_607_spx_0dte/)
-- [The Duality of Regards](https://www.reddit.com/r/wallstreetbets/comments/164xja1/the_duality_of_regards/)
-- [Never had more than 30k at one time in my life. Made that within 7 hours today...](https://www.reddit.com/r/wallstreetbets/comments/164w8ol/never_had_more_than_30k_at_one_time_in_my_life/)
-- [I have become Printer...](https://www.reddit.com/r/wallstreetbets/comments/164w39y/i_have_become_printer/)
-- [The prodigal son regards.](https://www.reddit.com/r/wallstreetbets/comments/164vdkl/the_prodigal_son_regards/)
+- [A Career Regard](https://www.reddit.com/r/wallstreetbets/comments/165tzvv/a_career_regard/)
+- [All Hail Thales, the original options trader](https://www.reddit.com/r/wallstreetbets/comments/165tng3/all_hail_thales_the_original_options_trader/)
+- [Investing!](https://www.reddit.com/r/wallstreetbets/comments/165t6nj/investing/)
+- [MORTIMER WE&#39;RE BACK!!!!! Top Federal Health Agency Says Marijuana Should Be Moved To Schedule III In Historic Recommendation To DEA](https://www.reddit.com/r/wallstreetbets/comments/165r00z/mortimer_were_back_top_federal_health_agency_says/)
+- [What other ways can I lose money today?](https://www.reddit.com/r/wallstreetbets/comments/165q925/what_other_ways_can_i_lose_money_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
