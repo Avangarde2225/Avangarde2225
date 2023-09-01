@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A Career Regard](https://www.reddit.com/r/wallstreetbets/comments/165tzvv/a_career_regard/)
-- [All Hail Thales, the original options trader](https://www.reddit.com/r/wallstreetbets/comments/165tng3/all_hail_thales_the_original_options_trader/)
-- [Investing!](https://www.reddit.com/r/wallstreetbets/comments/165t6nj/investing/)
-- [MORTIMER WE&#39;RE BACK!!!!! Top Federal Health Agency Says Marijuana Should Be Moved To Schedule III In Historic Recommendation To DEA](https://www.reddit.com/r/wallstreetbets/comments/165r00z/mortimer_were_back_top_federal_health_agency_says/)
-- [What other ways can I lose money today?](https://www.reddit.com/r/wallstreetbets/comments/165q925/what_other_ways_can_i_lose_money_today/)
+- [my technical indickators are pointing to troubles ahead](https://www.reddit.com/r/wallstreetbets/comments/166rd3i/my_technical_indickators_are_pointing_to_troubles/)
+- [RA = negative $17K .. I think floor gum tastes better!](https://www.reddit.com/r/wallstreetbets/comments/166p4lh/ra_negative_17k_i_think_floor_gum_tastes_better/)
+- [Finally some gains through retail puts DG](https://www.reddit.com/r/wallstreetbets/comments/166nb9r/finally_some_gains_through_retail_puts_dg/)
+- [Fed Meeting Minutes](https://www.reddit.com/r/wallstreetbets/comments/166my35/fed_meeting_minutes/)
+- [Bull market tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/166mihg/bull_market_tomorrow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
