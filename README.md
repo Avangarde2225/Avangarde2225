@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [my technical indickators are pointing to troubles ahead](https://www.reddit.com/r/wallstreetbets/comments/166rd3i/my_technical_indickators_are_pointing_to_troubles/)
-- [RA = negative $17K .. I think floor gum tastes better!](https://www.reddit.com/r/wallstreetbets/comments/166p4lh/ra_negative_17k_i_think_floor_gum_tastes_better/)
-- [Finally some gains through retail puts DG](https://www.reddit.com/r/wallstreetbets/comments/166nb9r/finally_some_gains_through_retail_puts_dg/)
-- [Fed Meeting Minutes](https://www.reddit.com/r/wallstreetbets/comments/166my35/fed_meeting_minutes/)
-- [Bull market tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/166mihg/bull_market_tomorrow/)
+- [Today I became Lulu&#39;s bitch.](https://www.reddit.com/r/wallstreetbets/comments/167ljhy/today_i_became_lulus_bitch/)
+- [If you&#39;re buying TSLA @ $250, you better be really, really, REALLY sure a non-negligible number of human beings want to be seen driving this](https://www.reddit.com/r/wallstreetbets/comments/167lgyg/if_youre_buying_tsla_250_you_better_be_really/)
+- [Student loan payments kicking into gear, wonder what it will do](https://www.reddit.com/r/wallstreetbets/comments/167j14w/student_loan_payments_kicking_into_gear_wonder/)
+- [An insane amount of options activity looks to be pushing $TESLA towards $200 by 01/19/2024](https://www.reddit.com/r/wallstreetbets/comments/167io6r/an_insane_amount_of_options_activity_looks_to_be/)
+- [Someone loses and someone wins.](https://www.reddit.com/r/wallstreetbets/comments/167hvj5/someone_loses_and_someone_wins/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
