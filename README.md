@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Today I became Lulu&#39;s bitch.](https://www.reddit.com/r/wallstreetbets/comments/167ljhy/today_i_became_lulus_bitch/)
-- [If you&#39;re buying TSLA @ $250, you better be really, really, REALLY sure a non-negligible number of human beings want to be seen driving this](https://www.reddit.com/r/wallstreetbets/comments/167lgyg/if_youre_buying_tsla_250_you_better_be_really/)
-- [Student loan payments kicking into gear, wonder what it will do](https://www.reddit.com/r/wallstreetbets/comments/167j14w/student_loan_payments_kicking_into_gear_wonder/)
-- [An insane amount of options activity looks to be pushing $TESLA towards $200 by 01/19/2024](https://www.reddit.com/r/wallstreetbets/comments/167io6r/an_insane_amount_of_options_activity_looks_to_be/)
-- [Someone loses and someone wins.](https://www.reddit.com/r/wallstreetbets/comments/167hvj5/someone_loses_and_someone_wins/)
+- [Tesla car prices crash harder than Tesla on FSD mode](https://www.reddit.com/r/wallstreetbets/comments/168gu3g/tesla_car_prices_crash_harder_than_tesla_on_fsd/)
+- [Robinhood as soon as I buy anything](https://www.reddit.com/r/wallstreetbets/comments/168g2fs/robinhood_as_soon_as_i_buy_anything/)
+- [puts on vinfast](https://www.reddit.com/r/wallstreetbets/comments/168fstg/puts_on_vinfast/)
+- [NIO YOLO’d in at $11](https://www.reddit.com/r/wallstreetbets/comments/168d3dv/nio_yolod_in_at_11/)
+- [Ironman explaining 90s Wallstreet](https://www.reddit.com/r/wallstreetbets/comments/168c8n1/ironman_explaining_90s_wallstreet/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
