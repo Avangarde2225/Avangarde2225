@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla car prices crash harder than Tesla on FSD mode](https://www.reddit.com/r/wallstreetbets/comments/168gu3g/tesla_car_prices_crash_harder_than_tesla_on_fsd/)
-- [Robinhood as soon as I buy anything](https://www.reddit.com/r/wallstreetbets/comments/168g2fs/robinhood_as_soon_as_i_buy_anything/)
-- [puts on vinfast](https://www.reddit.com/r/wallstreetbets/comments/168fstg/puts_on_vinfast/)
-- [NIO YOLO’d in at $11](https://www.reddit.com/r/wallstreetbets/comments/168d3dv/nio_yolod_in_at_11/)
-- [Ironman explaining 90s Wallstreet](https://www.reddit.com/r/wallstreetbets/comments/168c8n1/ironman_explaining_90s_wallstreet/)
+- [Puts on SPY](https://www.reddit.com/r/wallstreetbets/comments/169cyfg/puts_on_spy/)
+- [We need a WSB index fund](https://www.reddit.com/r/wallstreetbets/comments/169c88j/we_need_a_wsb_index_fund/)
+- [Robinhood shares jump after buying back Bankman-Fried’s $605m in seized shares](https://www.reddit.com/r/wallstreetbets/comments/169brau/robinhood_shares_jump_after_buying_back/)
+- [Making $25k a from 70k](https://www.reddit.com/r/wallstreetbets/comments/169b6ta/making_25k_a_from_70k/)
+- [AI](https://www.reddit.com/r/wallstreetbets/comments/1699flx/ai/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
