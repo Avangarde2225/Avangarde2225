@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on SPY](https://www.reddit.com/r/wallstreetbets/comments/169cyfg/puts_on_spy/)
-- [We need a WSB index fund](https://www.reddit.com/r/wallstreetbets/comments/169c88j/we_need_a_wsb_index_fund/)
-- [Robinhood shares jump after buying back Bankman-Fried’s $605m in seized shares](https://www.reddit.com/r/wallstreetbets/comments/169brau/robinhood_shares_jump_after_buying_back/)
-- [Making $25k a from 70k](https://www.reddit.com/r/wallstreetbets/comments/169b6ta/making_25k_a_from_70k/)
-- [AI](https://www.reddit.com/r/wallstreetbets/comments/1699flx/ai/)
+- [The AI Bubble is becoming awkward](https://www.reddit.com/r/wallstreetbets/comments/16a8k8y/the_ai_bubble_is_becoming_awkward/)
+- [Ber r fuk](https://www.reddit.com/r/wallstreetbets/comments/16a7uao/ber_r_fuk/)
+- [37yo w/ 60k in the bank what do you recommend i do with half](https://www.reddit.com/r/wallstreetbets/comments/16a7pej/37yo_w_60k_in_the_bank_what_do_you_recommend_i_do/)
+- [Qantas &lpar;ASX&rpar; in turmoil as CEO steps down following two week bloodbath](https://www.reddit.com/r/wallstreetbets/comments/16a7k6g/qantas_asx_in_turmoil_as_ceo_steps_down_following/)
+- [Buy the dip!](https://www.reddit.com/r/wallstreetbets/comments/16a6jos/buy_the_dip/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
