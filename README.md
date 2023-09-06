@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The AI Bubble is becoming awkward](https://www.reddit.com/r/wallstreetbets/comments/16a8k8y/the_ai_bubble_is_becoming_awkward/)
-- [Ber r fuk](https://www.reddit.com/r/wallstreetbets/comments/16a7uao/ber_r_fuk/)
-- [37yo w/ 60k in the bank what do you recommend i do with half](https://www.reddit.com/r/wallstreetbets/comments/16a7pej/37yo_w_60k_in_the_bank_what_do_you_recommend_i_do/)
-- [Qantas &lpar;ASX&rpar; in turmoil as CEO steps down following two week bloodbath](https://www.reddit.com/r/wallstreetbets/comments/16a7k6g/qantas_asx_in_turmoil_as_ceo_steps_down_following/)
-- [Buy the dip!](https://www.reddit.com/r/wallstreetbets/comments/16a6jos/buy_the_dip/)
+- [Buy Cheap Calls For the XLE Golden Cross &lpar;Simple Degen Play&rpar;](https://www.reddit.com/r/wallstreetbets/comments/16b1n55/buy_cheap_calls_for_the_xle_golden_cross_simple/)
+- [Schumer Says Senate Will Be &#39;Making Progress&#39; On Marijuana Banking In Floor Speech On Legislative Priorities - Marijuana Moment](https://www.reddit.com/r/wallstreetbets/comments/16b0m62/schumer_says_senate_will_be_making_progress_on/)
+- [Scamazzed by the Vietnam](https://www.reddit.com/r/wallstreetbets/comments/16azorc/scamazzed_by_the_vietnam/)
+- [That feeling you get when you realize your order filled…..](https://www.reddit.com/r/wallstreetbets/comments/16azjk7/that_feeling_you_get_when_you_realize_your_order/)
+- [Weed Leveraging MSOX am I regarded?](https://www.reddit.com/r/wallstreetbets/comments/16ayjiv/weed_leveraging_msox_am_i_regarded/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
