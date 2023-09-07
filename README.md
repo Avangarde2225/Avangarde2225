@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Buy Cheap Calls For the XLE Golden Cross &lpar;Simple Degen Play&rpar;](https://www.reddit.com/r/wallstreetbets/comments/16b1n55/buy_cheap_calls_for_the_xle_golden_cross_simple/)
-- [Schumer Says Senate Will Be &#39;Making Progress&#39; On Marijuana Banking In Floor Speech On Legislative Priorities - Marijuana Moment](https://www.reddit.com/r/wallstreetbets/comments/16b0m62/schumer_says_senate_will_be_making_progress_on/)
-- [Scamazzed by the Vietnam](https://www.reddit.com/r/wallstreetbets/comments/16azorc/scamazzed_by_the_vietnam/)
-- [That feeling you get when you realize your order filled…..](https://www.reddit.com/r/wallstreetbets/comments/16azjk7/that_feeling_you_get_when_you_realize_your_order/)
-- [Weed Leveraging MSOX am I regarded?](https://www.reddit.com/r/wallstreetbets/comments/16ayjiv/weed_leveraging_msox_am_i_regarded/)
+- [Wrekt](https://www.reddit.com/r/wallstreetbets/comments/16c06gf/wrekt/)
+- [Remember kids, bankruptcies are good for stonks](https://www.reddit.com/r/wallstreetbets/comments/16by7ok/remember_kids_bankruptcies_are_good_for_stonks/)
+- [I’m not a loser, the market is](https://www.reddit.com/r/wallstreetbets/comments/16bxllc/im_not_a_loser_the_market_is/)
+- [SPY PUTS](https://www.reddit.com/r/wallstreetbets/comments/16bx77t/spy_puts/)
+- [Is Volkswagen regarded ?](https://www.reddit.com/r/wallstreetbets/comments/16bwsp4/is_volkswagen_regarded/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
