@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wrekt](https://www.reddit.com/r/wallstreetbets/comments/16c06gf/wrekt/)
-- [Remember kids, bankruptcies are good for stonks](https://www.reddit.com/r/wallstreetbets/comments/16by7ok/remember_kids_bankruptcies_are_good_for_stonks/)
-- [I’m not a loser, the market is](https://www.reddit.com/r/wallstreetbets/comments/16bxllc/im_not_a_loser_the_market_is/)
-- [SPY PUTS](https://www.reddit.com/r/wallstreetbets/comments/16bx77t/spy_puts/)
-- [Is Volkswagen regarded ?](https://www.reddit.com/r/wallstreetbets/comments/16bwsp4/is_volkswagen_regarded/)
+- [Ray Dalio tries to silence tell-all that pierces veil of &#39;benevolent business titan‘](https://www.reddit.com/r/wallstreetbets/comments/16ct9l4/ray_dalio_tries_to_silence_tellall_that_pierces/)
+- [Do any of you actually have a job? If so, what Wendy’s position is it?](https://www.reddit.com/r/wallstreetbets/comments/16csbs2/do_any_of_you_actually_have_a_job_if_so_what/)
+- [Ryan Cohen investigated by SEC for pumping and dumping [you]](https://www.reddit.com/r/wallstreetbets/comments/16cs15u/ryan_cohen_investigated_by_sec_for_pumping_and/)
+- [New symbolic BRICS bill](https://www.reddit.com/r/wallstreetbets/comments/16crnur/new_symbolic_brics_bill/)
+- [$4.4k —&gt; $27k overnight](https://www.reddit.com/r/wallstreetbets/comments/16cr7tb/44k_27k_overnight/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
