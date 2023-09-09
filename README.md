@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ray Dalio tries to silence tell-all that pierces veil of &#39;benevolent business titan‘](https://www.reddit.com/r/wallstreetbets/comments/16ct9l4/ray_dalio_tries_to_silence_tellall_that_pierces/)
-- [Do any of you actually have a job? If so, what Wendy’s position is it?](https://www.reddit.com/r/wallstreetbets/comments/16csbs2/do_any_of_you_actually_have_a_job_if_so_what/)
-- [Ryan Cohen investigated by SEC for pumping and dumping [you]](https://www.reddit.com/r/wallstreetbets/comments/16cs15u/ryan_cohen_investigated_by_sec_for_pumping_and/)
-- [New symbolic BRICS bill](https://www.reddit.com/r/wallstreetbets/comments/16crnur/new_symbolic_brics_bill/)
-- [$4.4k —&gt; $27k overnight](https://www.reddit.com/r/wallstreetbets/comments/16cr7tb/44k_27k_overnight/)
+- [&quot;ChatGPT Losing Hype.&quot; AI bubble getting ready to burst?](https://www.reddit.com/r/wallstreetbets/comments/16doebb/chatgpt_losing_hype_ai_bubble_getting_ready_to/)
+- [Talk about pu*p and du*p](https://www.reddit.com/r/wallstreetbets/comments/16dlfzd/talk_about_pup_and_dup/)
+- [From yesterday. I closed positions first thing this morning up $15K! Not out of debt yet.](https://www.reddit.com/r/wallstreetbets/comments/16dl9oi/from_yesterday_i_closed_positions_first_thing/)
+- [NVDA CEO Jensen Huang Just Sold $42 Million Dollars Worth Of NVIDIA Shares - Last Time He Sold Shares January 2022 Stock Dropped 64%](https://www.reddit.com/r/wallstreetbets/comments/16dkztw/nvda_ceo_jensen_huang_just_sold_42_million/)
+- [How is huawei &quot;threatening&quot; 5million or even 10million iphone sale a year](https://www.reddit.com/r/wallstreetbets/comments/16dkjw0/how_is_huawei_threatening_5million_or_even/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
