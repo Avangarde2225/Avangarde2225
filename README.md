@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;ChatGPT Losing Hype.&quot; AI bubble getting ready to burst?](https://www.reddit.com/r/wallstreetbets/comments/16doebb/chatgpt_losing_hype_ai_bubble_getting_ready_to/)
-- [Talk about pu*p and du*p](https://www.reddit.com/r/wallstreetbets/comments/16dlfzd/talk_about_pup_and_dup/)
-- [From yesterday. I closed positions first thing this morning up $15K! Not out of debt yet.](https://www.reddit.com/r/wallstreetbets/comments/16dl9oi/from_yesterday_i_closed_positions_first_thing/)
-- [NVDA CEO Jensen Huang Just Sold $42 Million Dollars Worth Of NVIDIA Shares - Last Time He Sold Shares January 2022 Stock Dropped 64%](https://www.reddit.com/r/wallstreetbets/comments/16dkztw/nvda_ceo_jensen_huang_just_sold_42_million/)
-- [How is huawei &quot;threatening&quot; 5million or even 10million iphone sale a year](https://www.reddit.com/r/wallstreetbets/comments/16dkjw0/how_is_huawei_threatening_5million_or_even/)
+- [The $AAPL is falling further away from the tree.](https://www.reddit.com/r/wallstreetbets/comments/16ejcgq/the_aapl_is_falling_further_away_from_the_tree/)
+- [How many of you have $500 cash right now??](https://www.reddit.com/r/wallstreetbets/comments/16eheli/how_many_of_you_have_500_cash_right_now/)
+- [here we go](https://www.reddit.com/r/wallstreetbets/comments/16eh15k/here_we_go/)
+- [Someone’s calls printed](https://www.reddit.com/r/wallstreetbets/comments/16egua3/someones_calls_printed/)
+- [Temu is stealing your phones files and sending your information to the ccp](https://www.reddit.com/r/wallstreetbets/comments/16egjrh/temu_is_stealing_your_phones_files_and_sending/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
