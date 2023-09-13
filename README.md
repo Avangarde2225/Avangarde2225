@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$86K gain thanks TSLA](https://www.reddit.com/r/wallstreetbets/comments/16gb66d/86k_gain_thanks_tsla/)
-- [Canopy Growth to Fast Track Entry into the U.S. Cannabis Market](https://www.reddit.com/r/wallstreetbets/comments/16ga0fe/canopy_growth_to_fast_track_entry_into_the_us/)
-- [Fucking Algo traders! *Cries in market manipulation*](https://www.reddit.com/r/wallstreetbets/comments/16g7c77/fucking_algo_traders_cries_in_market_manipulation/)
-- [Pot stocks ripping !](https://www.reddit.com/r/wallstreetbets/comments/16g76jq/pot_stocks_ripping/)
-- [Canopy Growth - &gt;100% gain in one week](https://www.reddit.com/r/wallstreetbets/comments/16g7259/canopy_growth_100_gain_in_one_week/)
+- [such a fucking bear.](https://www.reddit.com/r/wallstreetbets/comments/16h6sqx/such_a_fucking_bear/)
+- [Larry Ellison just lost $18 billion in one day after Oracle&#39;s worst trading day since 2002](https://www.reddit.com/r/wallstreetbets/comments/16h3gku/larry_ellison_just_lost_18_billion_in_one_day/)
+- [Is Apple&#39;s new $2000 iPhone and USB-C charging port going to be enough to make up for China&#39;s $300 billion demolition job?](https://www.reddit.com/r/wallstreetbets/comments/16h2wuc/is_apples_new_2000_iphone_and_usbc_charging_port/)
+- [One more thing ](https://www.reddit.com/r/wallstreetbets/comments/16h25s9/one_more_thing/)
+- [Break out the camera and set the table!](https://www.reddit.com/r/wallstreetbets/comments/16h20w9/break_out_the_camera_and_set_the_table/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
