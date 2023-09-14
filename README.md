@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [such a fucking bear.](https://www.reddit.com/r/wallstreetbets/comments/16h6sqx/such_a_fucking_bear/)
-- [Larry Ellison just lost $18 billion in one day after Oracle&#39;s worst trading day since 2002](https://www.reddit.com/r/wallstreetbets/comments/16h3gku/larry_ellison_just_lost_18_billion_in_one_day/)
-- [Is Apple&#39;s new $2000 iPhone and USB-C charging port going to be enough to make up for China&#39;s $300 billion demolition job?](https://www.reddit.com/r/wallstreetbets/comments/16h2wuc/is_apples_new_2000_iphone_and_usbc_charging_port/)
-- [One more thing ](https://www.reddit.com/r/wallstreetbets/comments/16h25s9/one_more_thing/)
-- [Break out the camera and set the table!](https://www.reddit.com/r/wallstreetbets/comments/16h20w9/break_out_the_camera_and_set_the_table/)
+- [iPhone 12 sales BANNED in France over radiation fears - ohh boy](https://www.reddit.com/r/wallstreetbets/comments/16i11ye/iphone_12_sales_banned_in_france_over_radiation/)
+- [Pure regard power](https://www.reddit.com/r/wallstreetbets/comments/16hzvrd/pure_regard_power/)
+- [She just doesn’t get it](https://www.reddit.com/r/wallstreetbets/comments/16hzd0m/she_just_doesnt_get_it/)
+- [Weed Bull Market Confirmed](https://www.reddit.com/r/wallstreetbets/comments/16hz4te/weed_bull_market_confirmed/)
+- [I am YOLOing it all on WEED](https://www.reddit.com/r/wallstreetbets/comments/16hys6e/i_am_yoloing_it_all_on_weed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
