@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [iPhone 12 sales BANNED in France over radiation fears - ohh boy](https://www.reddit.com/r/wallstreetbets/comments/16i11ye/iphone_12_sales_banned_in_france_over_radiation/)
-- [Pure regard power](https://www.reddit.com/r/wallstreetbets/comments/16hzvrd/pure_regard_power/)
-- [She just doesn’t get it](https://www.reddit.com/r/wallstreetbets/comments/16hzd0m/she_just_doesnt_get_it/)
-- [Weed Bull Market Confirmed](https://www.reddit.com/r/wallstreetbets/comments/16hz4te/weed_bull_market_confirmed/)
-- [I am YOLOing it all on WEED](https://www.reddit.com/r/wallstreetbets/comments/16hys6e/i_am_yoloing_it_all_on_weed/)
+- [Did Jimmy boy just mark the bottom for paypal?](https://www.reddit.com/r/wallstreetbets/comments/16iwnig/did_jimmy_boy_just_mark_the_bottom_for_paypal/)
+- [iPhone 12 disaster gets even uglier as two more countries investigate radiation levels](https://www.reddit.com/r/wallstreetbets/comments/16iwh7c/iphone_12_disaster_gets_even_uglier_as_two_more/)
+- [You Really Don’t Own the Shares that Appear in Your Brokerage Account; They Belong to Cede &amp; Company](https://www.reddit.com/r/wallstreetbets/comments/16iwbbd/you_really_dont_own_the_shares_that_appear_in/)
+- [Alright, which one you autists was this.](https://www.reddit.com/r/wallstreetbets/comments/16iw882/alright_which_one_you_autists_was_this/)
+- [0DTE volumes hit new all time high at 49% of all options.](https://www.reddit.com/r/wallstreetbets/comments/16ivxxl/0dte_volumes_hit_new_all_time_high_at_49_of_all/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
