@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Did Jimmy boy just mark the bottom for paypal?](https://www.reddit.com/r/wallstreetbets/comments/16iwnig/did_jimmy_boy_just_mark_the_bottom_for_paypal/)
-- [iPhone 12 disaster gets even uglier as two more countries investigate radiation levels](https://www.reddit.com/r/wallstreetbets/comments/16iwh7c/iphone_12_disaster_gets_even_uglier_as_two_more/)
-- [You Really Don’t Own the Shares that Appear in Your Brokerage Account; They Belong to Cede &amp; Company](https://www.reddit.com/r/wallstreetbets/comments/16iwbbd/you_really_dont_own_the_shares_that_appear_in/)
-- [Alright, which one you autists was this.](https://www.reddit.com/r/wallstreetbets/comments/16iw882/alright_which_one_you_autists_was_this/)
-- [0DTE volumes hit new all time high at 49% of all options.](https://www.reddit.com/r/wallstreetbets/comments/16ivxxl/0dte_volumes_hit_new_all_time_high_at_49_of_all/)
+- [Former Wells Fargo executive avoids prison time for her role in fake-accounts fraud](https://www.reddit.com/r/wallstreetbets/comments/16jr6kf/former_wells_fargo_executive_avoids_prison_time/)
+- [Why this collapse? Is the US in lockdown?](https://www.reddit.com/r/wallstreetbets/comments/16jpxao/why_this_collapse_is_the_us_in_lockdown/)
+- [Senate Vote for SAFE Banking Scheduled on 09/27 MSOS MSOX](https://www.reddit.com/r/wallstreetbets/comments/16jntsk/senate_vote_for_safe_banking_scheduled_on_0927/)
+- [Another Day Another Dollar](https://www.reddit.com/r/wallstreetbets/comments/16jnq02/another_day_another_dollar/)
+- [What happened to the guy that was supposed to eat his dick??](https://www.reddit.com/r/wallstreetbets/comments/16jnju6/what_happened_to_the_guy_that_was_supposed_to_eat/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
