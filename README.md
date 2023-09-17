@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Former Wells Fargo executive avoids prison time for her role in fake-accounts fraud](https://www.reddit.com/r/wallstreetbets/comments/16jr6kf/former_wells_fargo_executive_avoids_prison_time/)
-- [Why this collapse? Is the US in lockdown?](https://www.reddit.com/r/wallstreetbets/comments/16jpxao/why_this_collapse_is_the_us_in_lockdown/)
-- [Senate Vote for SAFE Banking Scheduled on 09/27 MSOS MSOX](https://www.reddit.com/r/wallstreetbets/comments/16jntsk/senate_vote_for_safe_banking_scheduled_on_0927/)
-- [Another Day Another Dollar](https://www.reddit.com/r/wallstreetbets/comments/16jnq02/another_day_another_dollar/)
-- [What happened to the guy that was supposed to eat his dick??](https://www.reddit.com/r/wallstreetbets/comments/16jnju6/what_happened_to_the_guy_that_was_supposed_to_eat/)
+- [CHWY](https://www.reddit.com/r/wallstreetbets/comments/16km79k/chwy/)
+- [I think my trading app broke lol](https://www.reddit.com/r/wallstreetbets/comments/16klom0/i_think_my_trading_app_broke_lol/)
+- [Roman silver denarius vs FED&#39;s balance sheet](https://www.reddit.com/r/wallstreetbets/comments/16kkanj/roman_silver_denarius_vs_feds_balance_sheet/)
+- [I am long SPY. Should I get out now and wait for a crash?](https://www.reddit.com/r/wallstreetbets/comments/16kja4i/i_am_long_spy_should_i_get_out_now_and_wait_for_a/)
+- [Dollar General Tso’s Chicken](https://www.reddit.com/r/wallstreetbets/comments/16khw0e/dollar_general_tsos_chicken/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
