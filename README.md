@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CHWY](https://www.reddit.com/r/wallstreetbets/comments/16km79k/chwy/)
-- [I think my trading app broke lol](https://www.reddit.com/r/wallstreetbets/comments/16klom0/i_think_my_trading_app_broke_lol/)
-- [Roman silver denarius vs FED&#39;s balance sheet](https://www.reddit.com/r/wallstreetbets/comments/16kkanj/roman_silver_denarius_vs_feds_balance_sheet/)
-- [I am long SPY. Should I get out now and wait for a crash?](https://www.reddit.com/r/wallstreetbets/comments/16kja4i/i_am_long_spy_should_i_get_out_now_and_wait_for_a/)
-- [Dollar General Tso’s Chicken](https://www.reddit.com/r/wallstreetbets/comments/16khw0e/dollar_general_tsos_chicken/)
+- [SPY calls?](https://www.reddit.com/r/wallstreetbets/comments/16lgsn3/spy_calls/)
+- [BYD - thoughts and mockery please](https://www.reddit.com/r/wallstreetbets/comments/16leajl/byd_thoughts_and_mockery_please/)
+- [Spacex investing in private market](https://www.reddit.com/r/wallstreetbets/comments/16ldspm/spacex_investing_in_private_market/)
+- [Wall Street Bet Big on Used-Car Loans for Years. Now a Crisis May Be Looming.](https://www.reddit.com/r/wallstreetbets/comments/16lch2c/wall_street_bet_big_on_usedcar_loans_for_years/)
+- [What Are Your Moves Tomorrow, September 18, 2023](https://www.reddit.com/r/wallstreetbets/comments/16laitz/what_are_your_moves_tomorrow_september_18_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
