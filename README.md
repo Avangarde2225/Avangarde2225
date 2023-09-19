@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPY calls?](https://www.reddit.com/r/wallstreetbets/comments/16lgsn3/spy_calls/)
-- [BYD - thoughts and mockery please](https://www.reddit.com/r/wallstreetbets/comments/16leajl/byd_thoughts_and_mockery_please/)
-- [Spacex investing in private market](https://www.reddit.com/r/wallstreetbets/comments/16ldspm/spacex_investing_in_private_market/)
-- [Wall Street Bet Big on Used-Car Loans for Years. Now a Crisis May Be Looming.](https://www.reddit.com/r/wallstreetbets/comments/16lch2c/wall_street_bet_big_on_usedcar_loans_for_years/)
-- [What Are Your Moves Tomorrow, September 18, 2023](https://www.reddit.com/r/wallstreetbets/comments/16laitz/what_are_your_moves_tomorrow_september_18_2023/)
+- [Fuck your puts, fuck your calls](https://www.reddit.com/r/wallstreetbets/comments/16ma4qj/fuck_your_puts_fuck_your_calls/)
+- [Friendly fire friendly fire](https://www.reddit.com/r/wallstreetbets/comments/16m97bn/friendly_fire_friendly_fire/)
+- [X/Twitter is planning on introducing a monthly paywall fee, Elon Musk says](https://www.reddit.com/r/wallstreetbets/comments/16m8wo3/xtwitter_is_planning_on_introducing_a_monthly/)
+- [It’s all over guys, first margin call](https://www.reddit.com/r/wallstreetbets/comments/16m8jzp/its_all_over_guys_first_margin_call/)
+- [Most Anticipated Earnings Releases for the week beginning September 18th, 2023](https://www.reddit.com/r/wallstreetbets/comments/16m8jnr/most_anticipated_earnings_releases_for_the_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
