@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fuck your puts, fuck your calls](https://www.reddit.com/r/wallstreetbets/comments/16ma4qj/fuck_your_puts_fuck_your_calls/)
-- [Friendly fire friendly fire](https://www.reddit.com/r/wallstreetbets/comments/16m97bn/friendly_fire_friendly_fire/)
-- [X/Twitter is planning on introducing a monthly paywall fee, Elon Musk says](https://www.reddit.com/r/wallstreetbets/comments/16m8wo3/xtwitter_is_planning_on_introducing_a_monthly/)
-- [It’s all over guys, first margin call](https://www.reddit.com/r/wallstreetbets/comments/16m8jzp/its_all_over_guys_first_margin_call/)
-- [Most Anticipated Earnings Releases for the week beginning September 18th, 2023](https://www.reddit.com/r/wallstreetbets/comments/16m8jnr/most_anticipated_earnings_releases_for_the_week/)
+- [$MSOS - &quot;Chuck Schumer says the new SAFER Banking Act allows legal cannabis businesses to access to financial services&quot; NYSE / NASDAQ 🌿🔥😎](https://www.reddit.com/r/wallstreetbets/comments/16n575w/msos_chuck_schumer_says_the_new_safer_banking_act/)
+- [Pre-FOMC: Is the Fed &quot;a Fed&quot;?](https://www.reddit.com/r/wallstreetbets/comments/16n3zph/prefomc_is_the_fed_a_fed/)
+- [Elon Musk’s Neuralink wants volunteers for first human trial of its brain implant chips](https://www.reddit.com/r/wallstreetbets/comments/16n37ww/elon_musks_neuralink_wants_volunteers_for_first/)
+- [Thinking about going all in with 5 year long paypal calls tomorrow… is this dumb?](https://www.reddit.com/r/wallstreetbets/comments/16n33v2/thinking_about_going_all_in_with_5_year_long/)
+- [Unity - We&#39;re sorry!](https://www.reddit.com/r/wallstreetbets/comments/16n319s/unity_were_sorry/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
