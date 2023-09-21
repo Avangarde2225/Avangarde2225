@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$MSOS - &quot;Chuck Schumer says the new SAFER Banking Act allows legal cannabis businesses to access to financial services&quot; NYSE / NASDAQ 🌿🔥😎](https://www.reddit.com/r/wallstreetbets/comments/16n575w/msos_chuck_schumer_says_the_new_safer_banking_act/)
-- [Pre-FOMC: Is the Fed &quot;a Fed&quot;?](https://www.reddit.com/r/wallstreetbets/comments/16n3zph/prefomc_is_the_fed_a_fed/)
-- [Elon Musk’s Neuralink wants volunteers for first human trial of its brain implant chips](https://www.reddit.com/r/wallstreetbets/comments/16n37ww/elon_musks_neuralink_wants_volunteers_for_first/)
-- [Thinking about going all in with 5 year long paypal calls tomorrow… is this dumb?](https://www.reddit.com/r/wallstreetbets/comments/16n33v2/thinking_about_going_all_in_with_5_year_long/)
-- [Unity - We&#39;re sorry!](https://www.reddit.com/r/wallstreetbets/comments/16n319s/unity_were_sorry/)
+- [Dollar General is in a ‘really bad situation,’ and investors should stay away, Jim Cramer says](https://www.reddit.com/r/wallstreetbets/comments/16nzdsr/dollar_general_is_in_a_really_bad_situation_and/)
+- [Is This the Best VisualMod Response?](https://www.reddit.com/r/wallstreetbets/comments/16nyzfg/is_this_the_best_visualmod_response/)
+- [Bulls this week](https://www.reddit.com/r/wallstreetbets/comments/16nwynj/bulls_this_week/)
+- [Goodbye 👋 RH](https://www.reddit.com/r/wallstreetbets/comments/16nwwxn/goodbye_rh/)
+- [Trading is sooo easy. Stocks just go down.](https://www.reddit.com/r/wallstreetbets/comments/16nwmut/trading_is_sooo_easy_stocks_just_go_down/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
