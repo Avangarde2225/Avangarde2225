@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dollar General is in a ‘really bad situation,’ and investors should stay away, Jim Cramer says](https://www.reddit.com/r/wallstreetbets/comments/16nzdsr/dollar_general_is_in_a_really_bad_situation_and/)
-- [Is This the Best VisualMod Response?](https://www.reddit.com/r/wallstreetbets/comments/16nyzfg/is_this_the_best_visualmod_response/)
-- [Bulls this week](https://www.reddit.com/r/wallstreetbets/comments/16nwynj/bulls_this_week/)
-- [Goodbye 👋 RH](https://www.reddit.com/r/wallstreetbets/comments/16nwwxn/goodbye_rh/)
-- [Trading is sooo easy. Stocks just go down.](https://www.reddit.com/r/wallstreetbets/comments/16nwmut/trading_is_sooo_easy_stocks_just_go_down/)
+- [Anyone have room in their dumpster for me?](https://www.reddit.com/r/wallstreetbets/comments/16ov0ps/anyone_have_room_in_their_dumpster_for_me/)
+- [Mortgage Rates Jump up to 23-Year Highs. 7.47% 30Yr.](https://www.reddit.com/r/wallstreetbets/comments/16oseu7/mortgage_rates_jump_up_to_23year_highs_747_30yr/)
+- [How you guys like my porn?](https://www.reddit.com/r/wallstreetbets/comments/16org3m/how_you_guys_like_my_porn/)
+- [Some is getting a SEC visit](https://www.reddit.com/r/wallstreetbets/comments/16orc85/some_is_getting_a_sec_visit/)
+- [You people don&#39;t understand options AT ALL.](https://www.reddit.com/r/wallstreetbets/comments/16oquom/you_people_dont_understand_options_at_all/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
