@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anyone have room in their dumpster for me?](https://www.reddit.com/r/wallstreetbets/comments/16ov0ps/anyone_have_room_in_their_dumpster_for_me/)
-- [Mortgage Rates Jump up to 23-Year Highs. 7.47% 30Yr.](https://www.reddit.com/r/wallstreetbets/comments/16oseu7/mortgage_rates_jump_up_to_23year_highs_747_30yr/)
-- [How you guys like my porn?](https://www.reddit.com/r/wallstreetbets/comments/16org3m/how_you_guys_like_my_porn/)
-- [Some is getting a SEC visit](https://www.reddit.com/r/wallstreetbets/comments/16orc85/some_is_getting_a_sec_visit/)
-- [You people don&#39;t understand options AT ALL.](https://www.reddit.com/r/wallstreetbets/comments/16oquom/you_people_dont_understand_options_at_all/)
+- [What the heck is going on with this housing market?](https://www.reddit.com/r/wallstreetbets/comments/16pozsr/what_the_heck_is_going_on_with_this_housing_market/)
+- [Well I&#39;m fucked](https://www.reddit.com/r/wallstreetbets/comments/16pobcx/well_im_fucked/)
+- [GOP Senators File Bill To Block Biden Marijuana Rescheduling Effort Without Congressional Approval - Marijuana Moment](https://www.reddit.com/r/wallstreetbets/comments/16po7hx/gop_senators_file_bill_to_block_biden_marijuana/)
+- [My realtor said so when she delivered my pizza to me](https://www.reddit.com/r/wallstreetbets/comments/16pnvbm/my_realtor_said_so_when_she_delivered_my_pizza_to/)
+- [They are coming for you](https://www.reddit.com/r/wallstreetbets/comments/16pnnzw/they_are_coming_for_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
