@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What the heck is going on with this housing market?](https://www.reddit.com/r/wallstreetbets/comments/16pozsr/what_the_heck_is_going_on_with_this_housing_market/)
-- [Well I&#39;m fucked](https://www.reddit.com/r/wallstreetbets/comments/16pobcx/well_im_fucked/)
-- [GOP Senators File Bill To Block Biden Marijuana Rescheduling Effort Without Congressional Approval - Marijuana Moment](https://www.reddit.com/r/wallstreetbets/comments/16po7hx/gop_senators_file_bill_to_block_biden_marijuana/)
-- [My realtor said so when she delivered my pizza to me](https://www.reddit.com/r/wallstreetbets/comments/16pnvbm/my_realtor_said_so_when_she_delivered_my_pizza_to/)
-- [They are coming for you](https://www.reddit.com/r/wallstreetbets/comments/16pnnzw/they_are_coming_for_you/)
+- [Xi says he will seriously consider visit to South Korea: official](https://www.reddit.com/r/wallstreetbets/comments/16qhy8t/xi_says_he_will_seriously_consider_visit_to_south/)
+- [Some interesting quotes from Michael Hartnett&#39;s latest note.](https://www.reddit.com/r/wallstreetbets/comments/16qge3o/some_interesting_quotes_from_michael_hartnetts/)
+- [Seems highly regarded indeed](https://www.reddit.com/r/wallstreetbets/comments/16qe7ru/seems_highly_regarded_indeed/)
+- [Loss Porn - Tank You WSB](https://www.reddit.com/r/wallstreetbets/comments/16qe7kb/loss_porn_tank_you_wsb/)
+- [Story time - Loss porn](https://www.reddit.com/r/wallstreetbets/comments/16qdzwu/story_time_loss_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
