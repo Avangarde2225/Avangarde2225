@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Xi says he will seriously consider visit to South Korea: official](https://www.reddit.com/r/wallstreetbets/comments/16qhy8t/xi_says_he_will_seriously_consider_visit_to_south/)
-- [Some interesting quotes from Michael Hartnett&#39;s latest note.](https://www.reddit.com/r/wallstreetbets/comments/16qge3o/some_interesting_quotes_from_michael_hartnetts/)
-- [Seems highly regarded indeed](https://www.reddit.com/r/wallstreetbets/comments/16qe7ru/seems_highly_regarded_indeed/)
-- [Loss Porn - Tank You WSB](https://www.reddit.com/r/wallstreetbets/comments/16qe7kb/loss_porn_tank_you_wsb/)
-- [Story time - Loss porn](https://www.reddit.com/r/wallstreetbets/comments/16qdzwu/story_time_loss_porn/)
+- [Top losers in SPY YTD](https://www.reddit.com/r/wallstreetbets/comments/16rdatl/top_losers_in_spy_ytd/)
+- [Big In Japan](https://www.reddit.com/r/wallstreetbets/comments/16rd7b3/big_in_japan/)
+- [Original post got banned cuz I was regranded 😂](https://www.reddit.com/r/wallstreetbets/comments/16ral09/original_post_got_banned_cuz_i_was_regranded/)
+- [I like to create animations - anyone some WSB animation ideas for me?](https://www.reddit.com/r/wallstreetbets/comments/16ra317/i_like_to_create_animations_anyone_some_wsb/)
+- [ARM IPO Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/16r8xys/arm_ipo_technical_analysis/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
