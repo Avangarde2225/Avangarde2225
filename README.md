@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Top losers in SPY YTD](https://www.reddit.com/r/wallstreetbets/comments/16rdatl/top_losers_in_spy_ytd/)
-- [Big In Japan](https://www.reddit.com/r/wallstreetbets/comments/16rd7b3/big_in_japan/)
-- [Original post got banned cuz I was regranded 😂](https://www.reddit.com/r/wallstreetbets/comments/16ral09/original_post_got_banned_cuz_i_was_regranded/)
-- [I like to create animations - anyone some WSB animation ideas for me?](https://www.reddit.com/r/wallstreetbets/comments/16ra317/i_like_to_create_animations_anyone_some_wsb/)
-- [ARM IPO Technical Analysis](https://www.reddit.com/r/wallstreetbets/comments/16r8xys/arm_ipo_technical_analysis/)
+- [Ken Griffin gives Reddit &amp; Dumb Money a shoutout in this candid speech](https://www.reddit.com/r/wallstreetbets/comments/16s80ra/ken_griffin_gives_reddit_dumb_money_a_shoutout_in/)
+- [I fear no man](https://www.reddit.com/r/wallstreetbets/comments/16s6tr0/i_fear_no_man/)
+- [I’m not very good at this](https://www.reddit.com/r/wallstreetbets/comments/16s5toz/im_not_very_good_at_this/)
+- [Apple’s Cheapest iPhone Surges in Popularity After Upgrades](https://www.reddit.com/r/wallstreetbets/comments/16s5rdj/apples_cheapest_iphone_surges_in_popularity_after/)
+- [I Don’t Believe in Coincidences.. &lpar;see both charts&rpar;](https://www.reddit.com/r/wallstreetbets/comments/16s557s/i_dont_believe_in_coincidences_see_both_charts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
