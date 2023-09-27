@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ken Griffin gives Reddit &amp; Dumb Money a shoutout in this candid speech](https://www.reddit.com/r/wallstreetbets/comments/16s80ra/ken_griffin_gives_reddit_dumb_money_a_shoutout_in/)
-- [I fear no man](https://www.reddit.com/r/wallstreetbets/comments/16s6tr0/i_fear_no_man/)
-- [I’m not very good at this](https://www.reddit.com/r/wallstreetbets/comments/16s5toz/im_not_very_good_at_this/)
-- [Apple’s Cheapest iPhone Surges in Popularity After Upgrades](https://www.reddit.com/r/wallstreetbets/comments/16s5rdj/apples_cheapest_iphone_surges_in_popularity_after/)
-- [I Don’t Believe in Coincidences.. &lpar;see both charts&rpar;](https://www.reddit.com/r/wallstreetbets/comments/16s557s/i_dont_believe_in_coincidences_see_both_charts/)
+- [BTMFDippers](https://www.reddit.com/r/wallstreetbets/comments/16t49o6/btmfdippers/)
+- [The stock market once I think its safe to put all my money in it](https://www.reddit.com/r/wallstreetbets/comments/16t3v9y/the_stock_market_once_i_think_its_safe_to_put_all/)
+- [Target says it will close nine stores in major cities, citing violence and theft](https://www.reddit.com/r/wallstreetbets/comments/16t2l6d/target_says_it_will_close_nine_stores_in_major/)
+- [&quot;Mama always said, dumping was a part of life. I sure wish it wasn&#39;t.&quot; - Forrest Gump](https://www.reddit.com/r/wallstreetbets/comments/16t1ms8/mama_always_said_dumping_was_a_part_of_life_i/)
+- [Today&#39;s trading day in one clip](https://www.reddit.com/r/wallstreetbets/comments/16t1cs1/todays_trading_day_in_one_clip/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
