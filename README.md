@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BTMFDippers](https://www.reddit.com/r/wallstreetbets/comments/16t49o6/btmfdippers/)
-- [The stock market once I think its safe to put all my money in it](https://www.reddit.com/r/wallstreetbets/comments/16t3v9y/the_stock_market_once_i_think_its_safe_to_put_all/)
-- [Target says it will close nine stores in major cities, citing violence and theft](https://www.reddit.com/r/wallstreetbets/comments/16t2l6d/target_says_it_will_close_nine_stores_in_major/)
-- [&quot;Mama always said, dumping was a part of life. I sure wish it wasn&#39;t.&quot; - Forrest Gump](https://www.reddit.com/r/wallstreetbets/comments/16t1ms8/mama_always_said_dumping_was_a_part_of_life_i/)
-- [Today&#39;s trading day in one clip](https://www.reddit.com/r/wallstreetbets/comments/16t1cs1/todays_trading_day_in_one_clip/)
+- [Bulls and bears, it&#39;s now or never !!!](https://www.reddit.com/r/wallstreetbets/comments/16u0bln/bulls_and_bears_its_now_or_never/)
+- [Take the ride with me- meta puts at open-meta calls at $290- all in nvda 2dte puts at close](https://www.reddit.com/r/wallstreetbets/comments/16tyhni/take_the_ride_with_me_meta_puts_at_openmeta_calls/)
+- [US Treasuries breaking-down much faster than junk bonds.](https://www.reddit.com/r/wallstreetbets/comments/16tygu4/us_treasuries_breakingdown_much_faster_than_junk/)
+- [Apple&#39;s share price dips again amid growing reports iPhone 15 Pro&#39;s are overheating so much, users can&#39;t actually hold them](https://www.reddit.com/r/wallstreetbets/comments/16tyduv/apples_share_price_dips_again_amid_growing/)
+- [Me IRL Trying to Recover my September Losses](https://www.reddit.com/r/wallstreetbets/comments/16tycrs/me_irl_trying_to_recover_my_september_losses/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
