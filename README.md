@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bulls and bears, it&#39;s now or never !!!](https://www.reddit.com/r/wallstreetbets/comments/16u0bln/bulls_and_bears_its_now_or_never/)
-- [Take the ride with me- meta puts at open-meta calls at $290- all in nvda 2dte puts at close](https://www.reddit.com/r/wallstreetbets/comments/16tyhni/take_the_ride_with_me_meta_puts_at_openmeta_calls/)
-- [US Treasuries breaking-down much faster than junk bonds.](https://www.reddit.com/r/wallstreetbets/comments/16tygu4/us_treasuries_breakingdown_much_faster_than_junk/)
-- [Apple&#39;s share price dips again amid growing reports iPhone 15 Pro&#39;s are overheating so much, users can&#39;t actually hold them](https://www.reddit.com/r/wallstreetbets/comments/16tyduv/apples_share_price_dips_again_amid_growing/)
-- [Me IRL Trying to Recover my September Losses](https://www.reddit.com/r/wallstreetbets/comments/16tycrs/me_irl_trying_to_recover_my_september_losses/)
+- [Loss porn](https://www.reddit.com/r/wallstreetbets/comments/16uva6o/loss_porn/)
+- [Market crash is now happening, always inverse WSB](https://www.reddit.com/r/wallstreetbets/comments/16uufih/market_crash_is_now_happening_always_inverse_wsb/)
+- [how absolutely fkd am i?](https://www.reddit.com/r/wallstreetbets/comments/16usx7h/how_absolutely_fkd_am_i/)
+- [SEC has charged a former Goldman Sachs employee with insider trading, alleging he used Xbox 360 chats to pass insider information](https://www.reddit.com/r/wallstreetbets/comments/16usgd2/sec_has_charged_a_former_goldman_sachs_employee/)
+- [Market crash is now not happening, always inverse WSB](https://www.reddit.com/r/wallstreetbets/comments/16uscml/market_crash_is_now_not_happening_always_inverse/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
