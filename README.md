@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Loss porn](https://www.reddit.com/r/wallstreetbets/comments/16uva6o/loss_porn/)
-- [Market crash is now happening, always inverse WSB](https://www.reddit.com/r/wallstreetbets/comments/16uufih/market_crash_is_now_happening_always_inverse_wsb/)
-- [how absolutely fkd am i?](https://www.reddit.com/r/wallstreetbets/comments/16usx7h/how_absolutely_fkd_am_i/)
-- [SEC has charged a former Goldman Sachs employee with insider trading, alleging he used Xbox 360 chats to pass insider information](https://www.reddit.com/r/wallstreetbets/comments/16usgd2/sec_has_charged_a_former_goldman_sachs_employee/)
-- [Market crash is now not happening, always inverse WSB](https://www.reddit.com/r/wallstreetbets/comments/16uscml/market_crash_is_now_not_happening_always_inverse/)
+- [0dte Calls All October…Can’t Go Tits Up](https://www.reddit.com/r/wallstreetbets/comments/16vq7cn/0dte_calls_all_octobercant_go_tits_up/)
+- [BANKRUPTCY Bed Bath &amp; Beyond Shares Have Finally Been Extinguished](https://www.reddit.com/r/wallstreetbets/comments/16vowmj/bankruptcy_bed_bath_beyond_shares_have_finally/)
+- [My loss today and advice for others](https://www.reddit.com/r/wallstreetbets/comments/16vo3s7/my_loss_today_and_advice_for_others/)
+- [$512 to $51,731 &lpar;10,000% gain&rpar; in 11 days SPY options](https://www.reddit.com/r/wallstreetbets/comments/16vnnwl/512_to_51731_10000_gain_in_11_days_spy_options/)
+- [How to get rich instantly](https://www.reddit.com/r/wallstreetbets/comments/16vnbqu/how_to_get_rich_instantly/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
