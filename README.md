@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [0dte Calls All October…Can’t Go Tits Up](https://www.reddit.com/r/wallstreetbets/comments/16vq7cn/0dte_calls_all_octobercant_go_tits_up/)
-- [BANKRUPTCY Bed Bath &amp; Beyond Shares Have Finally Been Extinguished](https://www.reddit.com/r/wallstreetbets/comments/16vowmj/bankruptcy_bed_bath_beyond_shares_have_finally/)
-- [My loss today and advice for others](https://www.reddit.com/r/wallstreetbets/comments/16vo3s7/my_loss_today_and_advice_for_others/)
-- [$512 to $51,731 &lpar;10,000% gain&rpar; in 11 days SPY options](https://www.reddit.com/r/wallstreetbets/comments/16vnnwl/512_to_51731_10000_gain_in_11_days_spy_options/)
-- [How to get rich instantly](https://www.reddit.com/r/wallstreetbets/comments/16vnbqu/how_to_get_rich_instantly/)
+- [Saw this driving home from the airport in chicago... seems legit](https://www.reddit.com/r/wallstreetbets/comments/16wlk24/saw_this_driving_home_from_the_airport_in_chicago/)
+- [Puts on the unemployment rate ?](https://www.reddit.com/r/wallstreetbets/comments/16wlbvj/puts_on_the_unemployment_rate/)
+- [Should I Sell And Full Time Trade?](https://www.reddit.com/r/wallstreetbets/comments/16wl40k/should_i_sell_and_full_time_trade/)
+- [&quot;Free&quot; Healthcare to Cover Injuries from Hard Landing?](https://www.reddit.com/r/wallstreetbets/comments/16wkbuh/free_healthcare_to_cover_injuries_from_hard/)
+- [Here we come boys](https://www.reddit.com/r/wallstreetbets/comments/16wje6p/here_we_come_boys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
