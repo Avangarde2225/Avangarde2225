@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Saw this driving home from the airport in chicago... seems legit](https://www.reddit.com/r/wallstreetbets/comments/16wlk24/saw_this_driving_home_from_the_airport_in_chicago/)
-- [Puts on the unemployment rate ?](https://www.reddit.com/r/wallstreetbets/comments/16wlbvj/puts_on_the_unemployment_rate/)
-- [Should I Sell And Full Time Trade?](https://www.reddit.com/r/wallstreetbets/comments/16wl40k/should_i_sell_and_full_time_trade/)
-- [&quot;Free&quot; Healthcare to Cover Injuries from Hard Landing?](https://www.reddit.com/r/wallstreetbets/comments/16wkbuh/free_healthcare_to_cover_injuries_from_hard/)
-- [Here we come boys](https://www.reddit.com/r/wallstreetbets/comments/16wje6p/here_we_come_boys/)
+- [Panama canal reduces daily ship traffic by 3%, 18% in the last two years. Inflation incoming](https://www.reddit.com/r/wallstreetbets/comments/16xgwoy/panama_canal_reduces_daily_ship_traffic_by_3_18/)
+- [Why I Believe LAC Is a Potential Game-Changer 🚀🌋](https://www.reddit.com/r/wallstreetbets/comments/16xgt1m/why_i_believe_lac_is_a_potential_gamechanger/)
+- [Cybertruck in the wild](https://www.reddit.com/r/wallstreetbets/comments/16xd97o/cybertruck_in_the_wild/)
+- [Anyway to short california gas?](https://www.reddit.com/r/wallstreetbets/comments/16xco1g/anyway_to_short_california_gas/)
+- [What&#39;s Your &lpar;Next&rpar; 45 Day Plan?](https://www.reddit.com/r/wallstreetbets/comments/16xc7qz/whats_your_next_45_day_plan/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
