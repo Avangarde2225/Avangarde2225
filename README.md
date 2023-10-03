@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Panama canal reduces daily ship traffic by 3%, 18% in the last two years. Inflation incoming](https://www.reddit.com/r/wallstreetbets/comments/16xgwoy/panama_canal_reduces_daily_ship_traffic_by_3_18/)
-- [Why I Believe LAC Is a Potential Game-Changer 🚀🌋](https://www.reddit.com/r/wallstreetbets/comments/16xgt1m/why_i_believe_lac_is_a_potential_gamechanger/)
-- [Cybertruck in the wild](https://www.reddit.com/r/wallstreetbets/comments/16xd97o/cybertruck_in_the_wild/)
-- [Anyway to short california gas?](https://www.reddit.com/r/wallstreetbets/comments/16xco1g/anyway_to_short_california_gas/)
-- [What&#39;s Your &lpar;Next&rpar; 45 Day Plan?](https://www.reddit.com/r/wallstreetbets/comments/16xc7qz/whats_your_next_45_day_plan/)
+- [Is this what it takes?](https://www.reddit.com/r/wallstreetbets/comments/16yd0pf/is_this_what_it_takes/)
+- [Reuters made my day](https://www.reddit.com/r/wallstreetbets/comments/16ybwbx/reuters_made_my_day/)
+- [Market today](https://www.reddit.com/r/wallstreetbets/comments/16ybnzq/market_today/)
+- [$47 billion to $280 million: What went wrong at WeWork?](https://www.reddit.com/r/wallstreetbets/comments/16y8tml/47_billion_to_280_million_what_went_wrong_at/)
+- [Hell is coming](https://www.reddit.com/r/wallstreetbets/comments/16y7z87/hell_is_coming/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
