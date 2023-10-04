@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is this what it takes?](https://www.reddit.com/r/wallstreetbets/comments/16yd0pf/is_this_what_it_takes/)
-- [Reuters made my day](https://www.reddit.com/r/wallstreetbets/comments/16ybwbx/reuters_made_my_day/)
-- [Market today](https://www.reddit.com/r/wallstreetbets/comments/16ybnzq/market_today/)
-- [$47 billion to $280 million: What went wrong at WeWork?](https://www.reddit.com/r/wallstreetbets/comments/16y8tml/47_billion_to_280_million_what_went_wrong_at/)
-- [Hell is coming](https://www.reddit.com/r/wallstreetbets/comments/16y7z87/hell_is_coming/)
+- [Barely hung in there today](https://www.reddit.com/r/wallstreetbets/comments/16z667c/barely_hung_in_there_today/)
+- [Investor Sentiment In the U.S. Stock Market Has Plummeted To Extreme Fear Levels.](https://www.reddit.com/r/wallstreetbets/comments/16z5b19/investor_sentiment_in_the_us_stock_market_has/)
+- [Spy put holders today](https://www.reddit.com/r/wallstreetbets/comments/16z4cdb/spy_put_holders_today/)
+- [Nadella estimates that Microsoft has invested a total of $100B in Bing and admits that &#39;Google&#39; is the most common search query](https://www.reddit.com/r/wallstreetbets/comments/16z3vxf/nadella_estimates_that_microsoft_has_invested_a/)
+- [US Speaker Removed Implications on Spending Bill](https://www.reddit.com/r/wallstreetbets/comments/16z3n3i/us_speaker_removed_implications_on_spending_bill/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
