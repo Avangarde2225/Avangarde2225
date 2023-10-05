@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Barely hung in there today](https://www.reddit.com/r/wallstreetbets/comments/16z667c/barely_hung_in_there_today/)
-- [Investor Sentiment In the U.S. Stock Market Has Plummeted To Extreme Fear Levels.](https://www.reddit.com/r/wallstreetbets/comments/16z5b19/investor_sentiment_in_the_us_stock_market_has/)
-- [Spy put holders today](https://www.reddit.com/r/wallstreetbets/comments/16z4cdb/spy_put_holders_today/)
-- [Nadella estimates that Microsoft has invested a total of $100B in Bing and admits that &#39;Google&#39; is the most common search query](https://www.reddit.com/r/wallstreetbets/comments/16z3vxf/nadella_estimates_that_microsoft_has_invested_a/)
-- [US Speaker Removed Implications on Spending Bill](https://www.reddit.com/r/wallstreetbets/comments/16z3n3i/us_speaker_removed_implications_on_spending_bill/)
+- [Elon selling more TSLA stock soon ?](https://www.reddit.com/r/wallstreetbets/comments/1701ddo/elon_selling_more_tsla_stock_soon/)
+- [Netflix Is Going To Miss Q3 Earnings](https://www.reddit.com/r/wallstreetbets/comments/16zzvor/netflix_is_going_to_miss_q3_earnings/)
+- [How tf are some of you okay with these losses?](https://www.reddit.com/r/wallstreetbets/comments/16zzv4s/how_tf_are_some_of_you_okay_with_these_losses/)
+- [$MMM - &lpar;3M Technical ANALysis&rpar;](https://www.reddit.com/r/wallstreetbets/comments/16zyqxh/mmm_3m_technical_analysis/)
+- [Why Bears Should Be Taking Profits at This Point: What to Expect Next](https://www.reddit.com/r/wallstreetbets/comments/16zxbi6/why_bears_should_be_taking_profits_at_this_point/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
