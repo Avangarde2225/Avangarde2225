@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Elon selling more TSLA stock soon ?](https://www.reddit.com/r/wallstreetbets/comments/1701ddo/elon_selling_more_tsla_stock_soon/)
-- [Netflix Is Going To Miss Q3 Earnings](https://www.reddit.com/r/wallstreetbets/comments/16zzvor/netflix_is_going_to_miss_q3_earnings/)
-- [How tf are some of you okay with these losses?](https://www.reddit.com/r/wallstreetbets/comments/16zzv4s/how_tf_are_some_of_you_okay_with_these_losses/)
-- [$MMM - &lpar;3M Technical ANALysis&rpar;](https://www.reddit.com/r/wallstreetbets/comments/16zyqxh/mmm_3m_technical_analysis/)
-- [Why Bears Should Be Taking Profits at This Point: What to Expect Next](https://www.reddit.com/r/wallstreetbets/comments/16zxbi6/why_bears_should_be_taking_profits_at_this_point/)
+- [Female engineer sues SpaceX for pay discrimination—alleges she was paid $23,000 less than male co-workers](https://www.reddit.com/r/wallstreetbets/comments/170vzyo/female_engineer_sues_spacex_for_pay/)
+- [RIVN 2500 shares YOLO](https://www.reddit.com/r/wallstreetbets/comments/170ughi/rivn_2500_shares_yolo/)
+- [Had some quality chat with my regarded in-law](https://www.reddit.com/r/wallstreetbets/comments/170ue9p/had_some_quality_chat_with_my_regarded_inlaw/)
+- [New data reveals a crash not seen since Great Depression could hit in 2024](https://www.reddit.com/r/wallstreetbets/comments/170typ9/new_data_reveals_a_crash_not_seen_since_great/)
+- [BTC](https://www.reddit.com/r/wallstreetbets/comments/170tfqx/btc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
