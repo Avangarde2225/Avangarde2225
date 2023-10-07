@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Female engineer sues SpaceX for pay discrimination—alleges she was paid $23,000 less than male co-workers](https://www.reddit.com/r/wallstreetbets/comments/170vzyo/female_engineer_sues_spacex_for_pay/)
-- [RIVN 2500 shares YOLO](https://www.reddit.com/r/wallstreetbets/comments/170ughi/rivn_2500_shares_yolo/)
-- [Had some quality chat with my regarded in-law](https://www.reddit.com/r/wallstreetbets/comments/170ue9p/had_some_quality_chat_with_my_regarded_inlaw/)
-- [New data reveals a crash not seen since Great Depression could hit in 2024](https://www.reddit.com/r/wallstreetbets/comments/170typ9/new_data_reveals_a_crash_not_seen_since_great/)
-- [BTC](https://www.reddit.com/r/wallstreetbets/comments/170tfqx/btc/)
+- [This sums up a lot of us](https://www.reddit.com/r/wallstreetbets/comments/171rx5z/this_sums_up_a_lot_of_us/)
+- [Buckle up, rates are going back to the 80s](https://www.reddit.com/r/wallstreetbets/comments/171p1ob/buckle_up_rates_are_going_back_to_the_80s/)
+- [LCID Stock: Lucid Motors Loses $338,000 For Every Car It Delivered](https://www.reddit.com/r/wallstreetbets/comments/171nwt8/lcid_stock_lucid_motors_loses_338000_for_every/)
+- [Spy Gay Bear Formation](https://www.reddit.com/r/wallstreetbets/comments/171nfph/spy_gay_bear_formation/)
+- [TSLA to the Marinara Trench: 40k in Puts](https://www.reddit.com/r/wallstreetbets/comments/171nbz5/tsla_to_the_marinara_trench_40k_in_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
