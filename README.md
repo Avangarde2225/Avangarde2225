@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This sums up a lot of us](https://www.reddit.com/r/wallstreetbets/comments/171rx5z/this_sums_up_a_lot_of_us/)
-- [Buckle up, rates are going back to the 80s](https://www.reddit.com/r/wallstreetbets/comments/171p1ob/buckle_up_rates_are_going_back_to_the_80s/)
-- [LCID Stock: Lucid Motors Loses $338,000 For Every Car It Delivered](https://www.reddit.com/r/wallstreetbets/comments/171nwt8/lcid_stock_lucid_motors_loses_338000_for_every/)
-- [Spy Gay Bear Formation](https://www.reddit.com/r/wallstreetbets/comments/171nfph/spy_gay_bear_formation/)
-- [TSLA to the Marinara Trench: 40k in Puts](https://www.reddit.com/r/wallstreetbets/comments/171nbz5/tsla_to_the_marinara_trench_40k_in_puts/)
+- [Just bought my 1 hour expiry options.](https://www.reddit.com/r/wallstreetbets/comments/172k04g/just_bought_my_1_hour_expiry_options/)
+- [Hetty Green &lpar;1834-1916&rpar; “The Witch of Wall Street” was the richest women of her time. She refused to pay for hot water &amp; only owned 1 dress](https://www.reddit.com/r/wallstreetbets/comments/172jwee/hetty_green_18341916_the_witch_of_wall_street_was/)
+- [Is Bill Ackman feeling ok?](https://www.reddit.com/r/wallstreetbets/comments/172jqpv/is_bill_ackman_feeling_ok/)
+- [The Warning Signs Are Getting Ridiculous!](https://www.reddit.com/r/wallstreetbets/comments/172g47r/the_warning_signs_are_getting_ridiculous/)
+- [2008](https://www.reddit.com/r/wallstreetbets/comments/172f0ic/2008/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
