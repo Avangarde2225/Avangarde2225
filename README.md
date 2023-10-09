@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Just bought my 1 hour expiry options.](https://www.reddit.com/r/wallstreetbets/comments/172k04g/just_bought_my_1_hour_expiry_options/)
-- [Hetty Green &lpar;1834-1916&rpar; “The Witch of Wall Street” was the richest women of her time. She refused to pay for hot water &amp; only owned 1 dress](https://www.reddit.com/r/wallstreetbets/comments/172jwee/hetty_green_18341916_the_witch_of_wall_street_was/)
-- [Is Bill Ackman feeling ok?](https://www.reddit.com/r/wallstreetbets/comments/172jqpv/is_bill_ackman_feeling_ok/)
-- [The Warning Signs Are Getting Ridiculous!](https://www.reddit.com/r/wallstreetbets/comments/172g47r/the_warning_signs_are_getting_ridiculous/)
-- [2008](https://www.reddit.com/r/wallstreetbets/comments/172f0ic/2008/)
+- [23andMe share price plummets after user data stolen and listed for sale in attack targeting Ashkenazi Jews](https://www.reddit.com/r/wallstreetbets/comments/173duyj/23andme_share_price_plummets_after_user_data/)
+- [For those who think war is bearish](https://www.reddit.com/r/wallstreetbets/comments/173dshb/for_those_who_think_war_is_bearish/)
+- [WiLL mY PuTs PriNt?$?](https://www.reddit.com/r/wallstreetbets/comments/173d0qz/will_my_puts_print/)
+- [SPY/qqq strategies](https://www.reddit.com/r/wallstreetbets/comments/173c8e1/spyqqq_strategies/)
+- [Thanks for joining the gram for us wise chairman!](https://www.reddit.com/r/wallstreetbets/comments/173bzle/thanks_for_joining_the_gram_for_us_wise_chairman/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
