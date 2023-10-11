@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Found my investment advisor](https://www.reddit.com/r/wallstreetbets/comments/1745ma3/found_my_investment_advisor/)
-- [Unity CEO John Riccitiello is retiring from gaming software company](https://www.reddit.com/r/wallstreetbets/comments/1744cz4/unity_ceo_john_riccitiello_is_retiring_from/)
-- [To My Fellow Bears: It’s Over](https://www.reddit.com/r/wallstreetbets/comments/1744bu4/to_my_fellow_bears_its_over/)
-- [Tesla went green for a small amount of time, and as such we know the drill. r/SpecificKindly3576](https://www.reddit.com/r/wallstreetbets/comments/17439qo/tesla_went_green_for_a_small_amount_of_time_and/)
-- [How screwed am I all money i have left 🥲](https://www.reddit.com/r/wallstreetbets/comments/1742fbc/how_screwed_am_i_all_money_i_have_left/)
+- [Don’t want to brag but…](https://www.reddit.com/r/wallstreetbets/comments/174z8x1/dont_want_to_brag_but/)
+- [Look who else is holding puts](https://www.reddit.com/r/wallstreetbets/comments/174xecx/look_who_else_is_holding_puts/)
+- [Only $8 million million to go](https://www.reddit.com/r/wallstreetbets/comments/174x1ik/only_8_million_million_to_go/)
+- [Birkenstock said to price IPO at $46 a share](https://www.reddit.com/r/wallstreetbets/comments/174wpzp/birkenstock_said_to_price_ipo_at_46_a_share/)
+- [Perfectly timed puts](https://www.reddit.com/r/wallstreetbets/comments/174wct2/perfectly_timed_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
