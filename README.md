@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Don’t want to brag but…](https://www.reddit.com/r/wallstreetbets/comments/174z8x1/dont_want_to_brag_but/)
-- [Look who else is holding puts](https://www.reddit.com/r/wallstreetbets/comments/174xecx/look_who_else_is_holding_puts/)
-- [Only $8 million million to go](https://www.reddit.com/r/wallstreetbets/comments/174x1ik/only_8_million_million_to_go/)
-- [Birkenstock said to price IPO at $46 a share](https://www.reddit.com/r/wallstreetbets/comments/174wpzp/birkenstock_said_to_price_ipo_at_46_a_share/)
-- [Perfectly timed puts](https://www.reddit.com/r/wallstreetbets/comments/174wct2/perfectly_timed_puts/)
+- [The McRib only comes back before a tragic world event. FUCK YOUR CALLS](https://www.reddit.com/r/wallstreetbets/comments/175s9b8/the_mcrib_only_comes_back_before_a_tragic_world/)
+- [Went all in yesterday on 0DTE puts](https://www.reddit.com/r/wallstreetbets/comments/175rqgm/went_all_in_yesterday_on_0dte_puts/)
+- [Stonx](https://www.reddit.com/r/wallstreetbets/comments/175rbi0/stonx/)
+- [Inside the Birkenstock bloodbath as shares tank 13% from IPO price](https://www.reddit.com/r/wallstreetbets/comments/175qx4z/inside_the_birkenstock_bloodbath_as_shares_tank/)
+- [DAL YOLO](https://www.reddit.com/r/wallstreetbets/comments/175qlpj/dal_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
