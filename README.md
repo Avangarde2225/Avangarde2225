@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The McRib only comes back before a tragic world event. FUCK YOUR CALLS](https://www.reddit.com/r/wallstreetbets/comments/175s9b8/the_mcrib_only_comes_back_before_a_tragic_world/)
-- [Went all in yesterday on 0DTE puts](https://www.reddit.com/r/wallstreetbets/comments/175rqgm/went_all_in_yesterday_on_0dte_puts/)
-- [Stonx](https://www.reddit.com/r/wallstreetbets/comments/175rbi0/stonx/)
-- [Inside the Birkenstock bloodbath as shares tank 13% from IPO price](https://www.reddit.com/r/wallstreetbets/comments/175qx4z/inside_the_birkenstock_bloodbath_as_shares_tank/)
-- [DAL YOLO](https://www.reddit.com/r/wallstreetbets/comments/175qlpj/dal_yolo/)
+- [They just don&#39;t understand](https://www.reddit.com/r/wallstreetbets/comments/176ldnk/they_just_dont_understand/)
+- [Trump’s SPAC loses nearly US$200 million in stock purchase deals](https://www.reddit.com/r/wallstreetbets/comments/176j4o9/trumps_spac_loses_nearly_us200_million_in_stock/)
+- [AM I REGARDED?](https://www.reddit.com/r/wallstreetbets/comments/176hemv/am_i_regarded/)
+- [I’m down so bad the only logical thing to do was buy more $PYPL](https://www.reddit.com/r/wallstreetbets/comments/176gbt6/im_down_so_bad_the_only_logical_thing_to_do_was/)
+- [We did it. We won.](https://www.reddit.com/r/wallstreetbets/comments/176gaf5/we_did_it_we_won/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
