@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [They just don&#39;t understand](https://www.reddit.com/r/wallstreetbets/comments/176ldnk/they_just_dont_understand/)
-- [Trump’s SPAC loses nearly US$200 million in stock purchase deals](https://www.reddit.com/r/wallstreetbets/comments/176j4o9/trumps_spac_loses_nearly_us200_million_in_stock/)
-- [AM I REGARDED?](https://www.reddit.com/r/wallstreetbets/comments/176hemv/am_i_regarded/)
-- [I’m down so bad the only logical thing to do was buy more $PYPL](https://www.reddit.com/r/wallstreetbets/comments/176gbt6/im_down_so_bad_the_only_logical_thing_to_do_was/)
-- [We did it. We won.](https://www.reddit.com/r/wallstreetbets/comments/176gaf5/we_did_it_we_won/)
+- [“Stocks don’t go up in a straight line” boomers have no clue how the new markets work.](https://www.reddit.com/r/wallstreetbets/comments/177aztl/stocks_dont_go_up_in_a_straight_line_boomers_have/)
+- [Microsoft finally buys Activision for $69 billion after regulatory approval. Share price up 30% YoY](https://www.reddit.com/r/wallstreetbets/comments/177ahz6/microsoft_finally_buys_activision_for_69_billion/)
+- [Gay bear Soup🐻🌈 Now dumped 15k into AAPL puts](https://www.reddit.com/r/wallstreetbets/comments/177a2q6/gay_bear_soup_now_dumped_15k_into_aapl_puts/)
+- [Weekend Discussion Thread for the Weekend of October 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/1779y5t/weekend_discussion_thread_for_the_weekend_of/)
+- [Too ez. Holding till 389$](https://www.reddit.com/r/wallstreetbets/comments/17797ra/too_ez_holding_till_389/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
