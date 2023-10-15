@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [“Stocks don’t go up in a straight line” boomers have no clue how the new markets work.](https://www.reddit.com/r/wallstreetbets/comments/177aztl/stocks_dont_go_up_in_a_straight_line_boomers_have/)
-- [Microsoft finally buys Activision for $69 billion after regulatory approval. Share price up 30% YoY](https://www.reddit.com/r/wallstreetbets/comments/177ahz6/microsoft_finally_buys_activision_for_69_billion/)
-- [Gay bear Soup🐻🌈 Now dumped 15k into AAPL puts](https://www.reddit.com/r/wallstreetbets/comments/177a2q6/gay_bear_soup_now_dumped_15k_into_aapl_puts/)
-- [Weekend Discussion Thread for the Weekend of October 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/1779y5t/weekend_discussion_thread_for_the_weekend_of/)
-- [Too ez. Holding till 389$](https://www.reddit.com/r/wallstreetbets/comments/17797ra/too_ez_holding_till_389/)
+- [Puts on $GOOGL](https://www.reddit.com/r/wallstreetbets/comments/1780x2r/puts_on_googl/)
+- [Is my attorney ripping me off?](https://www.reddit.com/r/wallstreetbets/comments/177wxag/is_my_attorney_ripping_me_off/)
+- [Just when I was gonna give up.](https://www.reddit.com/r/wallstreetbets/comments/177vzkp/just_when_i_was_gonna_give_up/)
+- [It’s been a fun few years but I’m taking the L… no more chips at the casino for this guy](https://www.reddit.com/r/wallstreetbets/comments/177viz3/its_been_a_fun_few_years_but_im_taking_the_l_no/)
+- [6 week gains from SPY 0 &amp; 1 DTE contracts](https://www.reddit.com/r/wallstreetbets/comments/177u7kx/6_week_gains_from_spy_0_1_dte_contracts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
