@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on $GOOGL](https://www.reddit.com/r/wallstreetbets/comments/1780x2r/puts_on_googl/)
-- [Is my attorney ripping me off?](https://www.reddit.com/r/wallstreetbets/comments/177wxag/is_my_attorney_ripping_me_off/)
-- [Just when I was gonna give up.](https://www.reddit.com/r/wallstreetbets/comments/177vzkp/just_when_i_was_gonna_give_up/)
-- [It’s been a fun few years but I’m taking the L… no more chips at the casino for this guy](https://www.reddit.com/r/wallstreetbets/comments/177viz3/its_been_a_fun_few_years_but_im_taking_the_l_no/)
-- [6 week gains from SPY 0 &amp; 1 DTE contracts](https://www.reddit.com/r/wallstreetbets/comments/177u7kx/6_week_gains_from_spy_0_1_dte_contracts/)
+- [Snapchat &lpar;SNAP&rpar; Undervalued?](https://www.reddit.com/r/wallstreetbets/comments/178sdll/snapchat_snap_undervalued/)
+- [Thoughts on take two interactive?](https://www.reddit.com/r/wallstreetbets/comments/178sa45/thoughts_on_take_two_interactive/)
+- [Calls on VWAPY?](https://www.reddit.com/r/wallstreetbets/comments/178rzqy/calls_on_vwapy/)
+- [Inside this $250 million BNPL’s battle for survival – and its plan to win again](https://www.reddit.com/r/wallstreetbets/comments/178rarx/inside_this_250_million_bnpls_battle_for_survival/)
+- [Quitters never make gains](https://www.reddit.com/r/wallstreetbets/comments/178r6yl/quitters_never_make_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
