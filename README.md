@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Snapchat &lpar;SNAP&rpar; Undervalued?](https://www.reddit.com/r/wallstreetbets/comments/178sdll/snapchat_snap_undervalued/)
-- [Thoughts on take two interactive?](https://www.reddit.com/r/wallstreetbets/comments/178sa45/thoughts_on_take_two_interactive/)
-- [Calls on VWAPY?](https://www.reddit.com/r/wallstreetbets/comments/178rzqy/calls_on_vwapy/)
-- [Inside this $250 million BNPL’s battle for survival – and its plan to win again](https://www.reddit.com/r/wallstreetbets/comments/178rarx/inside_this_250_million_bnpls_battle_for_survival/)
-- [Quitters never make gains](https://www.reddit.com/r/wallstreetbets/comments/178r6yl/quitters_never_make_gains/)
+- [Anybody betting on another oil embargo?](https://www.reddit.com/r/wallstreetbets/comments/179jdd8/anybody_betting_on_another_oil_embargo/)
+- [10/17/2023 - 8:30am EST...](https://www.reddit.com/r/wallstreetbets/comments/179h703/10172023_830am_est/)
+- [Wont be sleeping tonight](https://www.reddit.com/r/wallstreetbets/comments/179gh9b/wont_be_sleeping_tonight/)
+- [Wallstreet loves war?](https://www.reddit.com/r/wallstreetbets/comments/179g3yq/wallstreet_loves_war/)
+- [What Are Your Moves Tomorrow, October 17, 2023](https://www.reddit.com/r/wallstreetbets/comments/179f5n0/what_are_your_moves_tomorrow_october_17_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
