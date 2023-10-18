@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anybody betting on another oil embargo?](https://www.reddit.com/r/wallstreetbets/comments/179jdd8/anybody_betting_on_another_oil_embargo/)
-- [10/17/2023 - 8:30am EST...](https://www.reddit.com/r/wallstreetbets/comments/179h703/10172023_830am_est/)
-- [Wont be sleeping tonight](https://www.reddit.com/r/wallstreetbets/comments/179gh9b/wont_be_sleeping_tonight/)
-- [Wallstreet loves war?](https://www.reddit.com/r/wallstreetbets/comments/179g3yq/wallstreet_loves_war/)
-- [What Are Your Moves Tomorrow, October 17, 2023](https://www.reddit.com/r/wallstreetbets/comments/179f5n0/what_are_your_moves_tomorrow_october_17_2023/)
+- [Good Ol&#39; Days](https://www.reddit.com/r/wallstreetbets/comments/17accvh/good_ol_days/)
+- [From $8.5 billion to dead broke: Where it all went wrong for Vice Media](https://www.reddit.com/r/wallstreetbets/comments/17abjem/from_85_billion_to_dead_broke_where_it_all_went/)
+- [After losing all my money in today&#39;s kangaroo market, I have found a new profession](https://www.reddit.com/r/wallstreetbets/comments/17abedw/after_losing_all_my_money_in_todays_kangaroo/)
+- [Stock Market is 100% Fraudalent](https://www.reddit.com/r/wallstreetbets/comments/17aani6/stock_market_is_100_fraudalent/)
+- [200,000 users abandon Netflix in first drop since 2015 as password crackdown backfires](https://www.reddit.com/r/wallstreetbets/comments/17aag76/200000_users_abandon_netflix_in_first_drop_since/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
