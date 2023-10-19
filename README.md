@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Good Ol&#39; Days](https://www.reddit.com/r/wallstreetbets/comments/17accvh/good_ol_days/)
-- [From $8.5 billion to dead broke: Where it all went wrong for Vice Media](https://www.reddit.com/r/wallstreetbets/comments/17abjem/from_85_billion_to_dead_broke_where_it_all_went/)
-- [After losing all my money in today&#39;s kangaroo market, I have found a new profession](https://www.reddit.com/r/wallstreetbets/comments/17abedw/after_losing_all_my_money_in_todays_kangaroo/)
-- [Stock Market is 100% Fraudalent](https://www.reddit.com/r/wallstreetbets/comments/17aani6/stock_market_is_100_fraudalent/)
-- [200,000 users abandon Netflix in first drop since 2015 as password crackdown backfires](https://www.reddit.com/r/wallstreetbets/comments/17aag76/200000_users_abandon_netflix_in_first_drop_since/)
+- [Friend sent me this pic and I told him he’s regarded, idk what the position play is even supposed to be.](https://www.reddit.com/r/wallstreetbets/comments/17b2izr/friend_sent_me_this_pic_and_i_told_him_hes/)
+- [Netflix Earnings: Subscribers Swell To Record 247 Million As Stock Soars and New Price Increase Is Introduced](https://www.reddit.com/r/wallstreetbets/comments/17b1osr/netflix_earnings_subscribers_swell_to_record_247/)
+- [It’s so over](https://www.reddit.com/r/wallstreetbets/comments/17b1fu4/its_so_over/)
+- [Expectation vs reality for Chinese real estate](https://www.reddit.com/r/wallstreetbets/comments/17b13ch/expectation_vs_reality_for_chinese_real_estate/)
+- [Go suck a giant wendys dumpster dick NFLX.](https://www.reddit.com/r/wallstreetbets/comments/17b0y72/go_suck_a_giant_wendys_dumpster_dick_nflx/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
