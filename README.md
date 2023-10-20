@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Friend sent me this pic and I told him he’s regarded, idk what the position play is even supposed to be.](https://www.reddit.com/r/wallstreetbets/comments/17b2izr/friend_sent_me_this_pic_and_i_told_him_hes/)
-- [Netflix Earnings: Subscribers Swell To Record 247 Million As Stock Soars and New Price Increase Is Introduced](https://www.reddit.com/r/wallstreetbets/comments/17b1osr/netflix_earnings_subscribers_swell_to_record_247/)
-- [It’s so over](https://www.reddit.com/r/wallstreetbets/comments/17b1fu4/its_so_over/)
-- [Expectation vs reality for Chinese real estate](https://www.reddit.com/r/wallstreetbets/comments/17b13ch/expectation_vs_reality_for_chinese_real_estate/)
-- [Go suck a giant wendys dumpster dick NFLX.](https://www.reddit.com/r/wallstreetbets/comments/17b0y72/go_suck_a_giant_wendys_dumpster_dick_nflx/)
+- [Most Anticipated Earnings Releases for the week beginning October 23rd, 2023](https://www.reddit.com/r/wallstreetbets/comments/17bxh6l/most_anticipated_earnings_releases_for_the_week/)
+- [Elon Musk loses $24 billion after Tesla stock plummets](https://www.reddit.com/r/wallstreetbets/comments/17bvna5/elon_musk_loses_24_billion_after_tesla_stock/)
+- [It is worse than 2008!](https://www.reddit.com/r/wallstreetbets/comments/17bum4k/it_is_worse_than_2008/)
+- [My grandpa looking at his low risk retirement portfolio](https://www.reddit.com/r/wallstreetbets/comments/17buljn/my_grandpa_looking_at_his_low_risk_retirement/)
+- [🧸Rise](https://www.reddit.com/r/wallstreetbets/comments/17btlw4/rise/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
