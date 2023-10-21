@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Most Anticipated Earnings Releases for the week beginning October 23rd, 2023](https://www.reddit.com/r/wallstreetbets/comments/17bxh6l/most_anticipated_earnings_releases_for_the_week/)
-- [Elon Musk loses $24 billion after Tesla stock plummets](https://www.reddit.com/r/wallstreetbets/comments/17bvna5/elon_musk_loses_24_billion_after_tesla_stock/)
-- [It is worse than 2008!](https://www.reddit.com/r/wallstreetbets/comments/17bum4k/it_is_worse_than_2008/)
-- [My grandpa looking at his low risk retirement portfolio](https://www.reddit.com/r/wallstreetbets/comments/17buljn/my_grandpa_looking_at_his_low_risk_retirement/)
-- [🧸Rise](https://www.reddit.com/r/wallstreetbets/comments/17btlw4/rise/)
+- [Hell is coming](https://www.reddit.com/r/wallstreetbets/comments/17cm9q5/hell_is_coming/)
+- [Weekend Discussion Thread for the Weekend of October 21, 2023](https://www.reddit.com/r/wallstreetbets/comments/17cm6wz/weekend_discussion_thread_for_the_weekend_of/)
+- [Thinking about the Roman Empire 🤔](https://www.reddit.com/r/wallstreetbets/comments/17cm24q/thinking_about_the_roman_empire/)
+- [Bulletproof Cybertruck spotted](https://www.reddit.com/r/wallstreetbets/comments/17cl13w/bulletproof_cybertruck_spotted/)
+- [BREAKING: The Russell ended the week below Feb. 2020 levels and is at its lowest point since Nov. 2020](https://www.reddit.com/r/wallstreetbets/comments/17cke5m/breaking_the_russell_ended_the_week_below_feb/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
