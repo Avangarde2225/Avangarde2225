@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hell is coming](https://www.reddit.com/r/wallstreetbets/comments/17cm9q5/hell_is_coming/)
-- [Weekend Discussion Thread for the Weekend of October 21, 2023](https://www.reddit.com/r/wallstreetbets/comments/17cm6wz/weekend_discussion_thread_for_the_weekend_of/)
-- [Thinking about the Roman Empire 🤔](https://www.reddit.com/r/wallstreetbets/comments/17cm24q/thinking_about_the_roman_empire/)
-- [Bulletproof Cybertruck spotted](https://www.reddit.com/r/wallstreetbets/comments/17cl13w/bulletproof_cybertruck_spotted/)
-- [BREAKING: The Russell ended the week below Feb. 2020 levels and is at its lowest point since Nov. 2020](https://www.reddit.com/r/wallstreetbets/comments/17cke5m/breaking_the_russell_ended_the_week_below_feb/)
+- [2022 - &quot;SHORT NVDA, it&#39;s a loser&quot; 2023 - 200%+ ytd loser company SKYNET surpasses 1T dollars. NOW - &quot;BTC is...&quot;](https://www.reddit.com/r/wallstreetbets/comments/17dg376/2022_short_nvda_its_a_loser_2023_200_ytd_loser/)
+- [That’s what happens when you listen to CNBC](https://www.reddit.com/r/wallstreetbets/comments/17dfckr/thats_what_happens_when_you_listen_to_cnbc/)
+- [Looks better than TSLA bots](https://www.reddit.com/r/wallstreetbets/comments/17ddurj/looks_better_than_tsla_bots/)
+- [Consumers May Not Slow Their Spending Any Time Soon. On average, people expect to increase their spending by 5.3% over the next year.](https://www.reddit.com/r/wallstreetbets/comments/17ddn7f/consumers_may_not_slow_their_spending_any_time/)
+- [Victoria&#39;s Secret Prioritizes Sexiness - up 25% last week](https://www.reddit.com/r/wallstreetbets/comments/17ddckm/victorias_secret_prioritizes_sexiness_up_25_last/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
