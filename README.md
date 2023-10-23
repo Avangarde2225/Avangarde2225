@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [2022 - &quot;SHORT NVDA, it&#39;s a loser&quot; 2023 - 200%+ ytd loser company SKYNET surpasses 1T dollars. NOW - &quot;BTC is...&quot;](https://www.reddit.com/r/wallstreetbets/comments/17dg376/2022_short_nvda_its_a_loser_2023_200_ytd_loser/)
-- [That’s what happens when you listen to CNBC](https://www.reddit.com/r/wallstreetbets/comments/17dfckr/thats_what_happens_when_you_listen_to_cnbc/)
-- [Looks better than TSLA bots](https://www.reddit.com/r/wallstreetbets/comments/17ddurj/looks_better_than_tsla_bots/)
-- [Consumers May Not Slow Their Spending Any Time Soon. On average, people expect to increase their spending by 5.3% over the next year.](https://www.reddit.com/r/wallstreetbets/comments/17ddn7f/consumers_may_not_slow_their_spending_any_time/)
-- [Victoria&#39;s Secret Prioritizes Sexiness - up 25% last week](https://www.reddit.com/r/wallstreetbets/comments/17ddckm/victorias_secret_prioritizes_sexiness_up_25_last/)
+- [Sam Altman - The eyeball Shit Coin leader of the world has been planning for a societal collapse for over a decade with bunker buddy P Thiel](https://www.reddit.com/r/wallstreetbets/comments/17e61c4/sam_altman_the_eyeball_shit_coin_leader_of_the/)
+- [This is the only way those hot heads can make rent now](https://www.reddit.com/r/wallstreetbets/comments/17e42co/this_is_the_only_way_those_hot_heads_can_make/)
+- [The magnificent 7 have double-topped](https://www.reddit.com/r/wallstreetbets/comments/17e3oq0/the_magnificent_7_have_doubletopped/)
+- [Y’all reity for this?](https://www.reddit.com/r/wallstreetbets/comments/17e3aew/yall_reity_for_this/)
+- [Musk admits &#39;We dug our own grave with the Cybertruck&#39; as Tesla share price plummets 15%](https://www.reddit.com/r/wallstreetbets/comments/17e2eph/musk_admits_we_dug_our_own_grave_with_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
