@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sam Altman - The eyeball Shit Coin leader of the world has been planning for a societal collapse for over a decade with bunker buddy P Thiel](https://www.reddit.com/r/wallstreetbets/comments/17e61c4/sam_altman_the_eyeball_shit_coin_leader_of_the/)
-- [This is the only way those hot heads can make rent now](https://www.reddit.com/r/wallstreetbets/comments/17e42co/this_is_the_only_way_those_hot_heads_can_make/)
-- [The magnificent 7 have double-topped](https://www.reddit.com/r/wallstreetbets/comments/17e3oq0/the_magnificent_7_have_doubletopped/)
-- [Y’all reity for this?](https://www.reddit.com/r/wallstreetbets/comments/17e3aew/yall_reity_for_this/)
-- [Musk admits &#39;We dug our own grave with the Cybertruck&#39; as Tesla share price plummets 15%](https://www.reddit.com/r/wallstreetbets/comments/17e2eph/musk_admits_we_dug_our_own_grave_with_the/)
+- [To all the people over the weekend who were saying it&#39;s going to be another Black Monday...](https://www.reddit.com/r/wallstreetbets/comments/17ewkk3/to_all_the_people_over_the_weekend_who_were/)
+- [That&#39;s the way it is](https://www.reddit.com/r/wallstreetbets/comments/17evp51/thats_the_way_it_is/)
+- [Puts on $HOOD???](https://www.reddit.com/r/wallstreetbets/comments/17evnnb/puts_on_hood/)
+- [Wtf is this?](https://www.reddit.com/r/wallstreetbets/comments/17evat2/wtf_is_this/)
+- [Exclusive: Nvidia to make Arm-based PC chips in major new challenge to Intel](https://www.reddit.com/r/wallstreetbets/comments/17ev3c6/exclusive_nvidia_to_make_armbased_pc_chips_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
