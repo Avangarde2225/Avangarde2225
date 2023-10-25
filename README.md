@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To all the people over the weekend who were saying it&#39;s going to be another Black Monday...](https://www.reddit.com/r/wallstreetbets/comments/17ewkk3/to_all_the_people_over_the_weekend_who_were/)
-- [That&#39;s the way it is](https://www.reddit.com/r/wallstreetbets/comments/17evp51/thats_the_way_it_is/)
-- [Puts on $HOOD???](https://www.reddit.com/r/wallstreetbets/comments/17evnnb/puts_on_hood/)
-- [Wtf is this?](https://www.reddit.com/r/wallstreetbets/comments/17evat2/wtf_is_this/)
-- [Exclusive: Nvidia to make Arm-based PC chips in major new challenge to Intel](https://www.reddit.com/r/wallstreetbets/comments/17ev3c6/exclusive_nvidia_to_make_armbased_pc_chips_in/)
+- [Market Outlook 10/25/2023](https://www.reddit.com/r/wallstreetbets/comments/17fq73e/market_outlook_10252023/)
+- [What Are Your Moves Tomorrow, October 25, 2023](https://www.reddit.com/r/wallstreetbets/comments/17flt81/what_are_your_moves_tomorrow_october_25_2023/)
+- [Comeback kid](https://www.reddit.com/r/wallstreetbets/comments/17flhxs/comeback_kid/)
+- [Only 28% of stocks from S&amp;P 500 are above 200-day moving average. Previously reaching this level was followed by further market decline.](https://www.reddit.com/r/wallstreetbets/comments/17fku7e/only_28_of_stocks_from_sp_500_are_above_200day/)
+- [Time to short Durex and all those other latex idiots](https://www.reddit.com/r/wallstreetbets/comments/17fkla2/time_to_short_durex_and_all_those_other_latex/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
