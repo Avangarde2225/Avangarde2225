@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market Outlook 10/25/2023](https://www.reddit.com/r/wallstreetbets/comments/17fq73e/market_outlook_10252023/)
-- [What Are Your Moves Tomorrow, October 25, 2023](https://www.reddit.com/r/wallstreetbets/comments/17flt81/what_are_your_moves_tomorrow_october_25_2023/)
-- [Comeback kid](https://www.reddit.com/r/wallstreetbets/comments/17flhxs/comeback_kid/)
-- [Only 28% of stocks from S&amp;P 500 are above 200-day moving average. Previously reaching this level was followed by further market decline.](https://www.reddit.com/r/wallstreetbets/comments/17fku7e/only_28_of_stocks_from_sp_500_are_above_200day/)
-- [Time to short Durex and all those other latex idiots](https://www.reddit.com/r/wallstreetbets/comments/17fkla2/time_to_short_durex_and_all_those_other_latex/)
+- [Sir, this is an outhouse in the boonies…](https://www.reddit.com/r/wallstreetbets/comments/17ghpcz/sir_this_is_an_outhouse_in_the_boonies/)
+- [Food Prices Up 15% Over Last 2 Years - Would You Like To Try Again?](https://www.reddit.com/r/wallstreetbets/comments/17ghlvr/food_prices_up_15_over_last_2_years_would_you/)
+- [Update: ready for round 2 I didn’t hear no bell 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/17ghk1v/update_ready_for_round_2_i_didnt_hear_no_bell/)
+- [On META Earnings](https://www.reddit.com/r/wallstreetbets/comments/17ghf3m/on_meta_earnings/)
+- [Free VM! Free VisualMod!](https://www.reddit.com/r/wallstreetbets/comments/17gdsis/free_vm_free_visualmod/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
