@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sir, this is an outhouse in the boonies…](https://www.reddit.com/r/wallstreetbets/comments/17ghpcz/sir_this_is_an_outhouse_in_the_boonies/)
-- [Food Prices Up 15% Over Last 2 Years - Would You Like To Try Again?](https://www.reddit.com/r/wallstreetbets/comments/17ghlvr/food_prices_up_15_over_last_2_years_would_you/)
-- [Update: ready for round 2 I didn’t hear no bell 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/17ghk1v/update_ready_for_round_2_i_didnt_hear_no_bell/)
-- [On META Earnings](https://www.reddit.com/r/wallstreetbets/comments/17ghf3m/on_meta_earnings/)
-- [Free VM! Free VisualMod!](https://www.reddit.com/r/wallstreetbets/comments/17gdsis/free_vm_free_visualmod/)
+- [X formerly Twitter daily active users](https://www.reddit.com/r/wallstreetbets/comments/17h8w61/x_formerly_twitter_daily_active_users/)
+- [Most Anticipated Earnings Releases for the week beginning October 30th, 2023](https://www.reddit.com/r/wallstreetbets/comments/17h81bd/most_anticipated_earnings_releases_for_the_week/)
+- [When the Bearrorist finally win](https://www.reddit.com/r/wallstreetbets/comments/17h6xs6/when_the_bearrorist_finally_win/)
+- [This week on Stock Markets](https://www.reddit.com/r/wallstreetbets/comments/17h6kk3/this_week_on_stock_markets/)
+- [Bro just turn the money printer back on PLEASE](https://www.reddit.com/r/wallstreetbets/comments/17h5s96/bro_just_turn_the_money_printer_back_on_please/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
