@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [X formerly Twitter daily active users](https://www.reddit.com/r/wallstreetbets/comments/17h8w61/x_formerly_twitter_daily_active_users/)
-- [Most Anticipated Earnings Releases for the week beginning October 30th, 2023](https://www.reddit.com/r/wallstreetbets/comments/17h81bd/most_anticipated_earnings_releases_for_the_week/)
-- [When the Bearrorist finally win](https://www.reddit.com/r/wallstreetbets/comments/17h6xs6/when_the_bearrorist_finally_win/)
-- [This week on Stock Markets](https://www.reddit.com/r/wallstreetbets/comments/17h6kk3/this_week_on_stock_markets/)
-- [Bro just turn the money printer back on PLEASE](https://www.reddit.com/r/wallstreetbets/comments/17h5s96/bro_just_turn_the_money_printer_back_on_please/)
+- [PLEASE DONT TRADE OPTIONS IT WILL RUIN YOUR LIFE.](https://www.reddit.com/r/wallstreetbets/comments/17hy2tw/please_dont_trade_options_it_will_ruin_your_life/)
+- [Jamie Dimon &lpar;JP Morgan&rpar; to sell 1 million shares &lpar;$141 million&rpar; of stock....](https://www.reddit.com/r/wallstreetbets/comments/17hxcwb/jamie_dimon_jp_morgan_to_sell_1_million_shares/)
+- [Gainnnnnsssszzzz](https://www.reddit.com/r/wallstreetbets/comments/17hx8sx/gainnnnnsssszzzz/)
+- [I hate how accurate is is](https://www.reddit.com/r/wallstreetbets/comments/17hwnyt/i_hate_how_accurate_is_is/)
+- [The Impending Cybertruck Disappointment Part II: 98k price, ~ 300 mile range](https://www.reddit.com/r/wallstreetbets/comments/17hwl6l/the_impending_cybertruck_disappointment_part_ii/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
