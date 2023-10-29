@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PLEASE DONT TRADE OPTIONS IT WILL RUIN YOUR LIFE.](https://www.reddit.com/r/wallstreetbets/comments/17hy2tw/please_dont_trade_options_it_will_ruin_your_life/)
-- [Jamie Dimon &lpar;JP Morgan&rpar; to sell 1 million shares &lpar;$141 million&rpar; of stock....](https://www.reddit.com/r/wallstreetbets/comments/17hxcwb/jamie_dimon_jp_morgan_to_sell_1_million_shares/)
-- [Gainnnnnsssszzzz](https://www.reddit.com/r/wallstreetbets/comments/17hx8sx/gainnnnnsssszzzz/)
-- [I hate how accurate is is](https://www.reddit.com/r/wallstreetbets/comments/17hwnyt/i_hate_how_accurate_is_is/)
-- [The Impending Cybertruck Disappointment Part II: 98k price, ~ 300 mile range](https://www.reddit.com/r/wallstreetbets/comments/17hwl6l/the_impending_cybertruck_disappointment_part_ii/)
+- [Every time🫡](https://www.reddit.com/r/wallstreetbets/comments/17ip92e/every_time/)
+- [Bros, would it be smart of a group of us to pitch in for a hypercar, keep it for 20 years then sell it for big profit? This is a good return](https://www.reddit.com/r/wallstreetbets/comments/17iolv4/bros_would_it_be_smart_of_a_group_of_us_to_pitch/)
+- [Saw this guy on the Forbes 400 magazine in my gym. I think I will invest in his company. He seems pretty trustworthy.](https://www.reddit.com/r/wallstreetbets/comments/17io224/saw_this_guy_on_the_forbes_400_magazine_in_my_gym/)
+- [I don’t think brokerage firms should be encouraging this](https://www.reddit.com/r/wallstreetbets/comments/17in8mj/i_dont_think_brokerage_firms_should_be/)
+- [Every stock promoter](https://www.reddit.com/r/wallstreetbets/comments/17in56a/every_stock_promoter/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
