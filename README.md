@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Every time🫡](https://www.reddit.com/r/wallstreetbets/comments/17ip92e/every_time/)
-- [Bros, would it be smart of a group of us to pitch in for a hypercar, keep it for 20 years then sell it for big profit? This is a good return](https://www.reddit.com/r/wallstreetbets/comments/17iolv4/bros_would_it_be_smart_of_a_group_of_us_to_pitch/)
-- [Saw this guy on the Forbes 400 magazine in my gym. I think I will invest in his company. He seems pretty trustworthy.](https://www.reddit.com/r/wallstreetbets/comments/17io224/saw_this_guy_on_the_forbes_400_magazine_in_my_gym/)
-- [I don’t think brokerage firms should be encouraging this](https://www.reddit.com/r/wallstreetbets/comments/17in8mj/i_dont_think_brokerage_firms_should_be/)
-- [Every stock promoter](https://www.reddit.com/r/wallstreetbets/comments/17in56a/every_stock_promoter/)
+- [Tom lee has spoken, it&#39;s time to buy the dip.](https://www.reddit.com/r/wallstreetbets/comments/17jfyvw/tom_lee_has_spoken_its_time_to_buy_the_dip/)
+- [This man don’t miss](https://www.reddit.com/r/wallstreetbets/comments/17jf0ap/this_man_dont_miss/)
+- [As a former employee, I can confirm it&#39;s going down the toilet...](https://www.reddit.com/r/wallstreetbets/comments/17jd8gy/as_a_former_employee_i_can_confirm_its_going_down/)
+- [SBF: the judge has already instructed him to answer the question he’s being asked by his own lawyer](https://www.reddit.com/r/wallstreetbets/comments/17jc3ys/sbf_the_judge_has_already_instructed_him_to/)
+- [StanChart shares slump on almost $1 billion China hit](https://www.reddit.com/r/wallstreetbets/comments/17jc007/stanchart_shares_slump_on_almost_1_billion_china/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
