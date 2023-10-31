@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tom lee has spoken, it&#39;s time to buy the dip.](https://www.reddit.com/r/wallstreetbets/comments/17jfyvw/tom_lee_has_spoken_its_time_to_buy_the_dip/)
-- [This man don’t miss](https://www.reddit.com/r/wallstreetbets/comments/17jf0ap/this_man_dont_miss/)
-- [As a former employee, I can confirm it&#39;s going down the toilet...](https://www.reddit.com/r/wallstreetbets/comments/17jd8gy/as_a_former_employee_i_can_confirm_its_going_down/)
-- [SBF: the judge has already instructed him to answer the question he’s being asked by his own lawyer](https://www.reddit.com/r/wallstreetbets/comments/17jc3ys/sbf_the_judge_has_already_instructed_him_to/)
-- [StanChart shares slump on almost $1 billion China hit](https://www.reddit.com/r/wallstreetbets/comments/17jc007/stanchart_shares_slump_on_almost_1_billion_china/)
+- [Yoloing everyday until it’s all gone](https://www.reddit.com/r/wallstreetbets/comments/17k64my/yoloing_everyday_until_its_all_gone/)
+- [Rivian Ain’t Gonna Make It](https://www.reddit.com/r/wallstreetbets/comments/17k56y5/rivian_aint_gonna_make_it/)
+- [Well there goes my day trading opportunity](https://www.reddit.com/r/wallstreetbets/comments/17k4gtd/well_there_goes_my_day_trading_opportunity/)
+- [You guys were right, I was less right](https://www.reddit.com/r/wallstreetbets/comments/17k47n8/you_guys_were_right_i_was_less_right/)
+- [Blackberry &lpar;BB&rpar; CEO to Retire November 4th](https://www.reddit.com/r/wallstreetbets/comments/17k3bgv/blackberry_bb_ceo_to_retire_november_4th/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
