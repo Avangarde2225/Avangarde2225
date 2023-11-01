@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Yoloing everyday until it’s all gone](https://www.reddit.com/r/wallstreetbets/comments/17k64my/yoloing_everyday_until_its_all_gone/)
-- [Rivian Ain’t Gonna Make It](https://www.reddit.com/r/wallstreetbets/comments/17k56y5/rivian_aint_gonna_make_it/)
-- [Well there goes my day trading opportunity](https://www.reddit.com/r/wallstreetbets/comments/17k4gtd/well_there_goes_my_day_trading_opportunity/)
-- [You guys were right, I was less right](https://www.reddit.com/r/wallstreetbets/comments/17k47n8/you_guys_were_right_i_was_less_right/)
-- [Blackberry &lpar;BB&rpar; CEO to Retire November 4th](https://www.reddit.com/r/wallstreetbets/comments/17k3bgv/blackberry_bb_ceo_to_retire_november_4th/)
+- [Option players on earnings](https://www.reddit.com/r/wallstreetbets/comments/17kymk0/option_players_on_earnings/)
+- [CRSP gets FDA panel support for sickle cell treatment.](https://www.reddit.com/r/wallstreetbets/comments/17kx05j/crsp_gets_fda_panel_support_for_sickle_cell/)
+- [Sequoia Targeted by US Committee’s China Tech Investment Probe - BNN Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/17kwwq4/sequoia_targeted_by_us_committees_china_tech/)
+- [I’m CUMMING BACK](https://www.reddit.com/r/wallstreetbets/comments/17kvlyn/im_cumming_back/)
+- [AMD Drops 4% as Earnings Fail to Live Up to Lofty Expectations](https://www.reddit.com/r/wallstreetbets/comments/17kvchg/amd_drops_4_as_earnings_fail_to_live_up_to_lofty/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
