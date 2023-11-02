@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Option players on earnings](https://www.reddit.com/r/wallstreetbets/comments/17kymk0/option_players_on_earnings/)
-- [CRSP gets FDA panel support for sickle cell treatment.](https://www.reddit.com/r/wallstreetbets/comments/17kx05j/crsp_gets_fda_panel_support_for_sickle_cell/)
-- [Sequoia Targeted by US Committee’s China Tech Investment Probe - BNN Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/17kwwq4/sequoia_targeted_by_us_committees_china_tech/)
-- [I’m CUMMING BACK](https://www.reddit.com/r/wallstreetbets/comments/17kvlyn/im_cumming_back/)
-- [AMD Drops 4% as Earnings Fail to Live Up to Lofty Expectations](https://www.reddit.com/r/wallstreetbets/comments/17kvchg/amd_drops_4_as_earnings_fail_to_live_up_to_lofty/)
+- [Please God send me a sign](https://www.reddit.com/r/wallstreetbets/comments/17lnrxf/please_god_send_me_a_sign/)
+- [The Fed and the inflation fairy tale](https://www.reddit.com/r/wallstreetbets/comments/17ln9v1/the_fed_and_the_inflation_fairy_tale/)
+- [My AI broke channeling JPOWs anger today](https://www.reddit.com/r/wallstreetbets/comments/17lmfqi/my_ai_broke_channeling_jpows_anger_today/)
+- [Lost my college tuition](https://www.reddit.com/r/wallstreetbets/comments/17lleip/lost_my_college_tuition/)
+- [What Are Your Moves Tomorrow, November 02, 2023](https://www.reddit.com/r/wallstreetbets/comments/17lkt55/what_are_your_moves_tomorrow_november_02_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
