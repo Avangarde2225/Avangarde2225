@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Please God send me a sign](https://www.reddit.com/r/wallstreetbets/comments/17lnrxf/please_god_send_me_a_sign/)
-- [The Fed and the inflation fairy tale](https://www.reddit.com/r/wallstreetbets/comments/17ln9v1/the_fed_and_the_inflation_fairy_tale/)
-- [My AI broke channeling JPOWs anger today](https://www.reddit.com/r/wallstreetbets/comments/17lmfqi/my_ai_broke_channeling_jpows_anger_today/)
-- [Lost my college tuition](https://www.reddit.com/r/wallstreetbets/comments/17lleip/lost_my_college_tuition/)
-- [What Are Your Moves Tomorrow, November 02, 2023](https://www.reddit.com/r/wallstreetbets/comments/17lkt55/what_are_your_moves_tomorrow_november_02_2023/)
+- [Ex-crypto mogul Sam Bankman-Fried convicted of defrauding FTX customers](https://www.reddit.com/r/wallstreetbets/comments/17mht5m/excrypto_mogul_sam_bankmanfried_convicted_of/)
+- [Most Anticipated Earnings Releases for the week beginning November 6th, 2023](https://www.reddit.com/r/wallstreetbets/comments/17mfwyr/most_anticipated_earnings_releases_for_the_week/)
+- [Gained 130k lost it got back 38k lost it…… Now down 17k. My brain in smoother then your mums twat](https://www.reddit.com/r/wallstreetbets/comments/17me5n7/gained_130k_lost_it_got_back_38k_lost_it_now_down/)
+- [Apple will makes it largest purchase acquisition in Q2 of 2024.](https://www.reddit.com/r/wallstreetbets/comments/17mdqwa/apple_will_makes_it_largest_purchase_acquisition/)
+- [Did Mike Wilson become the new Jim Cramer?](https://www.reddit.com/r/wallstreetbets/comments/17md5ze/did_mike_wilson_become_the_new_jim_cramer/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
