@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ex-crypto mogul Sam Bankman-Fried convicted of defrauding FTX customers](https://www.reddit.com/r/wallstreetbets/comments/17mht5m/excrypto_mogul_sam_bankmanfried_convicted_of/)
-- [Most Anticipated Earnings Releases for the week beginning November 6th, 2023](https://www.reddit.com/r/wallstreetbets/comments/17mfwyr/most_anticipated_earnings_releases_for_the_week/)
-- [Gained 130k lost it got back 38k lost it…… Now down 17k. My brain in smoother then your mums twat](https://www.reddit.com/r/wallstreetbets/comments/17me5n7/gained_130k_lost_it_got_back_38k_lost_it_now_down/)
-- [Apple will makes it largest purchase acquisition in Q2 of 2024.](https://www.reddit.com/r/wallstreetbets/comments/17mdqwa/apple_will_makes_it_largest_purchase_acquisition/)
-- [Did Mike Wilson become the new Jim Cramer?](https://www.reddit.com/r/wallstreetbets/comments/17md5ze/did_mike_wilson_become_the_new_jim_cramer/)
+- [4798.71% return on investment with 2-DTEs.](https://www.reddit.com/r/wallstreetbets/comments/17n7gji/479871_return_on_investment_with_2dtes/)
+- [Do I short or long META on this news?](https://www.reddit.com/r/wallstreetbets/comments/17n77p0/do_i_short_or_long_meta_on_this_news/)
+- [Made $150k betting on sports, looking for 50/50 yolos in the stock market. Any real ideas?](https://www.reddit.com/r/wallstreetbets/comments/17n709s/made_150k_betting_on_sports_looking_for_5050/)
+- [Market Is Pricing In 2024 Rate Cuts - About To Dust MM Returns](https://www.reddit.com/r/wallstreetbets/comments/17n67pa/market_is_pricing_in_2024_rate_cuts_about_to_dust/)
+- [$Snow Gains](https://www.reddit.com/r/wallstreetbets/comments/17n5mku/snow_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
