@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [4798.71% return on investment with 2-DTEs.](https://www.reddit.com/r/wallstreetbets/comments/17n7gji/479871_return_on_investment_with_2dtes/)
-- [Do I short or long META on this news?](https://www.reddit.com/r/wallstreetbets/comments/17n77p0/do_i_short_or_long_meta_on_this_news/)
-- [Made $150k betting on sports, looking for 50/50 yolos in the stock market. Any real ideas?](https://www.reddit.com/r/wallstreetbets/comments/17n709s/made_150k_betting_on_sports_looking_for_5050/)
-- [Market Is Pricing In 2024 Rate Cuts - About To Dust MM Returns](https://www.reddit.com/r/wallstreetbets/comments/17n67pa/market_is_pricing_in_2024_rate_cuts_about_to_dust/)
-- [$Snow Gains](https://www.reddit.com/r/wallstreetbets/comments/17n5mku/snow_gains/)
+- [To no one’s surprise, GM’s Cruise has been lying about their driverless tech capabilities for years. Calls on FSD.](https://www.reddit.com/r/wallstreetbets/comments/17nz4bo/to_no_ones_surprise_gms_cruise_has_been_lying/)
+- [SBFs girlfriend upon hearing his guilty verdict.](https://www.reddit.com/r/wallstreetbets/comments/17nyw7k/sbfs_girlfriend_upon_hearing_his_guilty_verdict/)
+- [The freight market is experiencing a severe recession and bloodbath.](https://www.reddit.com/r/wallstreetbets/comments/17nxirp/the_freight_market_is_experiencing_a_severe/)
+- [China foreign investment gauge turns negative for first time](https://www.reddit.com/r/wallstreetbets/comments/17nxb9g/china_foreign_investment_gauge_turns_negative_for/)
+- [Started with $520. Goal 1 million dollars.](https://www.reddit.com/r/wallstreetbets/comments/17nwwzu/started_with_520_goal_1_million_dollars/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
