@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To no one’s surprise, GM’s Cruise has been lying about their driverless tech capabilities for years. Calls on FSD.](https://www.reddit.com/r/wallstreetbets/comments/17nz4bo/to_no_ones_surprise_gms_cruise_has_been_lying/)
-- [SBFs girlfriend upon hearing his guilty verdict.](https://www.reddit.com/r/wallstreetbets/comments/17nyw7k/sbfs_girlfriend_upon_hearing_his_guilty_verdict/)
-- [The freight market is experiencing a severe recession and bloodbath.](https://www.reddit.com/r/wallstreetbets/comments/17nxirp/the_freight_market_is_experiencing_a_severe/)
-- [China foreign investment gauge turns negative for first time](https://www.reddit.com/r/wallstreetbets/comments/17nxb9g/china_foreign_investment_gauge_turns_negative_for/)
-- [Started with $520. Goal 1 million dollars.](https://www.reddit.com/r/wallstreetbets/comments/17nwwzu/started_with_520_goal_1_million_dollars/)
+- [And it begins... $40,000,000,000 in Unrealized Losses Hits JPMorgan Chase As Bank of America, Wells Fargo and Citigroup Face Exposure too](https://www.reddit.com/r/wallstreetbets/comments/17ooumd/and_it_begins_40000000000_in_unrealized_losses/)
+- [Pimco, JPMorgan Are Gearing Up for Long Winter in China Markets](https://www.reddit.com/r/wallstreetbets/comments/17onrh1/pimco_jpmorgan_are_gearing_up_for_long_winter_in/)
+- [SOXL ~$75k gain](https://www.reddit.com/r/wallstreetbets/comments/17onnzz/soxl_75k_gain/)
+- [Don&#39;t forget to tip your local bum](https://www.reddit.com/r/wallstreetbets/comments/17onc8y/dont_forget_to_tip_your_local_bum/)
+- [WSJ: Best earnings quarter in a year](https://www.reddit.com/r/wallstreetbets/comments/17olvrk/wsj_best_earnings_quarter_in_a_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
