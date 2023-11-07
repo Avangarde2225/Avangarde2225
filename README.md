@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [And it begins... $40,000,000,000 in Unrealized Losses Hits JPMorgan Chase As Bank of America, Wells Fargo and Citigroup Face Exposure too](https://www.reddit.com/r/wallstreetbets/comments/17ooumd/and_it_begins_40000000000_in_unrealized_losses/)
-- [Pimco, JPMorgan Are Gearing Up for Long Winter in China Markets](https://www.reddit.com/r/wallstreetbets/comments/17onrh1/pimco_jpmorgan_are_gearing_up_for_long_winter_in/)
-- [SOXL ~$75k gain](https://www.reddit.com/r/wallstreetbets/comments/17onnzz/soxl_75k_gain/)
-- [Don&#39;t forget to tip your local bum](https://www.reddit.com/r/wallstreetbets/comments/17onc8y/dont_forget_to_tip_your_local_bum/)
-- [WSJ: Best earnings quarter in a year](https://www.reddit.com/r/wallstreetbets/comments/17olvrk/wsj_best_earnings_quarter_in_a_year/)
+- [12k Loss Never Learned](https://www.reddit.com/r/wallstreetbets/comments/17pfi09/12k_loss_never_learned/)
+- [META $121k Gain +211%](https://www.reddit.com/r/wallstreetbets/comments/17pfewg/meta_121k_gain_211/)
+- [&#39;At the end&#39;: WeWork shares halted after plummeting 99% this year](https://www.reddit.com/r/wallstreetbets/comments/17pdnbc/at_the_end_wework_shares_halted_after_plummeting/)
+- [Bearhunter lives LMAO](https://www.reddit.com/r/wallstreetbets/comments/17pd51q/bearhunter_lives_lmao/)
+- [What Are Your Moves Tomorrow, November 07, 2023](https://www.reddit.com/r/wallstreetbets/comments/17pcxqs/what_are_your_moves_tomorrow_november_07_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
