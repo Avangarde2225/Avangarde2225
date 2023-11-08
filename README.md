@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [12k Loss Never Learned](https://www.reddit.com/r/wallstreetbets/comments/17pfi09/12k_loss_never_learned/)
-- [META $121k Gain +211%](https://www.reddit.com/r/wallstreetbets/comments/17pfewg/meta_121k_gain_211/)
-- [&#39;At the end&#39;: WeWork shares halted after plummeting 99% this year](https://www.reddit.com/r/wallstreetbets/comments/17pdnbc/at_the_end_wework_shares_halted_after_plummeting/)
-- [Bearhunter lives LMAO](https://www.reddit.com/r/wallstreetbets/comments/17pd51q/bearhunter_lives_lmao/)
-- [What Are Your Moves Tomorrow, November 07, 2023](https://www.reddit.com/r/wallstreetbets/comments/17pcxqs/what_are_your_moves_tomorrow_november_07_2023/)
+- [Over 100% of the S&amp;P 500&#39;s Net Income growth is from the Big 7](https://www.reddit.com/r/wallstreetbets/comments/17q82ly/over_100_of_the_sp_500s_net_income_growth_is_from/)
+- [Nike is suing New Balance and Skechers for &#39;stealing its game-changing technology&#39;](https://www.reddit.com/r/wallstreetbets/comments/17q77zp/nike_is_suing_new_balance_and_skechers_for/)
+- [My $DNA has an extra chromosome 📉](https://www.reddit.com/r/wallstreetbets/comments/17q4tbq/my_dna_has_an_extra_chromosome/)
+- [Big banks cook up a new way to &quot;unload&quot; risk.](https://www.reddit.com/r/wallstreetbets/comments/17q4ss6/big_banks_cook_up_a_new_way_to_unload_risk/)
+- [What Are Your Moves Tomorrow, November 08, 2023](https://www.reddit.com/r/wallstreetbets/comments/17q4btx/what_are_your_moves_tomorrow_november_08_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
