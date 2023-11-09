@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Over 100% of the S&amp;P 500&#39;s Net Income growth is from the Big 7](https://www.reddit.com/r/wallstreetbets/comments/17q82ly/over_100_of_the_sp_500s_net_income_growth_is_from/)
-- [Nike is suing New Balance and Skechers for &#39;stealing its game-changing technology&#39;](https://www.reddit.com/r/wallstreetbets/comments/17q77zp/nike_is_suing_new_balance_and_skechers_for/)
-- [My $DNA has an extra chromosome 📉](https://www.reddit.com/r/wallstreetbets/comments/17q4tbq/my_dna_has_an_extra_chromosome/)
-- [Big banks cook up a new way to &quot;unload&quot; risk.](https://www.reddit.com/r/wallstreetbets/comments/17q4ss6/big_banks_cook_up_a_new_way_to_unload_risk/)
-- [What Are Your Moves Tomorrow, November 08, 2023](https://www.reddit.com/r/wallstreetbets/comments/17q4btx/what_are_your_moves_tomorrow_november_08_2023/)
+- [Adam Neumann Remains a Billionaire Even With WeWork Bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/17qzfkg/adam_neumann_remains_a_billionaire_even_with/)
+- [Wall Street Director and Head Trader Charged for U.S. Treasuries Market Fraud Scheme](https://www.reddit.com/r/wallstreetbets/comments/17qxvwj/wall_street_director_and_head_trader_charged_for/)
+- [Disney up almost 5% aftermarket after showing Disney+ growth and 7% revenue growth Y.o.Y](https://www.reddit.com/r/wallstreetbets/comments/17qwnm0/disney_up_almost_5_aftermarket_after_showing/)
+- [What Are Your Moves Tomorrow, November 09, 2023](https://www.reddit.com/r/wallstreetbets/comments/17qvibd/what_are_your_moves_tomorrow_november_09_2023/)
+- [You&#39;re gonna lose DISnut after buying puts](https://www.reddit.com/r/wallstreetbets/comments/17qvhty/youre_gonna_lose_disnut_after_buying_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
