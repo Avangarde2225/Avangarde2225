@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Adam Neumann Remains a Billionaire Even With WeWork Bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/17qzfkg/adam_neumann_remains_a_billionaire_even_with/)
-- [Wall Street Director and Head Trader Charged for U.S. Treasuries Market Fraud Scheme](https://www.reddit.com/r/wallstreetbets/comments/17qxvwj/wall_street_director_and_head_trader_charged_for/)
-- [Disney up almost 5% aftermarket after showing Disney+ growth and 7% revenue growth Y.o.Y](https://www.reddit.com/r/wallstreetbets/comments/17qwnm0/disney_up_almost_5_aftermarket_after_showing/)
-- [What Are Your Moves Tomorrow, November 09, 2023](https://www.reddit.com/r/wallstreetbets/comments/17qvibd/what_are_your_moves_tomorrow_november_09_2023/)
-- [You&#39;re gonna lose DISnut after buying puts](https://www.reddit.com/r/wallstreetbets/comments/17qvhty/youre_gonna_lose_disnut_after_buying_puts/)
+- [True loss p*rn](https://www.reddit.com/r/wallstreetbets/comments/17rqbut/true_loss_prn/)
+- [The bell curve, normalized to the distribution of WSB users](https://www.reddit.com/r/wallstreetbets/comments/17rqbck/the_bell_curve_normalized_to_the_distribution_of/)
+- [UPDATE!! I know I’ve been silent&rpar;: From the wallstreetbets community on Reddit: I Need Help! Robinhood says I need to deposit $4.4MILLION](https://www.reddit.com/r/wallstreetbets/comments/17rq580/update_i_know_ive_been_silent_from_the/)
+- [Say it with me guys](https://www.reddit.com/r/wallstreetbets/comments/17roytk/say_it_with_me_guys/)
+- [Bears will end up losing their life savings if they don’t take profits today🤣](https://www.reddit.com/r/wallstreetbets/comments/17rohxg/bears_will_end_up_losing_their_life_savings_if/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
