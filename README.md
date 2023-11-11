@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [True loss p*rn](https://www.reddit.com/r/wallstreetbets/comments/17rqbut/true_loss_prn/)
-- [The bell curve, normalized to the distribution of WSB users](https://www.reddit.com/r/wallstreetbets/comments/17rqbck/the_bell_curve_normalized_to_the_distribution_of/)
-- [UPDATE!! I know I’ve been silent&rpar;: From the wallstreetbets community on Reddit: I Need Help! Robinhood says I need to deposit $4.4MILLION](https://www.reddit.com/r/wallstreetbets/comments/17rq580/update_i_know_ive_been_silent_from_the/)
-- [Say it with me guys](https://www.reddit.com/r/wallstreetbets/comments/17roytk/say_it_with_me_guys/)
-- [Bears will end up losing their life savings if they don’t take profits today🤣](https://www.reddit.com/r/wallstreetbets/comments/17rohxg/bears_will_end_up_losing_their_life_savings_if/)
+- [&quot;Its a tech company not a motor company&quot;](https://www.reddit.com/r/wallstreetbets/comments/17sgg3z/its_a_tech_company_not_a_motor_company/)
+- [Moody&#39;s changes outlook on United States&#39; ratings to &#39;negative&#39;](https://www.reddit.com/r/wallstreetbets/comments/17sfa2y/moodys_changes_outlook_on_united_states_ratings/)
+- [We can all relate to this guy](https://www.reddit.com/r/wallstreetbets/comments/17sds5w/we_can_all_relate_to_this_guy/)
+- [Weekend Discussion Thread for the Weekend of November 11, 2023](https://www.reddit.com/r/wallstreetbets/comments/17sdp8l/weekend_discussion_thread_for_the_weekend_of/)
+- [End of the Road - 1MM Loss in Past Two Years. I Officially Retire](https://www.reddit.com/r/wallstreetbets/comments/17sdewz/end_of_the_road_1mm_loss_in_past_two_years_i/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
