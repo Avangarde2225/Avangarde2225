@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;Its a tech company not a motor company&quot;](https://www.reddit.com/r/wallstreetbets/comments/17sgg3z/its_a_tech_company_not_a_motor_company/)
-- [Moody&#39;s changes outlook on United States&#39; ratings to &#39;negative&#39;](https://www.reddit.com/r/wallstreetbets/comments/17sfa2y/moodys_changes_outlook_on_united_states_ratings/)
-- [We can all relate to this guy](https://www.reddit.com/r/wallstreetbets/comments/17sds5w/we_can_all_relate_to_this_guy/)
-- [Weekend Discussion Thread for the Weekend of November 11, 2023](https://www.reddit.com/r/wallstreetbets/comments/17sdp8l/weekend_discussion_thread_for_the_weekend_of/)
-- [End of the Road - 1MM Loss in Past Two Years. I Officially Retire](https://www.reddit.com/r/wallstreetbets/comments/17sdewz/end_of_the_road_1mm_loss_in_past_two_years_i/)
+- [WE GOT OUR OWN SKIN 🚀](https://www.reddit.com/r/wallstreetbets/comments/17t7ww8/we_got_our_own_skin/)
+- [Imminent Iceland volcano could potentially shut down air travel over the North Atlantic.](https://www.reddit.com/r/wallstreetbets/comments/17t7fqo/imminent_iceland_volcano_could_potentially_shut/)
+- [Jerome Powell on his inflation fight](https://www.reddit.com/r/wallstreetbets/comments/17t3xde/jerome_powell_on_his_inflation_fight/)
+- [What bears and sheep have in common?](https://www.reddit.com/r/wallstreetbets/comments/17t3ww1/what_bears_and_sheep_have_in_common/)
+- [Wall Street hasn’t been this jumpy about a recession since the Volcker era](https://www.reddit.com/r/wallstreetbets/comments/17t2b25/wall_street_hasnt_been_this_jumpy_about_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
