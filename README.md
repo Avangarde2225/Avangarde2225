@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WE GOT OUR OWN SKIN 🚀](https://www.reddit.com/r/wallstreetbets/comments/17t7ww8/we_got_our_own_skin/)
-- [Imminent Iceland volcano could potentially shut down air travel over the North Atlantic.](https://www.reddit.com/r/wallstreetbets/comments/17t7fqo/imminent_iceland_volcano_could_potentially_shut/)
-- [Jerome Powell on his inflation fight](https://www.reddit.com/r/wallstreetbets/comments/17t3xde/jerome_powell_on_his_inflation_fight/)
-- [What bears and sheep have in common?](https://www.reddit.com/r/wallstreetbets/comments/17t3ww1/what_bears_and_sheep_have_in_common/)
-- [Wall Street hasn’t been this jumpy about a recession since the Volcker era](https://www.reddit.com/r/wallstreetbets/comments/17t2b25/wall_street_hasnt_been_this_jumpy_about_a/)
+- [The full market impact of easily accessible weight loss drugs &amp; why Eli Lilly is extremely undervalued](https://www.reddit.com/r/wallstreetbets/comments/17twqzf/the_full_market_impact_of_easily_accessible/)
+- [Humane debuts its Ai Pin – a $699 screenless &#39;iPhone killer&#39;](https://www.reddit.com/r/wallstreetbets/comments/17tvwp2/humane_debuts_its_ai_pin_a_699_screenless_iphone/)
+- [How your SPY Puts look after Veterans Day weekend](https://www.reddit.com/r/wallstreetbets/comments/17tvelv/how_your_spy_puts_look_after_veterans_day_weekend/)
+- [Kevin O&#39;Leary&#39;s Investment Strategy](https://www.reddit.com/r/wallstreetbets/comments/17tv5nr/kevin_olearys_investment_strategy/)
+- [Gety Images is a Short Here](https://www.reddit.com/r/wallstreetbets/comments/17tu3k8/gety_images_is_a_short_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
