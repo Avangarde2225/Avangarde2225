@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The full market impact of easily accessible weight loss drugs &amp; why Eli Lilly is extremely undervalued](https://www.reddit.com/r/wallstreetbets/comments/17twqzf/the_full_market_impact_of_easily_accessible/)
-- [Humane debuts its Ai Pin – a $699 screenless &#39;iPhone killer&#39;](https://www.reddit.com/r/wallstreetbets/comments/17tvwp2/humane_debuts_its_ai_pin_a_699_screenless_iphone/)
-- [How your SPY Puts look after Veterans Day weekend](https://www.reddit.com/r/wallstreetbets/comments/17tvelv/how_your_spy_puts_look_after_veterans_day_weekend/)
-- [Kevin O&#39;Leary&#39;s Investment Strategy](https://www.reddit.com/r/wallstreetbets/comments/17tv5nr/kevin_olearys_investment_strategy/)
-- [Gety Images is a Short Here](https://www.reddit.com/r/wallstreetbets/comments/17tu3k8/gety_images_is_a_short_here/)
+- [Software Startups before they become profitable](https://www.reddit.com/r/wallstreetbets/comments/17ume3h/software_startups_before_they_become_profitable/)
+- [What Are Your Moves Tomorrow, November 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/17ukrg9/what_are_your_moves_tomorrow_november_14_2023/)
+- [I been waiting](https://www.reddit.com/r/wallstreetbets/comments/17ujo9x/i_been_waiting/)
+- [My Investing strategy is starting to look like push-ups and holding a rifle](https://www.reddit.com/r/wallstreetbets/comments/17uihig/my_investing_strategy_is_starting_to_look_like/)
+- [Should members of Congress be allowed to buy defense stocks?](https://www.reddit.com/r/wallstreetbets/comments/17ui2k9/should_members_of_congress_be_allowed_to_buy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
