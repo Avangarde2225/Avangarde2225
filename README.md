@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Software Startups before they become profitable](https://www.reddit.com/r/wallstreetbets/comments/17ume3h/software_startups_before_they_become_profitable/)
-- [What Are Your Moves Tomorrow, November 14, 2023](https://www.reddit.com/r/wallstreetbets/comments/17ukrg9/what_are_your_moves_tomorrow_november_14_2023/)
-- [I been waiting](https://www.reddit.com/r/wallstreetbets/comments/17ujo9x/i_been_waiting/)
-- [My Investing strategy is starting to look like push-ups and holding a rifle](https://www.reddit.com/r/wallstreetbets/comments/17uihig/my_investing_strategy_is_starting_to_look_like/)
-- [Should members of Congress be allowed to buy defense stocks?](https://www.reddit.com/r/wallstreetbets/comments/17ui2k9/should_members_of_congress_be_allowed_to_buy/)
+- [Kenny Boy strongly insinuating on national television that Citadel front runs retail orders and laughing it off as a joke](https://www.reddit.com/r/wallstreetbets/comments/17vfnqj/kenny_boy_strongly_insinuating_on_national/)
+- [What do you think about Sam Bankman-Fried’s life in jail? He is most likely headed to a medium-security prison.](https://www.reddit.com/r/wallstreetbets/comments/17veih5/what_do_you_think_about_sam_bankmanfrieds_life_in/)
+- [Sold right after the screenshot📈](https://www.reddit.com/r/wallstreetbets/comments/17vdlzi/sold_right_after_the_screenshot/)
+- [I don’t know who’s worst, Michael Gayed or Jim Cramer? 💀💀](https://www.reddit.com/r/wallstreetbets/comments/17vdewi/i_dont_know_whos_worst_michael_gayed_or_jim_cramer/)
+- [Bumble&#39;s userbase plummeted when they deleted all their bots](https://www.reddit.com/r/wallstreetbets/comments/17vcxfa/bumbles_userbase_plummeted_when_they_deleted_all/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
