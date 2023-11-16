@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Kenny Boy strongly insinuating on national television that Citadel front runs retail orders and laughing it off as a joke](https://www.reddit.com/r/wallstreetbets/comments/17vfnqj/kenny_boy_strongly_insinuating_on_national/)
-- [What do you think about Sam Bankman-Fried’s life in jail? He is most likely headed to a medium-security prison.](https://www.reddit.com/r/wallstreetbets/comments/17veih5/what_do_you_think_about_sam_bankmanfrieds_life_in/)
-- [Sold right after the screenshot📈](https://www.reddit.com/r/wallstreetbets/comments/17vdlzi/sold_right_after_the_screenshot/)
-- [I don’t know who’s worst, Michael Gayed or Jim Cramer? 💀💀](https://www.reddit.com/r/wallstreetbets/comments/17vdewi/i_dont_know_whos_worst_michael_gayed_or_jim_cramer/)
-- [Bumble&#39;s userbase plummeted when they deleted all their bots](https://www.reddit.com/r/wallstreetbets/comments/17vcxfa/bumbles_userbase_plummeted_when_they_deleted_all/)
+- [The FED&#39;s current monetary policy](https://www.reddit.com/r/wallstreetbets/comments/17w5hg4/the_feds_current_monetary_policy/)
+- [Which one of y’all is this?](https://www.reddit.com/r/wallstreetbets/comments/17w4pkn/which_one_of_yall_is_this/)
+- [“Cisco is a buy” - Cramer](https://www.reddit.com/r/wallstreetbets/comments/17w4p5h/cisco_is_a_buy_cramer/)
+- [150k Breakeven 3 Years Later](https://www.reddit.com/r/wallstreetbets/comments/17w44g8/150k_breakeven_3_years_later/)
+- [Red alert. My local supermarket increased the price of Arizona iced tea to $1.33 a can.](https://www.reddit.com/r/wallstreetbets/comments/17w3vv9/red_alert_my_local_supermarket_increased_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
