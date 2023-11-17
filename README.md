@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The FED&#39;s current monetary policy](https://www.reddit.com/r/wallstreetbets/comments/17w5hg4/the_feds_current_monetary_policy/)
-- [Which one of y’all is this?](https://www.reddit.com/r/wallstreetbets/comments/17w4pkn/which_one_of_yall_is_this/)
-- [“Cisco is a buy” - Cramer](https://www.reddit.com/r/wallstreetbets/comments/17w4p5h/cisco_is_a_buy_cramer/)
-- [150k Breakeven 3 Years Later](https://www.reddit.com/r/wallstreetbets/comments/17w44g8/150k_breakeven_3_years_later/)
-- [Red alert. My local supermarket increased the price of Arizona iced tea to $1.33 a can.](https://www.reddit.com/r/wallstreetbets/comments/17w3vv9/red_alert_my_local_supermarket_increased_the/)
+- [Biden calls Xi a dictator. Secretary of State is not happy about that. Stock Market will feel the impact tomorrow. Prepare for more the Dip](https://www.reddit.com/r/wallstreetbets/comments/17x1k66/biden_calls_xi_a_dictator_secretary_of_state_is/)
+- [Most Anticipated Earnings Releases for the week beginning November 20th, 2023](https://www.reddit.com/r/wallstreetbets/comments/17x0f4h/most_anticipated_earnings_releases_for_the_week/)
+- [Calls on $AMZN](https://www.reddit.com/r/wallstreetbets/comments/17x01h3/calls_on_amzn/)
+- [$HOOD 300k YOLO](https://www.reddit.com/r/wallstreetbets/comments/17wz72b/hood_300k_yolo/)
+- [Walmart crying in the corner rn](https://www.reddit.com/r/wallstreetbets/comments/17wydyl/walmart_crying_in_the_corner_rn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
