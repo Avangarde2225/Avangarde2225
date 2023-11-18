@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Biden calls Xi a dictator. Secretary of State is not happy about that. Stock Market will feel the impact tomorrow. Prepare for more the Dip](https://www.reddit.com/r/wallstreetbets/comments/17x1k66/biden_calls_xi_a_dictator_secretary_of_state_is/)
-- [Most Anticipated Earnings Releases for the week beginning November 20th, 2023](https://www.reddit.com/r/wallstreetbets/comments/17x0f4h/most_anticipated_earnings_releases_for_the_week/)
-- [Calls on $AMZN](https://www.reddit.com/r/wallstreetbets/comments/17x01h3/calls_on_amzn/)
-- [$HOOD 300k YOLO](https://www.reddit.com/r/wallstreetbets/comments/17wz72b/hood_300k_yolo/)
-- [Walmart crying in the corner rn](https://www.reddit.com/r/wallstreetbets/comments/17wydyl/walmart_crying_in_the_corner_rn/)
+- [Expected a Lambo, Got a Nikon](https://www.reddit.com/r/wallstreetbets/comments/17xqv1l/expected_a_lambo_got_a_nikon/)
+- [TLRY for the win](https://www.reddit.com/r/wallstreetbets/comments/17xqtch/tlry_for_the_win/)
+- [How I Turned $1500 into $0](https://www.reddit.com/r/wallstreetbets/comments/17xqsau/how_i_turned_1500_into_0/)
+- [When SBF&#39;s cellmate says &quot;do that LoL emote dance that I like so much&quot;](https://www.reddit.com/r/wallstreetbets/comments/17xq43f/when_sbfs_cellmate_says_do_that_lol_emote_dance/)
+- [Live shot of bulls rn:](https://www.reddit.com/r/wallstreetbets/comments/17xpfjc/live_shot_of_bulls_rn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
