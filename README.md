@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Expected a Lambo, Got a Nikon](https://www.reddit.com/r/wallstreetbets/comments/17xqv1l/expected_a_lambo_got_a_nikon/)
-- [TLRY for the win](https://www.reddit.com/r/wallstreetbets/comments/17xqtch/tlry_for_the_win/)
-- [How I Turned $1500 into $0](https://www.reddit.com/r/wallstreetbets/comments/17xqsau/how_i_turned_1500_into_0/)
-- [When SBF&#39;s cellmate says &quot;do that LoL emote dance that I like so much&quot;](https://www.reddit.com/r/wallstreetbets/comments/17xq43f/when_sbfs_cellmate_says_do_that_lol_emote_dance/)
-- [Live shot of bulls rn:](https://www.reddit.com/r/wallstreetbets/comments/17xpfjc/live_shot_of_bulls_rn/)
+- [OpenAI board in discussions with Sam Altman to return as CEO](https://www.reddit.com/r/wallstreetbets/comments/17yjr7a/openai_board_in_discussions_with_sam_altman_to/)
+- [OpenAI board in discussions with Sam Altman to return as CEO](https://www.reddit.com/r/wallstreetbets/comments/17yjja1/openai_board_in_discussions_with_sam_altman_to/)
+- [Amazon price and number of funds owning its stocks. Just how it works 😀](https://www.reddit.com/r/wallstreetbets/comments/17yjb65/amazon_price_and_number_of_funds_owning_its/)
+- [These puts went from $14k-&gt;$0–&gt;$10k. If just held on at least a couple more hours on Friday I could have bagged $18k. Regrets.](https://www.reddit.com/r/wallstreetbets/comments/17yhds3/these_puts_went_from_14k010k_if_just_held_on_at/)
+- [&#39;This is insane&#39;: OpenAI investors blindsided by Sam Altman’s firing](https://www.reddit.com/r/wallstreetbets/comments/17ygogx/this_is_insane_openai_investors_blindsided_by_sam/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
