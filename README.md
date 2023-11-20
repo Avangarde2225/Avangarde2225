@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [OpenAI board in discussions with Sam Altman to return as CEO](https://www.reddit.com/r/wallstreetbets/comments/17yjr7a/openai_board_in_discussions_with_sam_altman_to/)
-- [OpenAI board in discussions with Sam Altman to return as CEO](https://www.reddit.com/r/wallstreetbets/comments/17yjja1/openai_board_in_discussions_with_sam_altman_to/)
-- [Amazon price and number of funds owning its stocks. Just how it works 😀](https://www.reddit.com/r/wallstreetbets/comments/17yjb65/amazon_price_and_number_of_funds_owning_its/)
-- [These puts went from $14k-&gt;$0–&gt;$10k. If just held on at least a couple more hours on Friday I could have bagged $18k. Regrets.](https://www.reddit.com/r/wallstreetbets/comments/17yhds3/these_puts_went_from_14k010k_if_just_held_on_at/)
-- [&#39;This is insane&#39;: OpenAI investors blindsided by Sam Altman’s firing](https://www.reddit.com/r/wallstreetbets/comments/17ygogx/this_is_insane_openai_investors_blindsided_by_sam/)
+- [Anybody else planning to buy stock in Argentinian industries if Milei wins the presidential election this evening?](https://www.reddit.com/r/wallstreetbets/comments/17z9u7c/anybody_else_planning_to_buy_stock_in_argentinian/)
+- [Sam Altman Likely to Return as OpenAI CEO - What will be the Board Fallout and What Might that Signal to the Markets?](https://www.reddit.com/r/wallstreetbets/comments/17z7vd3/sam_altman_likely_to_return_as_openai_ceo_what/)
+- [What Are Your Moves Tomorrow, November 20, 2023](https://www.reddit.com/r/wallstreetbets/comments/17z6tmb/what_are_your_moves_tomorrow_november_20_2023/)
+- [[Request] Hypothetically speaking of course.](https://www.reddit.com/r/wallstreetbets/comments/17z3dnt/request_hypothetically_speaking_of_course/)
+- [$1.2k —&gt; $10.7k thanks to $TSLA](https://www.reddit.com/r/wallstreetbets/comments/17z23qx/12k_107k_thanks_to_tsla/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
