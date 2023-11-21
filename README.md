@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anybody else planning to buy stock in Argentinian industries if Milei wins the presidential election this evening?](https://www.reddit.com/r/wallstreetbets/comments/17z9u7c/anybody_else_planning_to_buy_stock_in_argentinian/)
-- [Sam Altman Likely to Return as OpenAI CEO - What will be the Board Fallout and What Might that Signal to the Markets?](https://www.reddit.com/r/wallstreetbets/comments/17z7vd3/sam_altman_likely_to_return_as_openai_ceo_what/)
-- [What Are Your Moves Tomorrow, November 20, 2023](https://www.reddit.com/r/wallstreetbets/comments/17z6tmb/what_are_your_moves_tomorrow_november_20_2023/)
-- [[Request] Hypothetically speaking of course.](https://www.reddit.com/r/wallstreetbets/comments/17z3dnt/request_hypothetically_speaking_of_course/)
-- [$1.2k —&gt; $10.7k thanks to $TSLA](https://www.reddit.com/r/wallstreetbets/comments/17z23qx/12k_107k_thanks_to_tsla/)
+- [This one trick that the market makers hate 0dte yolo’ers from finding out about](https://www.reddit.com/r/wallstreetbets/comments/1801e36/this_one_trick_that_the_market_makers_hate_0dte/)
+- [Microsoft stock hits all-time high after hiring OpenAI’s fired CEO Sam Altman](https://www.reddit.com/r/wallstreetbets/comments/17zzhtg/microsoft_stock_hits_alltime_high_after_hiring/)
+- [Nancy Pelosi](https://www.reddit.com/r/wallstreetbets/comments/17zz934/nancy_pelosi/)
+- [Every goddam* day](https://www.reddit.com/r/wallstreetbets/comments/17zz8on/every_goddam_day/)
+- [Well…Fuck.](https://www.reddit.com/r/wallstreetbets/comments/17zz43i/wellfuck/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
