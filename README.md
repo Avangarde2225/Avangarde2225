@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This one trick that the market makers hate 0dte yolo’ers from finding out about](https://www.reddit.com/r/wallstreetbets/comments/1801e36/this_one_trick_that_the_market_makers_hate_0dte/)
-- [Microsoft stock hits all-time high after hiring OpenAI’s fired CEO Sam Altman](https://www.reddit.com/r/wallstreetbets/comments/17zzhtg/microsoft_stock_hits_alltime_high_after_hiring/)
-- [Nancy Pelosi](https://www.reddit.com/r/wallstreetbets/comments/17zz934/nancy_pelosi/)
-- [Every goddam* day](https://www.reddit.com/r/wallstreetbets/comments/17zz8on/every_goddam_day/)
-- [Well…Fuck.](https://www.reddit.com/r/wallstreetbets/comments/17zz43i/wellfuck/)
+- [The OpenAI situation summarized by Silicon Valley](https://www.reddit.com/r/wallstreetbets/comments/180twqg/the_openai_situation_summarized_by_silicon_valley/)
+- [Brands Catering to Upper Middle Class Are Struggling](https://www.reddit.com/r/wallstreetbets/comments/180tudd/brands_catering_to_upper_middle_class_are/)
+- [$NVDA Earnings Thread](https://www.reddit.com/r/wallstreetbets/comments/180s7ll/nvda_earnings_thread/)
+- [Puts on wherever this guy works next](https://www.reddit.com/r/wallstreetbets/comments/180rsx0/puts_on_wherever_this_guy_works_next/)
+- [Who’s the fucking idiot in this sub that told my dad about margins?](https://www.reddit.com/r/wallstreetbets/comments/180rk6s/whos_the_fucking_idiot_in_this_sub_that_told_my/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
