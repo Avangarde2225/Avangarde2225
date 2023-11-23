@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The OpenAI situation summarized by Silicon Valley](https://www.reddit.com/r/wallstreetbets/comments/180twqg/the_openai_situation_summarized_by_silicon_valley/)
-- [Brands Catering to Upper Middle Class Are Struggling](https://www.reddit.com/r/wallstreetbets/comments/180tudd/brands_catering_to_upper_middle_class_are/)
-- [$NVDA Earnings Thread](https://www.reddit.com/r/wallstreetbets/comments/180s7ll/nvda_earnings_thread/)
-- [Puts on wherever this guy works next](https://www.reddit.com/r/wallstreetbets/comments/180rsx0/puts_on_wherever_this_guy_works_next/)
-- [Who’s the fucking idiot in this sub that told my dad about margins?](https://www.reddit.com/r/wallstreetbets/comments/180rk6s/whos_the_fucking_idiot_in_this_sub_that_told_my/)
+- [Netflix director loses $11 million trading options, makes $20 million trading crypto...](https://www.reddit.com/r/wallstreetbets/comments/181n6wp/netflix_director_loses_11_million_trading_options/)
+- [Which one of y’all was this](https://www.reddit.com/r/wallstreetbets/comments/181lbt7/which_one_of_yall_was_this/)
+- [You guys don&#39;t forget to eat &lpar;within your budget&rpar;](https://www.reddit.com/r/wallstreetbets/comments/181kkwp/you_guys_dont_forget_to_eat_within_your_budget/)
+- [Movie director loses millions on options and crypto using Netflix money.](https://www.reddit.com/r/wallstreetbets/comments/181kdf3/movie_director_loses_millions_on_options_and/)
+- [It’s a fugazi, fugayzi](https://www.reddit.com/r/wallstreetbets/comments/181k65b/its_a_fugazi_fugayzi/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
