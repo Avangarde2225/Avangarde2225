@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Netflix director loses $11 million trading options, makes $20 million trading crypto...](https://www.reddit.com/r/wallstreetbets/comments/181n6wp/netflix_director_loses_11_million_trading_options/)
-- [Which one of y’all was this](https://www.reddit.com/r/wallstreetbets/comments/181lbt7/which_one_of_yall_was_this/)
-- [You guys don&#39;t forget to eat &lpar;within your budget&rpar;](https://www.reddit.com/r/wallstreetbets/comments/181kkwp/you_guys_dont_forget_to_eat_within_your_budget/)
-- [Movie director loses millions on options and crypto using Netflix money.](https://www.reddit.com/r/wallstreetbets/comments/181kdf3/movie_director_loses_millions_on_options_and/)
-- [It’s a fugazi, fugayzi](https://www.reddit.com/r/wallstreetbets/comments/181k65b/its_a_fugazi_fugayzi/)
+- [The &quot;higher for longer&quot; repost and my &quot;strategy&quot; going into 2024](https://www.reddit.com/r/wallstreetbets/comments/182dca5/the_higher_for_longer_repost_and_my_strategy/)
+- [Warren Buffet Lubing Up The American Tax Payer For The Next Major Bank Bail Out?](https://www.reddit.com/r/wallstreetbets/comments/182crfn/warren_buffet_lubing_up_the_american_tax_payer/)
+- [Squid Game Challenge Players Threaten to Sue Netflix Over Injuries](https://www.reddit.com/r/wallstreetbets/comments/182c4rd/squid_game_challenge_players_threaten_to_sue/)
+- [What Are Your Recipes Tomorrow, November 24th, 2022](https://www.reddit.com/r/wallstreetbets/comments/182ay78/what_are_your_recipes_tomorrow_november_24th_2022/)
+- [Since my last post was deleted… I stick by this. For proof when this blows up! Haha](https://www.reddit.com/r/wallstreetbets/comments/182aeoh/since_my_last_post_was_deleted_i_stick_by_this/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
