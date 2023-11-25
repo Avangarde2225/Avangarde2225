@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The &quot;higher for longer&quot; repost and my &quot;strategy&quot; going into 2024](https://www.reddit.com/r/wallstreetbets/comments/182dca5/the_higher_for_longer_repost_and_my_strategy/)
-- [Warren Buffet Lubing Up The American Tax Payer For The Next Major Bank Bail Out?](https://www.reddit.com/r/wallstreetbets/comments/182crfn/warren_buffet_lubing_up_the_american_tax_payer/)
-- [Squid Game Challenge Players Threaten to Sue Netflix Over Injuries](https://www.reddit.com/r/wallstreetbets/comments/182c4rd/squid_game_challenge_players_threaten_to_sue/)
-- [What Are Your Recipes Tomorrow, November 24th, 2022](https://www.reddit.com/r/wallstreetbets/comments/182ay78/what_are_your_recipes_tomorrow_november_24th_2022/)
-- [Since my last post was deleted… I stick by this. For proof when this blows up! Haha](https://www.reddit.com/r/wallstreetbets/comments/182aeoh/since_my_last_post_was_deleted_i_stick_by_this/)
+- [European Central Bank president, Christine Lagarde, said her son lost 60% of his investments trading crypto](https://www.reddit.com/r/wallstreetbets/comments/1836bu4/european_central_bank_president_christine_lagarde/)
+- [Even Bill Gates lacked the diamond 💎 hands Had he hodl MSFT they would be worth 1.25 trillion!](https://www.reddit.com/r/wallstreetbets/comments/1835ume/even_bill_gates_lacked_the_diamond_hands_had_he/)
+- [Wendy&#39;s, best practices?](https://www.reddit.com/r/wallstreetbets/comments/1833oiq/wendys_best_practices/)
+- [Weekend Discussion Thread for the Weekend of November 25, 2023](https://www.reddit.com/r/wallstreetbets/comments/1831zp9/weekend_discussion_thread_for_the_weekend_of/)
+- [Airline stocks a buy?](https://www.reddit.com/r/wallstreetbets/comments/18303f6/airline_stocks_a_buy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
