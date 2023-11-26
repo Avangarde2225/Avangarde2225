@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [European Central Bank president, Christine Lagarde, said her son lost 60% of his investments trading crypto](https://www.reddit.com/r/wallstreetbets/comments/1836bu4/european_central_bank_president_christine_lagarde/)
-- [Even Bill Gates lacked the diamond 💎 hands Had he hodl MSFT they would be worth 1.25 trillion!](https://www.reddit.com/r/wallstreetbets/comments/1835ume/even_bill_gates_lacked_the_diamond_hands_had_he/)
-- [Wendy&#39;s, best practices?](https://www.reddit.com/r/wallstreetbets/comments/1833oiq/wendys_best_practices/)
-- [Weekend Discussion Thread for the Weekend of November 25, 2023](https://www.reddit.com/r/wallstreetbets/comments/1831zp9/weekend_discussion_thread_for_the_weekend_of/)
-- [Airline stocks a buy?](https://www.reddit.com/r/wallstreetbets/comments/18303f6/airline_stocks_a_buy/)
+- [My wife’s boyfriend just got her this sweater](https://www.reddit.com/r/wallstreetbets/comments/183xqd0/my_wifes_boyfriend_just_got_her_this_sweater/)
+- [SpaceX IPO next month? $TSLA](https://www.reddit.com/r/wallstreetbets/comments/183x6oi/spacex_ipo_next_month_tsla/)
+- [Chinese bank declares insolvency](https://www.reddit.com/r/wallstreetbets/comments/183wu25/chinese_bank_declares_insolvency/)
+- [Never gets old](https://www.reddit.com/r/wallstreetbets/comments/183vqy1/never_gets_old/)
+- [Wall Street is telling you to sell NVDA](https://www.reddit.com/r/wallstreetbets/comments/183voxn/wall_street_is_telling_you_to_sell_nvda/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
