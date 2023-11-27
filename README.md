@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My wife’s boyfriend just got her this sweater](https://www.reddit.com/r/wallstreetbets/comments/183xqd0/my_wifes_boyfriend_just_got_her_this_sweater/)
-- [SpaceX IPO next month? $TSLA](https://www.reddit.com/r/wallstreetbets/comments/183x6oi/spacex_ipo_next_month_tsla/)
-- [Chinese bank declares insolvency](https://www.reddit.com/r/wallstreetbets/comments/183wu25/chinese_bank_declares_insolvency/)
-- [Never gets old](https://www.reddit.com/r/wallstreetbets/comments/183vqy1/never_gets_old/)
-- [Wall Street is telling you to sell NVDA](https://www.reddit.com/r/wallstreetbets/comments/183voxn/wall_street_is_telling_you_to_sell_nvda/)
+- [Puts on the American economy](https://www.reddit.com/r/wallstreetbets/comments/184o9zw/puts_on_the_american_economy/)
+- [Nvidia cofounder who could have been worth $70b is living off grid](https://www.reddit.com/r/wallstreetbets/comments/184ngdu/nvidia_cofounder_who_could_have_been_worth_70b_is/)
+- [Join me on my journey ... $1,000 to $1,000,000 ... I&#39;ll be documenting here. &lpar;Trade 0/30&rpar;](https://www.reddit.com/r/wallstreetbets/comments/184nd4b/join_me_on_my_journey_1000_to_1000000_ill_be/)
+- [Unpopular opinion: This wasn’t the worst Black Friday in history and real estate prices aren’t going to collapse. Fu¢k you doomers.](https://www.reddit.com/r/wallstreetbets/comments/184lrlw/unpopular_opinion_this_wasnt_the_worst_black/)
+- [Merica is cooked 😭Puts on Target](https://www.reddit.com/r/wallstreetbets/comments/184lfps/merica_is_cooked_puts_on_target/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
