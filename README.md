@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on the American economy](https://www.reddit.com/r/wallstreetbets/comments/184o9zw/puts_on_the_american_economy/)
-- [Nvidia cofounder who could have been worth $70b is living off grid](https://www.reddit.com/r/wallstreetbets/comments/184ngdu/nvidia_cofounder_who_could_have_been_worth_70b_is/)
-- [Join me on my journey ... $1,000 to $1,000,000 ... I&#39;ll be documenting here. &lpar;Trade 0/30&rpar;](https://www.reddit.com/r/wallstreetbets/comments/184nd4b/join_me_on_my_journey_1000_to_1000000_ill_be/)
-- [Unpopular opinion: This wasn’t the worst Black Friday in history and real estate prices aren’t going to collapse. Fu¢k you doomers.](https://www.reddit.com/r/wallstreetbets/comments/184lrlw/unpopular_opinion_this_wasnt_the_worst_black/)
-- [Merica is cooked 😭Puts on Target](https://www.reddit.com/r/wallstreetbets/comments/184lfps/merica_is_cooked_puts_on_target/)
+- [I&#39;m now profitable on ROKU after 3 years of bagholding a +$100K loss](https://www.reddit.com/r/wallstreetbets/comments/185gsfv/im_now_profitable_on_roku_after_3_years_of/)
+- [If my Uber driver can be a regard, we all can!](https://www.reddit.com/r/wallstreetbets/comments/185grq1/if_my_uber_driver_can_be_a_regard_we_all_can/)
+- [Amazon now delivers more packages than FedEx and UPS in the US](https://www.reddit.com/r/wallstreetbets/comments/185fhuq/amazon_now_delivers_more_packages_than_fedex_and/)
+- [Playing 0DTE be like](https://www.reddit.com/r/wallstreetbets/comments/185e0az/playing_0dte_be_like/)
+- [What Are Your Moves Tomorrow, November 28, 2023](https://www.reddit.com/r/wallstreetbets/comments/185djpy/what_are_your_moves_tomorrow_november_28_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
