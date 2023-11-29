@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m now profitable on ROKU after 3 years of bagholding a +$100K loss](https://www.reddit.com/r/wallstreetbets/comments/185gsfv/im_now_profitable_on_roku_after_3_years_of/)
-- [If my Uber driver can be a regard, we all can!](https://www.reddit.com/r/wallstreetbets/comments/185grq1/if_my_uber_driver_can_be_a_regard_we_all_can/)
-- [Amazon now delivers more packages than FedEx and UPS in the US](https://www.reddit.com/r/wallstreetbets/comments/185fhuq/amazon_now_delivers_more_packages_than_fedex_and/)
-- [Playing 0DTE be like](https://www.reddit.com/r/wallstreetbets/comments/185e0az/playing_0dte_be_like/)
-- [What Are Your Moves Tomorrow, November 28, 2023](https://www.reddit.com/r/wallstreetbets/comments/185djpy/what_are_your_moves_tomorrow_november_28_2023/)
+- [Charlie Munger has sadly passed so I would like to create the largest F in chat chain in the history of the world to pay respect](https://www.reddit.com/r/wallstreetbets/comments/1868jyn/charlie_munger_has_sadly_passed_so_i_would_like/)
+- [Let&#39;s not go there please](https://www.reddit.com/r/wallstreetbets/comments/1868akd/lets_not_go_there_please/)
+- [RIP to the 🐐](https://www.reddit.com/r/wallstreetbets/comments/1867ute/rip_to_the/)
+- [RIP, Charlie 🪦](https://www.reddit.com/r/wallstreetbets/comments/1867a3r/rip_charlie/)
+- [Diamond hands forever RIP legend](https://www.reddit.com/r/wallstreetbets/comments/18674u5/diamond_hands_forever_rip_legend/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
