@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Charlie Munger has sadly passed so I would like to create the largest F in chat chain in the history of the world to pay respect](https://www.reddit.com/r/wallstreetbets/comments/1868jyn/charlie_munger_has_sadly_passed_so_i_would_like/)
-- [Let&#39;s not go there please](https://www.reddit.com/r/wallstreetbets/comments/1868akd/lets_not_go_there_please/)
-- [RIP to the 🐐](https://www.reddit.com/r/wallstreetbets/comments/1867ute/rip_to_the/)
-- [RIP, Charlie 🪦](https://www.reddit.com/r/wallstreetbets/comments/1867a3r/rip_charlie/)
-- [Diamond hands forever RIP legend](https://www.reddit.com/r/wallstreetbets/comments/18674u5/diamond_hands_forever_rip_legend/)
+- [Wildest day trade of my life](https://www.reddit.com/r/wallstreetbets/comments/1873pt6/wildest_day_trade_of_my_life/)
+- [Rare moment of &quot;F*ck you money&quot;](https://www.reddit.com/r/wallstreetbets/comments/1873iwc/rare_moment_of_fck_you_money/)
+- [Elon tells Bob Iger to “go f*ck yourself”](https://www.reddit.com/r/wallstreetbets/comments/18739kt/elon_tells_bob_iger_to_go_fck_yourself/)
+- [What Are Your Moves Tomorrow, November 30, 2023](https://www.reddit.com/r/wallstreetbets/comments/186zwyl/what_are_your_moves_tomorrow_november_30_2023/)
+- [$1k to $1M Challenge - Day 3 of 30, 20% today &lpar;+85% overall&rpar;](https://www.reddit.com/r/wallstreetbets/comments/186zf4k/1k_to_1m_challenge_day_3_of_30_20_today_85_overall/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
