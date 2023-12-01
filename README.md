@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wildest day trade of my life](https://www.reddit.com/r/wallstreetbets/comments/1873pt6/wildest_day_trade_of_my_life/)
-- [Rare moment of &quot;F*ck you money&quot;](https://www.reddit.com/r/wallstreetbets/comments/1873iwc/rare_moment_of_fck_you_money/)
-- [Elon tells Bob Iger to “go f*ck yourself”](https://www.reddit.com/r/wallstreetbets/comments/18739kt/elon_tells_bob_iger_to_go_fck_yourself/)
-- [What Are Your Moves Tomorrow, November 30, 2023](https://www.reddit.com/r/wallstreetbets/comments/186zwyl/what_are_your_moves_tomorrow_november_30_2023/)
-- [$1k to $1M Challenge - Day 3 of 30, 20% today &lpar;+85% overall&rpar;](https://www.reddit.com/r/wallstreetbets/comments/186zf4k/1k_to_1m_challenge_day_3_of_30_20_today_85_overall/)
+- [Most Anticipated Earnings Releases for the week beginning December 4th, 2023](https://www.reddit.com/r/wallstreetbets/comments/187wmuu/most_anticipated_earnings_releases_for_the_week/)
+- [Bets on this getting a million times less scrutiny than the Microsoft, Activision deal.](https://www.reddit.com/r/wallstreetbets/comments/187trfl/bets_on_this_getting_a_million_times_less/)
+- [The soft landing is in the room with us…right now](https://www.reddit.com/r/wallstreetbets/comments/187t30b/the_soft_landing_is_in_the_room_with_usright_now/)
+- [What Are Your Moves Tomorrow, December 01, 2023](https://www.reddit.com/r/wallstreetbets/comments/187szzq/what_are_your_moves_tomorrow_december_01_2023/)
+- [Americans are ‘doom spending’ — here’s why that’s a problem](https://www.reddit.com/r/wallstreetbets/comments/187s4kn/americans_are_doom_spending_heres_why_thats_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
