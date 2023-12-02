@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Most Anticipated Earnings Releases for the week beginning December 4th, 2023](https://www.reddit.com/r/wallstreetbets/comments/187wmuu/most_anticipated_earnings_releases_for_the_week/)
-- [Bets on this getting a million times less scrutiny than the Microsoft, Activision deal.](https://www.reddit.com/r/wallstreetbets/comments/187trfl/bets_on_this_getting_a_million_times_less/)
-- [The soft landing is in the room with us…right now](https://www.reddit.com/r/wallstreetbets/comments/187t30b/the_soft_landing_is_in_the_room_with_usright_now/)
-- [What Are Your Moves Tomorrow, December 01, 2023](https://www.reddit.com/r/wallstreetbets/comments/187szzq/what_are_your_moves_tomorrow_december_01_2023/)
-- [Americans are ‘doom spending’ — here’s why that’s a problem](https://www.reddit.com/r/wallstreetbets/comments/187s4kn/americans_are_doom_spending_heres_why_thats_a/)
+- [You love to see it..](https://www.reddit.com/r/wallstreetbets/comments/188pyg3/you_love_to_see_it/)
+- [SPY 0DTE PUT 30K YOLO](https://www.reddit.com/r/wallstreetbets/comments/188pc1a/spy_0dte_put_30k_yolo/)
+- [Pack it up folks, it’s over](https://www.reddit.com/r/wallstreetbets/comments/188p2qq/pack_it_up_folks_its_over/)
+- [$UBER joins the S&amp;P500](https://www.reddit.com/r/wallstreetbets/comments/188opn9/uber_joins_the_sp500/)
+- [Weekend Discussion Thread for the Weekend of December 02, 2023](https://www.reddit.com/r/wallstreetbets/comments/188mca2/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
