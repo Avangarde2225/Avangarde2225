@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You love to see it..](https://www.reddit.com/r/wallstreetbets/comments/188pyg3/you_love_to_see_it/)
-- [SPY 0DTE PUT 30K YOLO](https://www.reddit.com/r/wallstreetbets/comments/188pc1a/spy_0dte_put_30k_yolo/)
-- [Pack it up folks, it’s over](https://www.reddit.com/r/wallstreetbets/comments/188p2qq/pack_it_up_folks_its_over/)
-- [$UBER joins the S&amp;P500](https://www.reddit.com/r/wallstreetbets/comments/188opn9/uber_joins_the_sp500/)
-- [Weekend Discussion Thread for the Weekend of December 02, 2023](https://www.reddit.com/r/wallstreetbets/comments/188mca2/weekend_discussion_thread_for_the_weekend_of/)
+- [Broadcom CEO tells VMWare workers to ‘get butt back to office’ after completing a $69 billion merger of the two companies](https://www.reddit.com/r/wallstreetbets/comments/189gtsc/broadcom_ceo_tells_vmware_workers_to_get_butt/)
+- [#2 tattoo for the leg sleeve. Said I&#39;d post the updates. Some of you all might understand this. Lol](https://www.reddit.com/r/wallstreetbets/comments/189e191/2_tattoo_for_the_leg_sleeve_said_id_post_the/)
+- [This is just crazy imagine investing with some sort of leverage in early 2000s](https://www.reddit.com/r/wallstreetbets/comments/189cuwo/this_is_just_crazy_imagine_investing_with_some/)
+- [The Market Gains Now Reflect The True Rate Of Inflation At 20%](https://www.reddit.com/r/wallstreetbets/comments/189cpae/the_market_gains_now_reflect_the_true_rate_of/)
+- [Wait! Another weekend? Another trade opportunity shared by Journalist: PAYPAL](https://www.reddit.com/r/wallstreetbets/comments/189bg0i/wait_another_weekend_another_trade_opportunity/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
