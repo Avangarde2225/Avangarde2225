@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Broadcom CEO tells VMWare workers to ‘get butt back to office’ after completing a $69 billion merger of the two companies](https://www.reddit.com/r/wallstreetbets/comments/189gtsc/broadcom_ceo_tells_vmware_workers_to_get_butt/)
-- [#2 tattoo for the leg sleeve. Said I&#39;d post the updates. Some of you all might understand this. Lol](https://www.reddit.com/r/wallstreetbets/comments/189e191/2_tattoo_for_the_leg_sleeve_said_id_post_the/)
-- [This is just crazy imagine investing with some sort of leverage in early 2000s](https://www.reddit.com/r/wallstreetbets/comments/189cuwo/this_is_just_crazy_imagine_investing_with_some/)
-- [The Market Gains Now Reflect The True Rate Of Inflation At 20%](https://www.reddit.com/r/wallstreetbets/comments/189cpae/the_market_gains_now_reflect_the_true_rate_of/)
-- [Wait! Another weekend? Another trade opportunity shared by Journalist: PAYPAL](https://www.reddit.com/r/wallstreetbets/comments/189bg0i/wait_another_weekend_another_trade_opportunity/)
+- [Market will crash after FED pivot. Remember this post.](https://www.reddit.com/r/wallstreetbets/comments/18a7l0o/market_will_crash_after_fed_pivot_remember_this/)
+- [Alaskan Air Acquiring Hawaiin Airlines... What do I do?](https://www.reddit.com/r/wallstreetbets/comments/18a7dfb/alaskan_air_acquiring_hawaiin_airlines_what_do_i/)
+- [USA Needs to Sit Down and Take Notes](https://www.reddit.com/r/wallstreetbets/comments/18a716c/usa_needs_to_sit_down_and_take_notes/)
+- [US Government Prints 756,096,000 $50 Bills As Americans Begin Hoarding Physical Cash: Report - The Daily Hodl](https://www.reddit.com/r/wallstreetbets/comments/18a6ajw/us_government_prints_756096000_50_bills_as/)
+- [BTC hits 40k!](https://www.reddit.com/r/wallstreetbets/comments/18a5jc0/btc_hits_40k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
