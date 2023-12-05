@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market will crash after FED pivot. Remember this post.](https://www.reddit.com/r/wallstreetbets/comments/18a7l0o/market_will_crash_after_fed_pivot_remember_this/)
-- [Alaskan Air Acquiring Hawaiin Airlines... What do I do?](https://www.reddit.com/r/wallstreetbets/comments/18a7dfb/alaskan_air_acquiring_hawaiin_airlines_what_do_i/)
-- [USA Needs to Sit Down and Take Notes](https://www.reddit.com/r/wallstreetbets/comments/18a716c/usa_needs_to_sit_down_and_take_notes/)
-- [US Government Prints 756,096,000 $50 Bills As Americans Begin Hoarding Physical Cash: Report - The Daily Hodl](https://www.reddit.com/r/wallstreetbets/comments/18a6ajw/us_government_prints_756096000_50_bills_as/)
-- [BTC hits 40k!](https://www.reddit.com/r/wallstreetbets/comments/18a5jc0/btc_hits_40k/)
+- [Someone bet against the Israeli stock market in the days before Hamas&#39; Oct. 7 attack - CBS News](https://www.reddit.com/r/wallstreetbets/comments/18ay9ss/someone_bet_against_the_israeli_stock_market_in/)
+- [McAfee becoming himself](https://www.reddit.com/r/wallstreetbets/comments/18ax2nb/mcafee_becoming_himself/)
+- [Me trying to tune out all the investment advice](https://www.reddit.com/r/wallstreetbets/comments/18aunkq/me_trying_to_tune_out_all_the_investment_advice/)
+- [What Are Your Moves Tomorrow, December 05, 2023](https://www.reddit.com/r/wallstreetbets/comments/18au7cy/what_are_your_moves_tomorrow_december_05_2023/)
+- [Haven’t touched the hood for 3 years after getting laid out by biotech. Proceeded to 5x the port gap in a month. GBA!! 🇺🇸🦅🦅🇺🇸](https://www.reddit.com/r/wallstreetbets/comments/18atz1w/havent_touched_the_hood_for_3_years_after_getting/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
