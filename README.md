@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Someone bet against the Israeli stock market in the days before Hamas&#39; Oct. 7 attack - CBS News](https://www.reddit.com/r/wallstreetbets/comments/18ay9ss/someone_bet_against_the_israeli_stock_market_in/)
-- [McAfee becoming himself](https://www.reddit.com/r/wallstreetbets/comments/18ax2nb/mcafee_becoming_himself/)
-- [Me trying to tune out all the investment advice](https://www.reddit.com/r/wallstreetbets/comments/18aunkq/me_trying_to_tune_out_all_the_investment_advice/)
-- [What Are Your Moves Tomorrow, December 05, 2023](https://www.reddit.com/r/wallstreetbets/comments/18au7cy/what_are_your_moves_tomorrow_december_05_2023/)
-- [Haven’t touched the hood for 3 years after getting laid out by biotech. Proceeded to 5x the port gap in a month. GBA!! 🇺🇸🦅🦅🇺🇸](https://www.reddit.com/r/wallstreetbets/comments/18atz1w/havent_touched_the_hood_for_3_years_after_getting/)
+- [Rover sold for $2.3bn to BlackStone last week. Wag is valued at $69 million...](https://www.reddit.com/r/wallstreetbets/comments/18bmw9b/rover_sold_for_23bn_to_blackstone_last_week_wag/)
+- [What Are Your Moves Tomorrow, December 06, 2023](https://www.reddit.com/r/wallstreetbets/comments/18bm7kr/what_are_your_moves_tomorrow_december_06_2023/)
+- [Bought calls on a company I hate, so either way I win I guess](https://www.reddit.com/r/wallstreetbets/comments/18blhbw/bought_calls_on_a_company_i_hate_so_either_way_i/)
+- [The job market is CRASHING and stocks WILL go down with it.](https://www.reddit.com/r/wallstreetbets/comments/18bl970/the_job_market_is_crashing_and_stocks_will_go/)
+- [$PYPL 565k all in - 9700 shares](https://www.reddit.com/r/wallstreetbets/comments/18bkrhi/pypl_565k_all_in_9700_shares/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
