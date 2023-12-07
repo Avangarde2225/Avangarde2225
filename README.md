@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Rover sold for $2.3bn to BlackStone last week. Wag is valued at $69 million...](https://www.reddit.com/r/wallstreetbets/comments/18bmw9b/rover_sold_for_23bn_to_blackstone_last_week_wag/)
-- [What Are Your Moves Tomorrow, December 06, 2023](https://www.reddit.com/r/wallstreetbets/comments/18bm7kr/what_are_your_moves_tomorrow_december_06_2023/)
-- [Bought calls on a company I hate, so either way I win I guess](https://www.reddit.com/r/wallstreetbets/comments/18blhbw/bought_calls_on_a_company_i_hate_so_either_way_i/)
-- [The job market is CRASHING and stocks WILL go down with it.](https://www.reddit.com/r/wallstreetbets/comments/18bl970/the_job_market_is_crashing_and_stocks_will_go/)
-- [$PYPL 565k all in - 9700 shares](https://www.reddit.com/r/wallstreetbets/comments/18bkrhi/pypl_565k_all_in_9700_shares/)
+- [I found a book for you guys to help in your trading journey](https://www.reddit.com/r/wallstreetbets/comments/18chog3/i_found_a_book_for_you_guys_to_help_in_your/)
+- [UPDATE: YESTERDAYS META YOLO](https://www.reddit.com/r/wallstreetbets/comments/18chko9/update_yesterdays_meta_yolo/)
+- [Danish pension funds &lpar;43 billion USD&rpar; starts selling TSLA stocks due to labor union dispute](https://www.reddit.com/r/wallstreetbets/comments/18ch3n7/danish_pension_funds_43_billion_usd_starts/)
+- [All the $TSLA DD I Need 💎💵👊🏻](https://www.reddit.com/r/wallstreetbets/comments/18cgubn/all_the_tsla_dd_i_need/)
+- [I hate all of you.](https://www.reddit.com/r/wallstreetbets/comments/18cf6k6/i_hate_all_of_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
