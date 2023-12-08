@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I found a book for you guys to help in your trading journey](https://www.reddit.com/r/wallstreetbets/comments/18chog3/i_found_a_book_for_you_guys_to_help_in_your/)
-- [UPDATE: YESTERDAYS META YOLO](https://www.reddit.com/r/wallstreetbets/comments/18chko9/update_yesterdays_meta_yolo/)
-- [Danish pension funds &lpar;43 billion USD&rpar; starts selling TSLA stocks due to labor union dispute](https://www.reddit.com/r/wallstreetbets/comments/18ch3n7/danish_pension_funds_43_billion_usd_starts/)
-- [All the $TSLA DD I Need 💎💵👊🏻](https://www.reddit.com/r/wallstreetbets/comments/18cgubn/all_the_tsla_dd_i_need/)
-- [I hate all of you.](https://www.reddit.com/r/wallstreetbets/comments/18cf6k6/i_hate_all_of_you/)
+- [BREAKING: The Fed introduces new $1 bill](https://www.reddit.com/r/wallstreetbets/comments/18d8ce6/breaking_the_fed_introduces_new_1_bill/)
+- [Spotify&#39;s layoffs show there&#39;s a debt-market time bomb awaiting many companies](https://www.reddit.com/r/wallstreetbets/comments/18d7zyp/spotifys_layoffs_show_theres_a_debtmarket_time/)
+- [legislation to ban hedge funds from buying homes](https://www.reddit.com/r/wallstreetbets/comments/18d7xy9/legislation_to_ban_hedge_funds_from_buying_homes/)
+- [Only took me 9 days to lose 290k yoloing on TSLA calls](https://www.reddit.com/r/wallstreetbets/comments/18d6f71/only_took_me_9_days_to_lose_290k_yoloing_on_tsla/)
+- [What Are Your Moves Tomorrow, December 08, 2023](https://www.reddit.com/r/wallstreetbets/comments/18d5h6t/what_are_your_moves_tomorrow_december_08_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
