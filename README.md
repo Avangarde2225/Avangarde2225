@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BREAKING: The Fed introduces new $1 bill](https://www.reddit.com/r/wallstreetbets/comments/18d8ce6/breaking_the_fed_introduces_new_1_bill/)
-- [Spotify&#39;s layoffs show there&#39;s a debt-market time bomb awaiting many companies](https://www.reddit.com/r/wallstreetbets/comments/18d7zyp/spotifys_layoffs_show_theres_a_debtmarket_time/)
-- [legislation to ban hedge funds from buying homes](https://www.reddit.com/r/wallstreetbets/comments/18d7xy9/legislation_to_ban_hedge_funds_from_buying_homes/)
-- [Only took me 9 days to lose 290k yoloing on TSLA calls](https://www.reddit.com/r/wallstreetbets/comments/18d6f71/only_took_me_9_days_to_lose_290k_yoloing_on_tsla/)
-- [What Are Your Moves Tomorrow, December 08, 2023](https://www.reddit.com/r/wallstreetbets/comments/18d5h6t/what_are_your_moves_tomorrow_december_08_2023/)
+- [Is Cohen the next Buffet?](https://www.reddit.com/r/wallstreetbets/comments/18dzqwn/is_cohen_the_next_buffet/)
+- [Only 19](https://www.reddit.com/r/wallstreetbets/comments/18dyxed/only_19/)
+- [$BA - The first $100,000 is a bi***, but you gotta do it. After that you ride till Lambo or Accord.](https://www.reddit.com/r/wallstreetbets/comments/18dy0en/ba_the_first_100000_is_a_bi_but_you_gotta_do_it/)
+- [2024 is the year $COIN leaps print](https://www.reddit.com/r/wallstreetbets/comments/18dwrj3/2024_is_the_year_coin_leaps_print/)
+- [All hail our new lord and savior](https://www.reddit.com/r/wallstreetbets/comments/18dwnd0/all_hail_our_new_lord_and_savior/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
