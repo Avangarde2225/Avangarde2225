@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is Cohen the next Buffet?](https://www.reddit.com/r/wallstreetbets/comments/18dzqwn/is_cohen_the_next_buffet/)
-- [Only 19](https://www.reddit.com/r/wallstreetbets/comments/18dyxed/only_19/)
-- [$BA - The first $100,000 is a bi***, but you gotta do it. After that you ride till Lambo or Accord.](https://www.reddit.com/r/wallstreetbets/comments/18dy0en/ba_the_first_100000_is_a_bi_but_you_gotta_do_it/)
-- [2024 is the year $COIN leaps print](https://www.reddit.com/r/wallstreetbets/comments/18dwrj3/2024_is_the_year_coin_leaps_print/)
-- [All hail our new lord and savior](https://www.reddit.com/r/wallstreetbets/comments/18dwnd0/all_hail_our_new_lord_and_savior/)
+- [Who is to blame for inflation? Corporate greed or regards that keep buying overpriced stuff?](https://www.reddit.com/r/wallstreetbets/comments/18er0ur/who_is_to_blame_for_inflation_corporate_greed_or/)
+- [PFOA declared a carcinogen - good time to short DuPont?](https://www.reddit.com/r/wallstreetbets/comments/18eqbxj/pfoa_declared_a_carcinogen_good_time_to_short/)
+- [0DTE SPY Puts Rebound with 90 Minutes Left Before Expiration](https://www.reddit.com/r/wallstreetbets/comments/18eq1u5/0dte_spy_puts_rebound_with_90_minutes_left_before/)
+- [Don&#39;t forget guys it is our fault](https://www.reddit.com/r/wallstreetbets/comments/18eordw/dont_forget_guys_it_is_our_fault/)
+- [$10K to $100K and then blew it all on a single trade twice in two months. Postmortem, next steps, and bonus photo from when I met JPow below](https://www.reddit.com/r/wallstreetbets/comments/18eo4rr/10k_to_100k_and_then_blew_it_all_on_a_single/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
