@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Who is to blame for inflation? Corporate greed or regards that keep buying overpriced stuff?](https://www.reddit.com/r/wallstreetbets/comments/18er0ur/who_is_to_blame_for_inflation_corporate_greed_or/)
-- [PFOA declared a carcinogen - good time to short DuPont?](https://www.reddit.com/r/wallstreetbets/comments/18eqbxj/pfoa_declared_a_carcinogen_good_time_to_short/)
-- [0DTE SPY Puts Rebound with 90 Minutes Left Before Expiration](https://www.reddit.com/r/wallstreetbets/comments/18eq1u5/0dte_spy_puts_rebound_with_90_minutes_left_before/)
-- [Don&#39;t forget guys it is our fault](https://www.reddit.com/r/wallstreetbets/comments/18eordw/dont_forget_guys_it_is_our_fault/)
-- [$10K to $100K and then blew it all on a single trade twice in two months. Postmortem, next steps, and bonus photo from when I met JPow below](https://www.reddit.com/r/wallstreetbets/comments/18eo4rr/10k_to_100k_and_then_blew_it_all_on_a_single/)
+- [Puts on Elon](https://www.reddit.com/r/wallstreetbets/comments/18fhh0g/puts_on_elon/)
+- [Calls on TSLA before Christmas!](https://www.reddit.com/r/wallstreetbets/comments/18fgrxe/calls_on_tsla_before_christmas/)
+- [Himalaya Exchange Customers Launch Legal Action Against The Department of Justice – 04](https://www.reddit.com/r/wallstreetbets/comments/18ffwdc/himalaya_exchange_customers_launch_legal_action/)
+- [What is your strategy into FOMC this week ?](https://www.reddit.com/r/wallstreetbets/comments/18ffqij/what_is_your_strategy_into_fomc_this_week/)
+- [Calls On Baking Soda And One More Thing - Price Of The Brick Going Up](https://www.reddit.com/r/wallstreetbets/comments/18feif0/calls_on_baking_soda_and_one_more_thing_price_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
