@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on Elon](https://www.reddit.com/r/wallstreetbets/comments/18fhh0g/puts_on_elon/)
-- [Calls on TSLA before Christmas!](https://www.reddit.com/r/wallstreetbets/comments/18fgrxe/calls_on_tsla_before_christmas/)
-- [Himalaya Exchange Customers Launch Legal Action Against The Department of Justice – 04](https://www.reddit.com/r/wallstreetbets/comments/18ffwdc/himalaya_exchange_customers_launch_legal_action/)
-- [What is your strategy into FOMC this week ?](https://www.reddit.com/r/wallstreetbets/comments/18ffqij/what_is_your_strategy_into_fomc_this_week/)
-- [Calls On Baking Soda And One More Thing - Price Of The Brick Going Up](https://www.reddit.com/r/wallstreetbets/comments/18feif0/calls_on_baking_soda_and_one_more_thing_price_of/)
+- [‘It ought to be illegal’ for companies to mass boycott advertising on X: South Carolina Treasurer](https://www.reddit.com/r/wallstreetbets/comments/18g7c3b/it_ought_to_be_illegal_for_companies_to_mass/)
+- [YOLO: 54k ENPH 120 Strike JAN2025 Exp](https://www.reddit.com/r/wallstreetbets/comments/18g60bc/yolo_54k_enph_120_strike_jan2025_exp/)
+- [Cathie Wood is a Clown](https://www.reddit.com/r/wallstreetbets/comments/18g4nrq/cathie_wood_is_a_clown/)
+- [How many times will the Fed cut rates? Here&#39;s what Wall Street expects for the key stock-market driver in 2024.](https://www.reddit.com/r/wallstreetbets/comments/18g4d10/how_many_times_will_the_fed_cut_rates_heres_what/)
+- [What Are Your Moves Tomorrow, December 12, 2023](https://www.reddit.com/r/wallstreetbets/comments/18g42vg/what_are_your_moves_tomorrow_december_12_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
