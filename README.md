@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [‘It ought to be illegal’ for companies to mass boycott advertising on X: South Carolina Treasurer](https://www.reddit.com/r/wallstreetbets/comments/18g7c3b/it_ought_to_be_illegal_for_companies_to_mass/)
-- [YOLO: 54k ENPH 120 Strike JAN2025 Exp](https://www.reddit.com/r/wallstreetbets/comments/18g60bc/yolo_54k_enph_120_strike_jan2025_exp/)
-- [Cathie Wood is a Clown](https://www.reddit.com/r/wallstreetbets/comments/18g4nrq/cathie_wood_is_a_clown/)
-- [How many times will the Fed cut rates? Here&#39;s what Wall Street expects for the key stock-market driver in 2024.](https://www.reddit.com/r/wallstreetbets/comments/18g4d10/how_many_times_will_the_fed_cut_rates_heres_what/)
-- [What Are Your Moves Tomorrow, December 12, 2023](https://www.reddit.com/r/wallstreetbets/comments/18g42vg/what_are_your_moves_tomorrow_december_12_2023/)
+- [Do I tell my 17 yr old brother the truth or let him find out on his own](https://www.reddit.com/r/wallstreetbets/comments/18o157j/do_i_tell_my_17_yr_old_brother_the_truth_or_let/)
+- [NKE Guh](https://www.reddit.com/r/wallstreetbets/comments/18o0ump/nke_guh/)
+- [Time for Tesla puts boys. Live on Twitter](https://www.reddit.com/r/wallstreetbets/comments/18nzrks/time_for_tesla_puts_boys_live_on_twitter/)
+- [$4,500 -&gt; $56,000 -&gt; $93,000 … Sometimes it be that way twice.](https://www.reddit.com/r/wallstreetbets/comments/18nxfdf/4500_56000_93000_sometimes_it_be_that_way_twice/)
+- [What Are Your Moves Tomorrow, December 22, 2023](https://www.reddit.com/r/wallstreetbets/comments/18nx6po/what_are_your_moves_tomorrow_december_22_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
