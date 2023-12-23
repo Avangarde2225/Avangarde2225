@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do I tell my 17 yr old brother the truth or let him find out on his own](https://www.reddit.com/r/wallstreetbets/comments/18o157j/do_i_tell_my_17_yr_old_brother_the_truth_or_let/)
-- [NKE Guh](https://www.reddit.com/r/wallstreetbets/comments/18o0ump/nke_guh/)
-- [Time for Tesla puts boys. Live on Twitter](https://www.reddit.com/r/wallstreetbets/comments/18nzrks/time_for_tesla_puts_boys_live_on_twitter/)
-- [$4,500 -&gt; $56,000 -&gt; $93,000 … Sometimes it be that way twice.](https://www.reddit.com/r/wallstreetbets/comments/18nxfdf/4500_56000_93000_sometimes_it_be_that_way_twice/)
-- [What Are Your Moves Tomorrow, December 22, 2023](https://www.reddit.com/r/wallstreetbets/comments/18nx6po/what_are_your_moves_tomorrow_december_22_2023/)
+- [How the hell do you guys do this?](https://www.reddit.com/r/wallstreetbets/comments/18opd0s/how_the_hell_do_you_guys_do_this/)
+- [Reality is whatever you want it to be](https://www.reddit.com/r/wallstreetbets/comments/18op9e2/reality_is_whatever_you_want_it_to_be/)
+- [$4,500 -&gt; $56,000 -&gt; $93,000 -&gt; $109,000 … Sometimes it be that way thrice.](https://www.reddit.com/r/wallstreetbets/comments/18op78s/4500_56000_93000_109000_sometimes_it_be_that_way/)
+- [Playing earnings is the way.](https://www.reddit.com/r/wallstreetbets/comments/18op476/playing_earnings_is_the_way/)
+- [Weekend Discussion Thread for the Weekend of December 23, 2023](https://www.reddit.com/r/wallstreetbets/comments/18ootre/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
