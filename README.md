@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How the hell do you guys do this?](https://www.reddit.com/r/wallstreetbets/comments/18opd0s/how_the_hell_do_you_guys_do_this/)
-- [Reality is whatever you want it to be](https://www.reddit.com/r/wallstreetbets/comments/18op9e2/reality_is_whatever_you_want_it_to_be/)
-- [$4,500 -&gt; $56,000 -&gt; $93,000 -&gt; $109,000 … Sometimes it be that way thrice.](https://www.reddit.com/r/wallstreetbets/comments/18op78s/4500_56000_93000_109000_sometimes_it_be_that_way/)
-- [Playing earnings is the way.](https://www.reddit.com/r/wallstreetbets/comments/18op476/playing_earnings_is_the_way/)
-- [Weekend Discussion Thread for the Weekend of December 23, 2023](https://www.reddit.com/r/wallstreetbets/comments/18ootre/weekend_discussion_thread_for_the_weekend_of/)
+- [Wayfair CEO&#39;s inspirational holiday message to employees: Work harder. Calls on W](https://www.reddit.com/r/wallstreetbets/comments/18phmjm/wayfair_ceos_inspirational_holiday_message_to/)
+- [This guy doing better than most of you. $143 in the green is a flex.](https://www.reddit.com/r/wallstreetbets/comments/18pgui3/this_guy_doing_better_than_most_of_you_143_in_the/)
+- [Am I doing it right?](https://www.reddit.com/r/wallstreetbets/comments/18pgqh1/am_i_doing_it_right/)
+- [You call that a V? This is a V!](https://www.reddit.com/r/wallstreetbets/comments/18pfw1t/you_call_that_a_v_this_is_a_v/)
+- [I hardly understand options so this is a perfect sub for me. Does this mean I’m an idiot for not buying 3k worth of calls?](https://www.reddit.com/r/wallstreetbets/comments/18pfnwp/i_hardly_understand_options_so_this_is_a_perfect/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
