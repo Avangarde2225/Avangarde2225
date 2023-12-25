@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wayfair CEO&#39;s inspirational holiday message to employees: Work harder. Calls on W](https://www.reddit.com/r/wallstreetbets/comments/18phmjm/wayfair_ceos_inspirational_holiday_message_to/)
-- [This guy doing better than most of you. $143 in the green is a flex.](https://www.reddit.com/r/wallstreetbets/comments/18pgui3/this_guy_doing_better_than_most_of_you_143_in_the/)
-- [Am I doing it right?](https://www.reddit.com/r/wallstreetbets/comments/18pgqh1/am_i_doing_it_right/)
-- [You call that a V? This is a V!](https://www.reddit.com/r/wallstreetbets/comments/18pfw1t/you_call_that_a_v_this_is_a_v/)
-- [I hardly understand options so this is a perfect sub for me. Does this mean I’m an idiot for not buying 3k worth of calls?](https://www.reddit.com/r/wallstreetbets/comments/18pfnwp/i_hardly_understand_options_so_this_is_a_perfect/)
+- [It&#39;s been a good year](https://www.reddit.com/r/wallstreetbets/comments/18q6p6d/its_been_a_good_year/)
+- [300--&rpar;&gt;10k, now at life time green in 3 ghey days](https://www.reddit.com/r/wallstreetbets/comments/18q6lw8/30010k_now_at_life_time_green_in_3_ghey_days/)
+- [Yes, Yes, Yes, Yes, No](https://www.reddit.com/r/wallstreetbets/comments/18q6c3x/yes_yes_yes_yes_no/)
+- [Merry Xmas regards!](https://www.reddit.com/r/wallstreetbets/comments/18q5mux/merry_xmas_regards/)
+- [Anecdotal economic indicators](https://www.reddit.com/r/wallstreetbets/comments/18q3s6x/anecdotal_economic_indicators/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
