@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It&#39;s been a good year](https://www.reddit.com/r/wallstreetbets/comments/18q6p6d/its_been_a_good_year/)
-- [300--&rpar;&gt;10k, now at life time green in 3 ghey days](https://www.reddit.com/r/wallstreetbets/comments/18q6lw8/30010k_now_at_life_time_green_in_3_ghey_days/)
-- [Yes, Yes, Yes, Yes, No](https://www.reddit.com/r/wallstreetbets/comments/18q6c3x/yes_yes_yes_yes_no/)
-- [Merry Xmas regards!](https://www.reddit.com/r/wallstreetbets/comments/18q5mux/merry_xmas_regards/)
-- [Anecdotal economic indicators](https://www.reddit.com/r/wallstreetbets/comments/18q3s6x/anecdotal_economic_indicators/)
+- [Why would you expect a Red day tomorrow? Case for post Xmas performance.](https://www.reddit.com/r/wallstreetbets/comments/18qtnni/why_would_you_expect_a_red_day_tomorrow_case_for/)
+- [How I came down to my family today](https://www.reddit.com/r/wallstreetbets/comments/18qsubm/how_i_came_down_to_my_family_today/)
+- [At least I’m not a 🌈🐻?](https://www.reddit.com/r/wallstreetbets/comments/18qskcv/at_least_im_not_a/)
+- [SPX Dec 2029 options have been added. At-the-money calls are pricing in ~3.8% annualized return through end of decade](https://www.reddit.com/r/wallstreetbets/comments/18qs33n/spx_dec_2029_options_have_been_added_atthemoney/)
+- [What Do You Want For Christmas?](https://www.reddit.com/r/wallstreetbets/comments/18qqo5c/what_do_you_want_for_christmas/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
