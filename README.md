@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why would you expect a Red day tomorrow? Case for post Xmas performance.](https://www.reddit.com/r/wallstreetbets/comments/18qtnni/why_would_you_expect_a_red_day_tomorrow_case_for/)
-- [How I came down to my family today](https://www.reddit.com/r/wallstreetbets/comments/18qsubm/how_i_came_down_to_my_family_today/)
-- [At least I’m not a 🌈🐻?](https://www.reddit.com/r/wallstreetbets/comments/18qskcv/at_least_im_not_a/)
-- [SPX Dec 2029 options have been added. At-the-money calls are pricing in ~3.8% annualized return through end of decade](https://www.reddit.com/r/wallstreetbets/comments/18qs33n/spx_dec_2029_options_have_been_added_atthemoney/)
-- [What Do You Want For Christmas?](https://www.reddit.com/r/wallstreetbets/comments/18qqo5c/what_do_you_want_for_christmas/)
+- [Weed yolo 14k](https://www.reddit.com/r/wallstreetbets/comments/18rlpxj/weed_yolo_14k/)
+- [XMas Regard - A Christmas Story](https://www.reddit.com/r/wallstreetbets/comments/18rjuz6/xmas_regard_a_christmas_story/)
+- [Yellen called economists regarded for predicting a recession, but is then called &quot;highly regarded&quot; because they used her research](https://www.reddit.com/r/wallstreetbets/comments/18rjgpm/yellen_called_economists_regarded_for_predicting/)
+- [Misery Index Hates Bears](https://www.reddit.com/r/wallstreetbets/comments/18rjan5/misery_index_hates_bears/)
+- [Amazon is adding ads to your $140 prime memberships next month. You have to pay $40 to opt out.](https://www.reddit.com/r/wallstreetbets/comments/18rj1dj/amazon_is_adding_ads_to_your_140_prime/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
