@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Weed yolo 14k](https://www.reddit.com/r/wallstreetbets/comments/18rlpxj/weed_yolo_14k/)
-- [XMas Regard - A Christmas Story](https://www.reddit.com/r/wallstreetbets/comments/18rjuz6/xmas_regard_a_christmas_story/)
-- [Yellen called economists regarded for predicting a recession, but is then called &quot;highly regarded&quot; because they used her research](https://www.reddit.com/r/wallstreetbets/comments/18rjgpm/yellen_called_economists_regarded_for_predicting/)
-- [Misery Index Hates Bears](https://www.reddit.com/r/wallstreetbets/comments/18rjan5/misery_index_hates_bears/)
-- [Amazon is adding ads to your $140 prime memberships next month. You have to pay $40 to opt out.](https://www.reddit.com/r/wallstreetbets/comments/18rj1dj/amazon_is_adding_ads_to_your_140_prime/)
+- [MARA gains from a europoor regard, this is crazy money to me](https://www.reddit.com/r/wallstreetbets/comments/18sdg9m/mara_gains_from_a_europoor_regard_this_is_crazy/)
+- [I&#39;ve pretty much just been buying SPY calls](https://www.reddit.com/r/wallstreetbets/comments/18sc8l7/ive_pretty_much_just_been_buying_spy_calls/)
+- [It’s a $MARAthon, not a sprint &lpar;7.5k —&gt; 42k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/18sbr1n/its_a_marathon_not_a_sprint_75k_42k/)
+- [What Are Your Moves Tomorrow, December 28, 2023](https://www.reddit.com/r/wallstreetbets/comments/18sb28c/what_are_your_moves_tomorrow_december_28_2023/)
+- [Tom Bull Lee predicts bears will be agape next year](https://www.reddit.com/r/wallstreetbets/comments/18sb1jv/tom_bull_lee_predicts_bears_will_be_agape_next/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
