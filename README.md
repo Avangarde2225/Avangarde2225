@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [MARA gains from a europoor regard, this is crazy money to me](https://www.reddit.com/r/wallstreetbets/comments/18sdg9m/mara_gains_from_a_europoor_regard_this_is_crazy/)
-- [I&#39;ve pretty much just been buying SPY calls](https://www.reddit.com/r/wallstreetbets/comments/18sc8l7/ive_pretty_much_just_been_buying_spy_calls/)
-- [It’s a $MARAthon, not a sprint &lpar;7.5k —&gt; 42k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/18sbr1n/its_a_marathon_not_a_sprint_75k_42k/)
-- [What Are Your Moves Tomorrow, December 28, 2023](https://www.reddit.com/r/wallstreetbets/comments/18sb28c/what_are_your_moves_tomorrow_december_28_2023/)
-- [Tom Bull Lee predicts bears will be agape next year](https://www.reddit.com/r/wallstreetbets/comments/18sb1jv/tom_bull_lee_predicts_bears_will_be_agape_next/)
+- [TSLA 3% dip on nothing. Fuck off. We ride tmw](https://www.reddit.com/r/wallstreetbets/comments/18t5x6e/tsla_3_dip_on_nothing_fuck_off_we_ride_tmw/)
+- [You got 2 choices death or death](https://www.reddit.com/r/wallstreetbets/comments/18t5vdv/you_got_2_choices_death_or_death/)
+- [AMC Stock](https://www.reddit.com/r/wallstreetbets/comments/18t5f2j/amc_stock/)
+- [💩](https://www.reddit.com/r/wallstreetbets/comments/18t4let/_/)
+- [What Are Your Moves Tomorrow, December 29, 2023](https://www.reddit.com/r/wallstreetbets/comments/18t4ee7/what_are_your_moves_tomorrow_december_29_2023/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
