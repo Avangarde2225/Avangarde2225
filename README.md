@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TSLA 3% dip on nothing. Fuck off. We ride tmw](https://www.reddit.com/r/wallstreetbets/comments/18t5x6e/tsla_3_dip_on_nothing_fuck_off_we_ride_tmw/)
-- [You got 2 choices death or death](https://www.reddit.com/r/wallstreetbets/comments/18t5vdv/you_got_2_choices_death_or_death/)
-- [AMC Stock](https://www.reddit.com/r/wallstreetbets/comments/18t5f2j/amc_stock/)
-- [💩](https://www.reddit.com/r/wallstreetbets/comments/18t4let/_/)
-- [What Are Your Moves Tomorrow, December 29, 2023](https://www.reddit.com/r/wallstreetbets/comments/18t4ee7/what_are_your_moves_tomorrow_december_29_2023/)
+- [$MARA Someone Check in On Him](https://www.reddit.com/r/wallstreetbets/comments/18u0wat/mara_someone_check_in_on_him/)
+- [hmmm one of these not like the others](https://www.reddit.com/r/wallstreetbets/comments/18u0c4j/hmmm_one_of_these_not_like_the_others/)
+- [SPX calls $650k loss](https://www.reddit.com/r/wallstreetbets/comments/18tyw89/spx_calls_650k_loss/)
+- [Closing out the year with $400k+ in gains. Here’s to not losing it all in 2024 🥳](https://www.reddit.com/r/wallstreetbets/comments/18txvqb/closing_out_the_year_with_400k_in_gains_heres_to/)
+- [The S&amp;P 500 finished the year up 24%. Stocks defied rate hikes, wars and collapsed banks to log a rally few saw coming.](https://www.reddit.com/r/wallstreetbets/comments/18txjvm/the_sp_500_finished_the_year_up_24_stocks_defied/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
