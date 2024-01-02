@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Happy new year 2024!](https://www.reddit.com/r/wallstreetbets/comments/18vk9pb/happy_new_year_2024/)
-- [New Year&#39;s Eve](https://www.reddit.com/r/wallstreetbets/comments/18vk7kc/new_years_eve/)
-- [Greed play 2024](https://www.reddit.com/r/wallstreetbets/comments/18vjp2k/greed_play_2024/)
-- [Playing the stockmarket vs your dad](https://www.reddit.com/r/wallstreetbets/comments/18vigkx/playing_the_stockmarket_vs_your_dad/)
-- [Trade idea &lpar;$22 Million on it, receipts on 4th pic&rpar;](https://www.reddit.com/r/wallstreetbets/comments/18vhank/trade_idea_22_million_on_it_receipts_on_4th_pic/)
+- [Lovesac &lpar;$LOVE&rpar; - Return of the bean bags?](https://www.reddit.com/r/wallstreetbets/comments/18wap8y/lovesac_love_return_of_the_bean_bags/)
+- [A.I stock trader does insider trading and lies about it](https://www.reddit.com/r/wallstreetbets/comments/18waa7g/ai_stock_trader_does_insider_trading_and_lies/)
+- [What Are Your Moves Tomorrow, January 02, 2024](https://www.reddit.com/r/wallstreetbets/comments/18w6lcu/what_are_your_moves_tomorrow_january_02_2024/)
+- [$151,880 Total Gains and only 2 losing trades in 2023](https://www.reddit.com/r/wallstreetbets/comments/18w6kpr/151880_total_gains_and_only_2_losing_trades_in/)
+- [Credit Scores? FICO already halfway to the moon](https://www.reddit.com/r/wallstreetbets/comments/18w5h4a/credit_scores_fico_already_halfway_to_the_moon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
