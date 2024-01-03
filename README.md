@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lovesac &lpar;$LOVE&rpar; - Return of the bean bags?](https://www.reddit.com/r/wallstreetbets/comments/18wap8y/lovesac_love_return_of_the_bean_bags/)
-- [A.I stock trader does insider trading and lies about it](https://www.reddit.com/r/wallstreetbets/comments/18waa7g/ai_stock_trader_does_insider_trading_and_lies/)
-- [What Are Your Moves Tomorrow, January 02, 2024](https://www.reddit.com/r/wallstreetbets/comments/18w6lcu/what_are_your_moves_tomorrow_january_02_2024/)
-- [$151,880 Total Gains and only 2 losing trades in 2023](https://www.reddit.com/r/wallstreetbets/comments/18w6kpr/151880_total_gains_and_only_2_losing_trades_in/)
-- [Credit Scores? FICO already halfway to the moon](https://www.reddit.com/r/wallstreetbets/comments/18w5h4a/credit_scores_fico_already_halfway_to_the_moon/)
+- [Apple stock’s plunge spurs $200 billion Nasdaq bloodbath](https://www.reddit.com/r/wallstreetbets/comments/18x4bf1/apple_stocks_plunge_spurs_200_billion_nasdaq/)
+- [$12,000 calls bet on $MSTR, LFG 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/18x3776/12000_calls_bet_on_mstr_lfg/)
+- [Abercrombie &amp; Fitch: WTF is going on](https://www.reddit.com/r/wallstreetbets/comments/18x1ih8/abercrombie_fitch_wtf_is_going_on/)
+- [Well, today sucked ass](https://www.reddit.com/r/wallstreetbets/comments/18x14dz/well_today_sucked_ass/)
+- [Bears getting ready for the 2024 recession after starting the year strong](https://www.reddit.com/r/wallstreetbets/comments/18x0dk9/bears_getting_ready_for_the_2024_recession_after/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
