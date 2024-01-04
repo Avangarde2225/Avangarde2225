@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple stock’s plunge spurs $200 billion Nasdaq bloodbath](https://www.reddit.com/r/wallstreetbets/comments/18x4bf1/apple_stocks_plunge_spurs_200_billion_nasdaq/)
-- [$12,000 calls bet on $MSTR, LFG 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/18x3776/12000_calls_bet_on_mstr_lfg/)
-- [Abercrombie &amp; Fitch: WTF is going on](https://www.reddit.com/r/wallstreetbets/comments/18x1ih8/abercrombie_fitch_wtf_is_going_on/)
-- [Well, today sucked ass](https://www.reddit.com/r/wallstreetbets/comments/18x14dz/well_today_sucked_ass/)
-- [Bears getting ready for the 2024 recession after starting the year strong](https://www.reddit.com/r/wallstreetbets/comments/18x0dk9/bears_getting_ready_for_the_2024_recession_after/)
+- [US Financial Update: Interest Expense Set to Eclipse Social Security as Largest Budget Item](https://www.reddit.com/r/wallstreetbets/comments/18xuvtr/us_financial_update_interest_expense_set_to/)
+- [Degens who have successfully YOLO&#39;d sums like ~$10k -&gt; $500k or other absurd ROR. How do you build into your massive positions?](https://www.reddit.com/r/wallstreetbets/comments/18xunuo/degens_who_have_successfully_yolod_sums_like_10k/)
+- [What Are Your Moves Tomorrow, January 04, 2024](https://www.reddit.com/r/wallstreetbets/comments/18xtxug/what_are_your_moves_tomorrow_january_04_2024/)
+- [Pyongyang Hotel Flag: recession confirmed](https://www.reddit.com/r/wallstreetbets/comments/18xtl4m/pyongyang_hotel_flag_recession_confirmed/)
+- [This sub till Jan 10](https://www.reddit.com/r/wallstreetbets/comments/18xtfrz/this_sub_till_jan_10/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
