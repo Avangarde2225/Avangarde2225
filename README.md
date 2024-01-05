@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [US Financial Update: Interest Expense Set to Eclipse Social Security as Largest Budget Item](https://www.reddit.com/r/wallstreetbets/comments/18xuvtr/us_financial_update_interest_expense_set_to/)
-- [Degens who have successfully YOLO&#39;d sums like ~$10k -&gt; $500k or other absurd ROR. How do you build into your massive positions?](https://www.reddit.com/r/wallstreetbets/comments/18xunuo/degens_who_have_successfully_yolod_sums_like_10k/)
-- [What Are Your Moves Tomorrow, January 04, 2024](https://www.reddit.com/r/wallstreetbets/comments/18xtxug/what_are_your_moves_tomorrow_january_04_2024/)
-- [Pyongyang Hotel Flag: recession confirmed](https://www.reddit.com/r/wallstreetbets/comments/18xtl4m/pyongyang_hotel_flag_recession_confirmed/)
-- [This sub till Jan 10](https://www.reddit.com/r/wallstreetbets/comments/18xtfrz/this_sub_till_jan_10/)
+- [How Lucky Are My Option Gains? &lpar;YOLO my entire savings while in college&rpar;](https://www.reddit.com/r/wallstreetbets/comments/18ys3sx/how_lucky_are_my_option_gains_yolo_my_entire/)
+- [Most Anticipated Earnings Releases for the week beginning January 8th, 2024](https://www.reddit.com/r/wallstreetbets/comments/18yryf4/most_anticipated_earnings_releases_for_the_week/)
+- [Crypto hedge fund CEO may not exist; probe finds no record of identity - HyperVerse caused $1.3 billion in customer losses](https://www.reddit.com/r/wallstreetbets/comments/18yowxk/crypto_hedge_fund_ceo_may_not_exist_probe_finds/)
+- [Day 6 of SPY scalping](https://www.reddit.com/r/wallstreetbets/comments/18yo0he/day_6_of_spy_scalping/)
+- [What Are Your Moves Tomorrow, January 05, 2024](https://www.reddit.com/r/wallstreetbets/comments/18ynsmv/what_are_your_moves_tomorrow_january_05_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
