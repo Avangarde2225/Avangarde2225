@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How Lucky Are My Option Gains? &lpar;YOLO my entire savings while in college&rpar;](https://www.reddit.com/r/wallstreetbets/comments/18ys3sx/how_lucky_are_my_option_gains_yolo_my_entire/)
-- [Most Anticipated Earnings Releases for the week beginning January 8th, 2024](https://www.reddit.com/r/wallstreetbets/comments/18yryf4/most_anticipated_earnings_releases_for_the_week/)
-- [Crypto hedge fund CEO may not exist; probe finds no record of identity - HyperVerse caused $1.3 billion in customer losses](https://www.reddit.com/r/wallstreetbets/comments/18yowxk/crypto_hedge_fund_ceo_may_not_exist_probe_finds/)
-- [Day 6 of SPY scalping](https://www.reddit.com/r/wallstreetbets/comments/18yo0he/day_6_of_spy_scalping/)
-- [What Are Your Moves Tomorrow, January 05, 2024](https://www.reddit.com/r/wallstreetbets/comments/18ynsmv/what_are_your_moves_tomorrow_january_05_2024/)
+- [Cancer treatment that destroys 99% of cancer cells. Bullish on Biotech cancer stocks like $JNJ?](https://www.reddit.com/r/wallstreetbets/comments/18zkuq0/cancer_treatment_that_destroys_99_of_cancer_cells/)
+- [Why I’m long Fisker &lpar;$FSR&rpar;](https://www.reddit.com/r/wallstreetbets/comments/18zjdpl/why_im_long_fisker_fsr/)
+- [Can you use string theory for trading stocks?](https://www.reddit.com/r/wallstreetbets/comments/18zj085/can_you_use_string_theory_for_trading_stocks/)
+- [Asked Chat GPT how todays hourly NASDAQ will continue, was not disappointed. Bonus Points for Lovers of technical analysis in the comments.](https://www.reddit.com/r/wallstreetbets/comments/18zilef/asked_chat_gpt_how_todays_hourly_nasdaq_will/)
+- [BTC ETF final deadline is 1/10/2024](https://www.reddit.com/r/wallstreetbets/comments/18zibn8/btc_etf_final_deadline_is_1102024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
