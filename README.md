@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cancer treatment that destroys 99% of cancer cells. Bullish on Biotech cancer stocks like $JNJ?](https://www.reddit.com/r/wallstreetbets/comments/18zkuq0/cancer_treatment_that_destroys_99_of_cancer_cells/)
-- [Why I’m long Fisker &lpar;$FSR&rpar;](https://www.reddit.com/r/wallstreetbets/comments/18zjdpl/why_im_long_fisker_fsr/)
-- [Can you use string theory for trading stocks?](https://www.reddit.com/r/wallstreetbets/comments/18zj085/can_you_use_string_theory_for_trading_stocks/)
-- [Asked Chat GPT how todays hourly NASDAQ will continue, was not disappointed. Bonus Points for Lovers of technical analysis in the comments.](https://www.reddit.com/r/wallstreetbets/comments/18zilef/asked_chat_gpt_how_todays_hourly_nasdaq_will/)
-- [BTC ETF final deadline is 1/10/2024](https://www.reddit.com/r/wallstreetbets/comments/18zibn8/btc_etf_final_deadline_is_1102024/)
+- [Love you Cramer](https://www.reddit.com/r/wallstreetbets/comments/190deo5/love_you_cramer/)
+- [Puts on $BA BOEING](https://www.reddit.com/r/wallstreetbets/comments/1908bs6/puts_on_ba_boeing/)
+- [Who needs quality control?](https://www.reddit.com/r/wallstreetbets/comments/19086zs/who_needs_quality_control/)
+- [Short BA &lpar;Boeing&rpar;](https://www.reddit.com/r/wallstreetbets/comments/190836x/short_ba_boeing/)
+- [Is the new trend &quot;No Spend January&quot; going to collapse the economy?](https://www.reddit.com/r/wallstreetbets/comments/1907x0s/is_the_new_trend_no_spend_january_going_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
