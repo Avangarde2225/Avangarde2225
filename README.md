@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Love you Cramer](https://www.reddit.com/r/wallstreetbets/comments/190deo5/love_you_cramer/)
-- [Puts on $BA BOEING](https://www.reddit.com/r/wallstreetbets/comments/1908bs6/puts_on_ba_boeing/)
-- [Who needs quality control?](https://www.reddit.com/r/wallstreetbets/comments/19086zs/who_needs_quality_control/)
-- [Short BA &lpar;Boeing&rpar;](https://www.reddit.com/r/wallstreetbets/comments/190836x/short_ba_boeing/)
-- [Is the new trend &quot;No Spend January&quot; going to collapse the economy?](https://www.reddit.com/r/wallstreetbets/comments/1907x0s/is_the_new_trend_no_spend_january_going_to/)
+- [Better Mortgage Stuck With Gag Order in Underwriters’ Wage Case](https://www.reddit.com/r/wallstreetbets/comments/1916jbc/better_mortgage_stuck_with_gag_order_in/)
+- [Calls on Google and their new robot, puts on your life](https://www.reddit.com/r/wallstreetbets/comments/19152qd/calls_on_google_and_their_new_robot_puts_on_your/)
+- [$BA Boeing levels -- where the bones in my ancient tortoise shell say price may bounce to the moon](https://www.reddit.com/r/wallstreetbets/comments/1914xpe/ba_boeing_levels_where_the_bones_in_my_ancient/)
+- [What if Satoshi is actually Blackrock?](https://www.reddit.com/r/wallstreetbets/comments/1913pkv/what_if_satoshi_is_actually_blackrock/)
+- [The timing could not have been better $BA](https://www.reddit.com/r/wallstreetbets/comments/19136jm/the_timing_could_not_have_been_better_ba/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
