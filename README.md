@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Better Mortgage Stuck With Gag Order in Underwriters’ Wage Case](https://www.reddit.com/r/wallstreetbets/comments/1916jbc/better_mortgage_stuck_with_gag_order_in/)
-- [Calls on Google and their new robot, puts on your life](https://www.reddit.com/r/wallstreetbets/comments/19152qd/calls_on_google_and_their_new_robot_puts_on_your/)
-- [$BA Boeing levels -- where the bones in my ancient tortoise shell say price may bounce to the moon](https://www.reddit.com/r/wallstreetbets/comments/1914xpe/ba_boeing_levels_where_the_bones_in_my_ancient/)
-- [What if Satoshi is actually Blackrock?](https://www.reddit.com/r/wallstreetbets/comments/1913pkv/what_if_satoshi_is_actually_blackrock/)
-- [The timing could not have been better $BA](https://www.reddit.com/r/wallstreetbets/comments/19136jm/the_timing_could_not_have_been_better_ba/)
+- [Well, today did NOT suck ass](https://www.reddit.com/r/wallstreetbets/comments/191zs27/well_today_did_not_suck_ass/)
+- [What is a reasonable rate of return over a month?](https://www.reddit.com/r/wallstreetbets/comments/191wxoj/what_is_a_reasonable_rate_of_return_over_a_month/)
+- [$BA Poots](https://www.reddit.com/r/wallstreetbets/comments/191wukd/ba_poots/)
+- [United finds loose bolts on its planes in wake of Alaska Airlines door plug incident](https://www.reddit.com/r/wallstreetbets/comments/191wniz/united_finds_loose_bolts_on_its_planes_in_wake_of/)
+- [$NVDA bull run is about to be over](https://www.reddit.com/r/wallstreetbets/comments/191wd1r/nvda_bull_run_is_about_to_be_over/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
