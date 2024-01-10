@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Well, today did NOT suck ass](https://www.reddit.com/r/wallstreetbets/comments/191zs27/well_today_did_not_suck_ass/)
-- [What is a reasonable rate of return over a month?](https://www.reddit.com/r/wallstreetbets/comments/191wxoj/what_is_a_reasonable_rate_of_return_over_a_month/)
-- [$BA Poots](https://www.reddit.com/r/wallstreetbets/comments/191wukd/ba_poots/)
-- [United finds loose bolts on its planes in wake of Alaska Airlines door plug incident](https://www.reddit.com/r/wallstreetbets/comments/191wniz/united_finds_loose_bolts_on_its_planes_in_wake_of/)
-- [$NVDA bull run is about to be over](https://www.reddit.com/r/wallstreetbets/comments/191wd1r/nvda_bull_run_is_about_to_be_over/)
+- [Gold did not = Stocks since 1972](https://www.reddit.com/r/wallstreetbets/comments/192tngc/gold_did_not_stocks_since_1972/)
+- [Anyone else looking forward to the SEC investigating itself?](https://www.reddit.com/r/wallstreetbets/comments/192s0hr/anyone_else_looking_forward_to_the_sec/)
+- [We&#39;ve been given a rare glimpse into the future.](https://www.reddit.com/r/wallstreetbets/comments/192rs0l/weve_been_given_a_rare_glimpse_into_the_future/)
+- [the SEC is a joke 😂](https://www.reddit.com/r/wallstreetbets/comments/192r2gp/the_sec_is_a_joke/)
+- [SEC Hasn’t Approved Bitcoin ETFs, Says X Account Was Hacked](https://www.reddit.com/r/wallstreetbets/comments/192qjlr/sec_hasnt_approved_bitcoin_etfs_says_x_account/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
