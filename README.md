@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Gold did not = Stocks since 1972](https://www.reddit.com/r/wallstreetbets/comments/192tngc/gold_did_not_stocks_since_1972/)
-- [Anyone else looking forward to the SEC investigating itself?](https://www.reddit.com/r/wallstreetbets/comments/192s0hr/anyone_else_looking_forward_to_the_sec/)
-- [We&#39;ve been given a rare glimpse into the future.](https://www.reddit.com/r/wallstreetbets/comments/192rs0l/weve_been_given_a_rare_glimpse_into_the_future/)
-- [the SEC is a joke 😂](https://www.reddit.com/r/wallstreetbets/comments/192r2gp/the_sec_is_a_joke/)
-- [SEC Hasn’t Approved Bitcoin ETFs, Says X Account Was Hacked](https://www.reddit.com/r/wallstreetbets/comments/192qjlr/sec_hasnt_approved_bitcoin_etfs_says_x_account/)
+- [MSFT YOLO](https://www.reddit.com/r/wallstreetbets/comments/193mju1/msft_yolo/)
+- [Evan Spiegel proclaims &#39;social media is dead,&#39; and predicts Snap is about to &#39;transcend&#39; the smartphone, while lashing out at rivals](https://www.reddit.com/r/wallstreetbets/comments/193m62x/evan_spiegel_proclaims_social_media_is_dead_and/)
+- [Bullish on Korean Military Industrial Complex](https://www.reddit.com/r/wallstreetbets/comments/193lqdp/bullish_on_korean_military_industrial_complex/)
+- [Reuters vs. Bloomberg - Puts vs. Calls](https://www.reddit.com/r/wallstreetbets/comments/193lhpa/reuters_vs_bloomberg_puts_vs_calls/)
+- [Crypto ETF&#39;s Make Absolutely no sense](https://www.reddit.com/r/wallstreetbets/comments/193kemi/crypto_etfs_make_absolutely_no_sense/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
