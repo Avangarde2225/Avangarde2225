@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [MSFT YOLO](https://www.reddit.com/r/wallstreetbets/comments/193mju1/msft_yolo/)
-- [Evan Spiegel proclaims &#39;social media is dead,&#39; and predicts Snap is about to &#39;transcend&#39; the smartphone, while lashing out at rivals](https://www.reddit.com/r/wallstreetbets/comments/193m62x/evan_spiegel_proclaims_social_media_is_dead_and/)
-- [Bullish on Korean Military Industrial Complex](https://www.reddit.com/r/wallstreetbets/comments/193lqdp/bullish_on_korean_military_industrial_complex/)
-- [Reuters vs. Bloomberg - Puts vs. Calls](https://www.reddit.com/r/wallstreetbets/comments/193lhpa/reuters_vs_bloomberg_puts_vs_calls/)
-- [Crypto ETF&#39;s Make Absolutely no sense](https://www.reddit.com/r/wallstreetbets/comments/193kemi/crypto_etfs_make_absolutely_no_sense/)
+- [Don&#39;t be this guy, please.](https://www.reddit.com/r/wallstreetbets/comments/194dpj0/dont_be_this_guy_please/)
+- [What Are Your Moves Tomorrow, January 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/194cch1/what_are_your_moves_tomorrow_january_12_2024/)
+- [Billy no!](https://www.reddit.com/r/wallstreetbets/comments/194c2qa/billy_no/)
+- [CPI - $80k gain SPY 0DTE](https://www.reddit.com/r/wallstreetbets/comments/194bluq/cpi_80k_gain_spy_0dte/)
+- [Bitcoin ETF](https://www.reddit.com/r/wallstreetbets/comments/194b5bn/bitcoin_etf/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
