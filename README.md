@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Don&#39;t be this guy, please.](https://www.reddit.com/r/wallstreetbets/comments/194dpj0/dont_be_this_guy_please/)
-- [What Are Your Moves Tomorrow, January 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/194cch1/what_are_your_moves_tomorrow_january_12_2024/)
-- [Billy no!](https://www.reddit.com/r/wallstreetbets/comments/194c2qa/billy_no/)
-- [CPI - $80k gain SPY 0DTE](https://www.reddit.com/r/wallstreetbets/comments/194bluq/cpi_80k_gain_spy_0dte/)
-- [Bitcoin ETF](https://www.reddit.com/r/wallstreetbets/comments/194b5bn/bitcoin_etf/)
+- [Weekend Discussion Thread for the Weekend of January 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1955ovx/weekend_discussion_thread_for_the_weekend_of/)
+- [51K In One Month - A Degen Tale](https://www.reddit.com/r/wallstreetbets/comments/1955jzx/51k_in_one_month_a_degen_tale/)
+- [Two trading weeks into 2024 and dad is checking in.](https://www.reddit.com/r/wallstreetbets/comments/19554o5/two_trading_weeks_into_2024_and_dad_is_checking_in/)
+- [$406K -&gt; $689K on SRUUF. Uranium about to go NUCLEAR](https://www.reddit.com/r/wallstreetbets/comments/1954ogj/406k_689k_on_sruuf_uranium_about_to_go_nuclear/)
+- [CPI Day - SPY 0DTE Lucky Gains &lpar;No more options from now on&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1954hk9/cpi_day_spy_0dte_lucky_gains_no_more_options_from/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
