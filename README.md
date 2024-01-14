@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Weekend Discussion Thread for the Weekend of January 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1955ovx/weekend_discussion_thread_for_the_weekend_of/)
-- [51K In One Month - A Degen Tale](https://www.reddit.com/r/wallstreetbets/comments/1955jzx/51k_in_one_month_a_degen_tale/)
-- [Two trading weeks into 2024 and dad is checking in.](https://www.reddit.com/r/wallstreetbets/comments/19554o5/two_trading_weeks_into_2024_and_dad_is_checking_in/)
-- [$406K -&gt; $689K on SRUUF. Uranium about to go NUCLEAR](https://www.reddit.com/r/wallstreetbets/comments/1954ogj/406k_689k_on_sruuf_uranium_about_to_go_nuclear/)
-- [CPI Day - SPY 0DTE Lucky Gains &lpar;No more options from now on&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1954hk9/cpi_day_spy_0dte_lucky_gains_no_more_options_from/)
+- [BTC Stegosaurus](https://www.reddit.com/r/wallstreetbets/comments/1961dzw/btc_stegosaurus/)
+- [Truth. Count your fingers.](https://www.reddit.com/r/wallstreetbets/comments/1961a9b/truth_count_your_fingers/)
+- [happy saturday 😂](https://www.reddit.com/r/wallstreetbets/comments/195vqn2/happy_saturday/)
+- [21k to 75k from NVO and LLY leaps](https://www.reddit.com/r/wallstreetbets/comments/195ux1n/21k_to_75k_from_nvo_and_lly_leaps/)
+- [Update: A nice house or homeless](https://www.reddit.com/r/wallstreetbets/comments/195ug45/update_a_nice_house_or_homeless/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
