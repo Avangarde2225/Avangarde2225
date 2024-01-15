@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BTC Stegosaurus](https://www.reddit.com/r/wallstreetbets/comments/1961dzw/btc_stegosaurus/)
-- [Truth. Count your fingers.](https://www.reddit.com/r/wallstreetbets/comments/1961a9b/truth_count_your_fingers/)
-- [happy saturday 😂](https://www.reddit.com/r/wallstreetbets/comments/195vqn2/happy_saturday/)
-- [21k to 75k from NVO and LLY leaps](https://www.reddit.com/r/wallstreetbets/comments/195ux1n/21k_to_75k_from_nvo_and_lly_leaps/)
-- [Update: A nice house or homeless](https://www.reddit.com/r/wallstreetbets/comments/195ug45/update_a_nice_house_or_homeless/)
+- [Chinese electric vehicle company BYD in talks for potential acquisition of lithium producer in Brazil -Sigma Lithium, for a supply agreement](https://www.reddit.com/r/wallstreetbets/comments/196uz5e/chinese_electric_vehicle_company_byd_in_talks_for/)
+- [The Drugs to Watch report 2024, by analytics company Clarivate, features advancements, including first RSV vaccines pioneering gene therapy](https://www.reddit.com/r/wallstreetbets/comments/196u2m6/the_drugs_to_watch_report_2024_by_analytics/)
+- [What Are Your Moves Tomorrow, January 15, 2024](https://www.reddit.com/r/wallstreetbets/comments/196q3ip/what_are_your_moves_tomorrow_january_15_2024/)
+- [What&#39;s your thoughts on the future demand of silicon and silane gas?](https://www.reddit.com/r/wallstreetbets/comments/196ps8v/whats_your_thoughts_on_the_future_demand_of/)
+- [Airline Industry](https://www.reddit.com/r/wallstreetbets/comments/196of36/airline_industry/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
