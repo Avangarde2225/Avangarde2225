@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Chinese electric vehicle company BYD in talks for potential acquisition of lithium producer in Brazil -Sigma Lithium, for a supply agreement](https://www.reddit.com/r/wallstreetbets/comments/196uz5e/chinese_electric_vehicle_company_byd_in_talks_for/)
-- [The Drugs to Watch report 2024, by analytics company Clarivate, features advancements, including first RSV vaccines pioneering gene therapy](https://www.reddit.com/r/wallstreetbets/comments/196u2m6/the_drugs_to_watch_report_2024_by_analytics/)
-- [What Are Your Moves Tomorrow, January 15, 2024](https://www.reddit.com/r/wallstreetbets/comments/196q3ip/what_are_your_moves_tomorrow_january_15_2024/)
-- [What&#39;s your thoughts on the future demand of silicon and silane gas?](https://www.reddit.com/r/wallstreetbets/comments/196ps8v/whats_your_thoughts_on_the_future_demand_of/)
-- [Airline Industry](https://www.reddit.com/r/wallstreetbets/comments/196of36/airline_industry/)
+- [Apple just lost its top spot, thoughts?](https://www.reddit.com/r/wallstreetbets/comments/197olyq/apple_just_lost_its_top_spot_thoughts/)
+- [Thanks $UNG &lpar;natural gas&rpar; and cold temps](https://www.reddit.com/r/wallstreetbets/comments/197okk4/thanks_ung_natural_gas_and_cold_temps/)
+- [Microsoft sets price for premium version of Copilot AI software for consumers at $20 per user](https://www.reddit.com/r/wallstreetbets/comments/197o81n/microsoft_sets_price_for_premium_version_of/)
+- [Remember this the next time you get stock advice](https://www.reddit.com/r/wallstreetbets/comments/197lphd/remember_this_the_next_time_you_get_stock_advice/)
+- [What Are Your Moves Tomorrow, January 16, 2024](https://www.reddit.com/r/wallstreetbets/comments/197jsin/what_are_your_moves_tomorrow_january_16_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
