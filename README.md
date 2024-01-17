@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple just lost its top spot, thoughts?](https://www.reddit.com/r/wallstreetbets/comments/197olyq/apple_just_lost_its_top_spot_thoughts/)
-- [Thanks $UNG &lpar;natural gas&rpar; and cold temps](https://www.reddit.com/r/wallstreetbets/comments/197okk4/thanks_ung_natural_gas_and_cold_temps/)
-- [Microsoft sets price for premium version of Copilot AI software for consumers at $20 per user](https://www.reddit.com/r/wallstreetbets/comments/197o81n/microsoft_sets_price_for_premium_version_of/)
-- [Remember this the next time you get stock advice](https://www.reddit.com/r/wallstreetbets/comments/197lphd/remember_this_the_next_time_you_get_stock_advice/)
-- [What Are Your Moves Tomorrow, January 16, 2024](https://www.reddit.com/r/wallstreetbets/comments/197jsin/what_are_your_moves_tomorrow_january_16_2024/)
+- [[OC] Spirit Airlines shares drop -47% in one day after judge blocks JetBlue merger](https://www.reddit.com/r/wallstreetbets/comments/198gt9b/oc_spirit_airlines_shares_drop_47_in_one_day/)
+- [spirit’s crushed 😂](https://www.reddit.com/r/wallstreetbets/comments/198gt3p/spirits_crushed/)
+- [Chinese military, universities still buying Nvidia chips despite U.S. ban - report](https://www.reddit.com/r/wallstreetbets/comments/198fmec/chinese_military_universities_still_buying_nvidia/)
+- [All the DD I needed to all in](https://www.reddit.com/r/wallstreetbets/comments/198f3sj/all_the_dd_i_needed_to_all_in/)
+- [Tesla stock drops as Musk threatens to &quot;build products&quot; outside of company if they don&#39;t meet his demands](https://www.reddit.com/r/wallstreetbets/comments/198ez51/tesla_stock_drops_as_musk_threatens_to_build/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
