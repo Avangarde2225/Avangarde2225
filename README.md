@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [[OC] Spirit Airlines shares drop -47% in one day after judge blocks JetBlue merger](https://www.reddit.com/r/wallstreetbets/comments/198gt9b/oc_spirit_airlines_shares_drop_47_in_one_day/)
-- [spirit’s crushed 😂](https://www.reddit.com/r/wallstreetbets/comments/198gt3p/spirits_crushed/)
-- [Chinese military, universities still buying Nvidia chips despite U.S. ban - report](https://www.reddit.com/r/wallstreetbets/comments/198fmec/chinese_military_universities_still_buying_nvidia/)
-- [All the DD I needed to all in](https://www.reddit.com/r/wallstreetbets/comments/198f3sj/all_the_dd_i_needed_to_all_in/)
-- [Tesla stock drops as Musk threatens to &quot;build products&quot; outside of company if they don&#39;t meet his demands](https://www.reddit.com/r/wallstreetbets/comments/198ez51/tesla_stock_drops_as_musk_threatens_to_build/)
+- [Every single time!](https://www.reddit.com/r/wallstreetbets/comments/199b5x4/every_single_time/)
+- [Update: I&#39;m going to start looking for a house :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/199a4xa/update_im_going_to_start_looking_for_a_house/)
+- [I literally warned myself and did it anyway...and of course I literally sold at LOD today....](https://www.reddit.com/r/wallstreetbets/comments/1997zfb/i_literally_warned_myself_and_did_it_anywayand_of/)
+- [What Are Your Moves Tomorrow, January 18, 2024](https://www.reddit.com/r/wallstreetbets/comments/1997lkq/what_are_your_moves_tomorrow_january_18_2024/)
+- [Nvidia Is The Biggest Piece Of Shit On The Market Right Now](https://www.reddit.com/r/wallstreetbets/comments/1996uyk/nvidia_is_the_biggest_piece_of_shit_on_the_market/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
