@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Every single time!](https://www.reddit.com/r/wallstreetbets/comments/199b5x4/every_single_time/)
-- [Update: I&#39;m going to start looking for a house :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/199a4xa/update_im_going_to_start_looking_for_a_house/)
-- [I literally warned myself and did it anyway...and of course I literally sold at LOD today....](https://www.reddit.com/r/wallstreetbets/comments/1997zfb/i_literally_warned_myself_and_did_it_anywayand_of/)
-- [What Are Your Moves Tomorrow, January 18, 2024](https://www.reddit.com/r/wallstreetbets/comments/1997lkq/what_are_your_moves_tomorrow_january_18_2024/)
-- [Nvidia Is The Biggest Piece Of Shit On The Market Right Now](https://www.reddit.com/r/wallstreetbets/comments/1996uyk/nvidia_is_the_biggest_piece_of_shit_on_the_market/)
+- [$BABA Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/19a52il/baba_loss_porn/)
+- [LCID HODL](https://www.reddit.com/r/wallstreetbets/comments/19a4mru/lcid_hodl/)
+- [Could this be a Buffet moment... SAVE for a sweet min of 3x or 10x gain?](https://www.reddit.com/r/wallstreetbets/comments/19a426a/could_this_be_a_buffet_moment_save_for_a_sweet/)
+- [PayPal ceo says he will shock the world on January 25th….any ideas ?](https://www.reddit.com/r/wallstreetbets/comments/19a3mkf/paypal_ceo_says_he_will_shock_the_world_on/)
+- [Zuckerberg to buy $9 billion of GPUs](https://www.reddit.com/r/wallstreetbets/comments/19a1mgu/zuckerberg_to_buy_9_billion_of_gpus/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
