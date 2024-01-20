@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$BABA Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/19a52il/baba_loss_porn/)
-- [LCID HODL](https://www.reddit.com/r/wallstreetbets/comments/19a4mru/lcid_hodl/)
-- [Could this be a Buffet moment... SAVE for a sweet min of 3x or 10x gain?](https://www.reddit.com/r/wallstreetbets/comments/19a426a/could_this_be_a_buffet_moment_save_for_a_sweet/)
-- [PayPal ceo says he will shock the world on January 25th….any ideas ?](https://www.reddit.com/r/wallstreetbets/comments/19a3mkf/paypal_ceo_says_he_will_shock_the_world_on/)
-- [Zuckerberg to buy $9 billion of GPUs](https://www.reddit.com/r/wallstreetbets/comments/19a1mgu/zuckerberg_to_buy_9_billion_of_gpus/)
+- [SPY ATH and no gain p0rn? Bears in disguise!](https://www.reddit.com/r/wallstreetbets/comments/19avlpv/spy_ath_and_no_gain_p0rn_bears_in_disguise/)
+- [Thank You $AMD &lpar;and some $SPY&rpar; - $4k &gt; $25k in 1 Week](https://www.reddit.com/r/wallstreetbets/comments/19ave3o/thank_you_amd_and_some_spy_4k_25k_in_1_week/)
+- [You must die once](https://www.reddit.com/r/wallstreetbets/comments/19av1z5/you_must_die_once/)
+- [From $26 to $6600 on SMCI](https://www.reddit.com/r/wallstreetbets/comments/19auct1/from_26_to_6600_on_smci/)
+- [AMD Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/19atsr3/amd_gain_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
