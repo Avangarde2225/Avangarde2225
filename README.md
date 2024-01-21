@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPY ATH and no gain p0rn? Bears in disguise!](https://www.reddit.com/r/wallstreetbets/comments/19avlpv/spy_ath_and_no_gain_p0rn_bears_in_disguise/)
-- [Thank You $AMD &lpar;and some $SPY&rpar; - $4k &gt; $25k in 1 Week](https://www.reddit.com/r/wallstreetbets/comments/19ave3o/thank_you_amd_and_some_spy_4k_25k_in_1_week/)
-- [You must die once](https://www.reddit.com/r/wallstreetbets/comments/19av1z5/you_must_die_once/)
-- [From $26 to $6600 on SMCI](https://www.reddit.com/r/wallstreetbets/comments/19auct1/from_26_to_6600_on_smci/)
-- [AMD Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/19atsr3/amd_gain_porn/)
+- [Forget inverse Cramer. Can we get a index based on Congress positions?](https://www.reddit.com/r/wallstreetbets/comments/19bpuh0/forget_inverse_cramer_can_we_get_a_index_based_on/)
+- [All in on reddit calls](https://www.reddit.com/r/wallstreetbets/comments/19bp214/all_in_on_reddit_calls/)
+- [Gain porn. 99% AMD weeklies](https://www.reddit.com/r/wallstreetbets/comments/19bl45d/gain_porn_99_amd_weeklies/)
+- [Update: It&#39;s either several million or ...](https://www.reddit.com/r/wallstreetbets/comments/19bl1gk/update_its_either_several_million_or/)
+- [Do people realise the market now does not expect a rate cut in march?](https://www.reddit.com/r/wallstreetbets/comments/19bkgoe/do_people_realise_the_market_now_does_not_expect/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
