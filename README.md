@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Forget inverse Cramer. Can we get a index based on Congress positions?](https://www.reddit.com/r/wallstreetbets/comments/19bpuh0/forget_inverse_cramer_can_we_get_a_index_based_on/)
-- [All in on reddit calls](https://www.reddit.com/r/wallstreetbets/comments/19bp214/all_in_on_reddit_calls/)
-- [Gain porn. 99% AMD weeklies](https://www.reddit.com/r/wallstreetbets/comments/19bl45d/gain_porn_99_amd_weeklies/)
-- [Update: It&#39;s either several million or ...](https://www.reddit.com/r/wallstreetbets/comments/19bl1gk/update_its_either_several_million_or/)
-- [Do people realise the market now does not expect a rate cut in march?](https://www.reddit.com/r/wallstreetbets/comments/19bkgoe/do_people_realise_the_market_now_does_not_expect/)
+- [Yes, I&#39;ll have one Wendy&#39;s please](https://www.reddit.com/r/wallstreetbets/comments/19chvmg/yes_ill_have_one_wendys_please/)
+- [$ZIM - The US wants to end the Houthis soon](https://www.reddit.com/r/wallstreetbets/comments/19ch79n/zim_the_us_wants_to_end_the_houthis_soon/)
+- [Visteon Corp $VC is a no brainer at these levels](https://www.reddit.com/r/wallstreetbets/comments/19cf6w4/visteon_corp_vc_is_a_no_brainer_at_these_levels/)
+- [What Are Your Moves Tomorrow, January 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/19cdnbw/what_are_your_moves_tomorrow_january_22_2024/)
+- [That&#39;s the Spirit - SAVE and JBLU appealing ruling | Trading on News](https://www.reddit.com/r/wallstreetbets/comments/19cb31p/thats_the_spirit_save_and_jblu_appealing_ruling/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
