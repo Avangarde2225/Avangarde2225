@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Yes, I&#39;ll have one Wendy&#39;s please](https://www.reddit.com/r/wallstreetbets/comments/19chvmg/yes_ill_have_one_wendys_please/)
-- [$ZIM - The US wants to end the Houthis soon](https://www.reddit.com/r/wallstreetbets/comments/19ch79n/zim_the_us_wants_to_end_the_houthis_soon/)
-- [Visteon Corp $VC is a no brainer at these levels](https://www.reddit.com/r/wallstreetbets/comments/19cf6w4/visteon_corp_vc_is_a_no_brainer_at_these_levels/)
-- [What Are Your Moves Tomorrow, January 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/19cdnbw/what_are_your_moves_tomorrow_january_22_2024/)
-- [That&#39;s the Spirit - SAVE and JBLU appealing ruling | Trading on News](https://www.reddit.com/r/wallstreetbets/comments/19cb31p/thats_the_spirit_save_and_jblu_appealing_ruling/)
+- [New material found by AI could reduce lithium use in batteries](https://www.reddit.com/r/wallstreetbets/comments/19d9pg4/new_material_found_by_ai_could_reduce_lithium_use/)
+- [SAVE - 100% achieved](https://www.reddit.com/r/wallstreetbets/comments/19d8lo6/save_100_achieved/)
+- [Blackrock just added up to their $LUMN position](https://www.reddit.com/r/wallstreetbets/comments/19d7k5t/blackrock_just_added_up_to_their_lumn_position/)
+- [What Are Your Moves Tomorrow, January 23, 2024](https://www.reddit.com/r/wallstreetbets/comments/19d67mc/what_are_your_moves_tomorrow_january_23_2024/)
+- [We are so back.](https://www.reddit.com/r/wallstreetbets/comments/19d5lzd/we_are_so_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
