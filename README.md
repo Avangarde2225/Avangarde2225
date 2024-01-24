@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [New material found by AI could reduce lithium use in batteries](https://www.reddit.com/r/wallstreetbets/comments/19d9pg4/new_material_found_by_ai_could_reduce_lithium_use/)
-- [SAVE - 100% achieved](https://www.reddit.com/r/wallstreetbets/comments/19d8lo6/save_100_achieved/)
-- [Blackrock just added up to their $LUMN position](https://www.reddit.com/r/wallstreetbets/comments/19d7k5t/blackrock_just_added_up_to_their_lumn_position/)
-- [What Are Your Moves Tomorrow, January 23, 2024](https://www.reddit.com/r/wallstreetbets/comments/19d67mc/what_are_your_moves_tomorrow_january_23_2024/)
-- [We are so back.](https://www.reddit.com/r/wallstreetbets/comments/19d5lzd/we_are_so_back/)
+- [60k spy yolo](https://www.reddit.com/r/wallstreetbets/comments/19e0x01/60k_spy_yolo/)
+- [Netflix password crackdown pays off as subscriber surge sees stock hit two-year-high](https://www.reddit.com/r/wallstreetbets/comments/19e0f3k/netflix_password_crackdown_pays_off_as_subscriber/)
+- [Alaska Airlines CEO says company found loose bolts on ‘many’ Boeing Max 9s](https://www.reddit.com/r/wallstreetbets/comments/19e09z0/alaska_airlines_ceo_says_company_found_loose/)
+- [480k yolo on Amazon . ILL BUY A PIZZA PARTY FOR AMAZON EMPLOYEES IF ITS HITS $160 BEFORE END OF WEEK. YOU MUST PLEASE THE SHARE HOLDERS.](https://www.reddit.com/r/wallstreetbets/comments/19e01eo/480k_yolo_on_amazon_ill_buy_a_pizza_party_for/)
+- [My Netflix yolo!](https://www.reddit.com/r/wallstreetbets/comments/19dzf6f/my_netflix_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
