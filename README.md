@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [60k spy yolo](https://www.reddit.com/r/wallstreetbets/comments/19e0x01/60k_spy_yolo/)
-- [Netflix password crackdown pays off as subscriber surge sees stock hit two-year-high](https://www.reddit.com/r/wallstreetbets/comments/19e0f3k/netflix_password_crackdown_pays_off_as_subscriber/)
-- [Alaska Airlines CEO says company found loose bolts on ‘many’ Boeing Max 9s](https://www.reddit.com/r/wallstreetbets/comments/19e09z0/alaska_airlines_ceo_says_company_found_loose/)
-- [480k yolo on Amazon . ILL BUY A PIZZA PARTY FOR AMAZON EMPLOYEES IF ITS HITS $160 BEFORE END OF WEEK. YOU MUST PLEASE THE SHARE HOLDERS.](https://www.reddit.com/r/wallstreetbets/comments/19e01eo/480k_yolo_on_amazon_ill_buy_a_pizza_party_for/)
-- [My Netflix yolo!](https://www.reddit.com/r/wallstreetbets/comments/19dzf6f/my_netflix_yolo/)
+- [Tesla misses fourth-quarter estimates on weak auto revenue, warns of lower volume growth in 2024](https://www.reddit.com/r/wallstreetbets/comments/19ettvt/tesla_misses_fourthquarter_estimates_on_weak_auto/)
+- [Tesla profits crashed 23% in 2023 - its first decline since 2017](https://www.reddit.com/r/wallstreetbets/comments/19et7ph/tesla_profits_crashed_23_in_2023_its_first/)
+- [$TSLA earnings be trash](https://www.reddit.com/r/wallstreetbets/comments/19esf27/tsla_earnings_be_trash/)
+- [Netflix Earnings Report YOLO](https://www.reddit.com/r/wallstreetbets/comments/19es9ed/netflix_earnings_report_yolo/)
+- [Cramer is positive in Tesla $TSLA](https://www.reddit.com/r/wallstreetbets/comments/19es7bm/cramer_is_positive_in_tesla_tsla/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
