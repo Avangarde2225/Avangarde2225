@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla misses fourth-quarter estimates on weak auto revenue, warns of lower volume growth in 2024](https://www.reddit.com/r/wallstreetbets/comments/19ettvt/tesla_misses_fourthquarter_estimates_on_weak_auto/)
-- [Tesla profits crashed 23% in 2023 - its first decline since 2017](https://www.reddit.com/r/wallstreetbets/comments/19et7ph/tesla_profits_crashed_23_in_2023_its_first/)
-- [$TSLA earnings be trash](https://www.reddit.com/r/wallstreetbets/comments/19esf27/tsla_earnings_be_trash/)
-- [Netflix Earnings Report YOLO](https://www.reddit.com/r/wallstreetbets/comments/19es9ed/netflix_earnings_report_yolo/)
-- [Cramer is positive in Tesla $TSLA](https://www.reddit.com/r/wallstreetbets/comments/19es7bm/cramer_is_positive_in_tesla_tsla/)
+- [you&#39;re telling me there&#39;s a chance](https://www.reddit.com/r/wallstreetbets/comments/19fk4wi/youre_telling_me_theres_a_chance/)
+- [$INTC Earnings Thread](https://www.reddit.com/r/wallstreetbets/comments/19fjxxd/intc_earnings_thread/)
+- [Immediately plummets 5% following the announcement](https://www.reddit.com/r/wallstreetbets/comments/19fjslq/immediately_plummets_5_following_the_announcement/)
+- [What Are Your Moves Tomorrow, January 26, 2024](https://www.reddit.com/r/wallstreetbets/comments/19fjq9x/what_are_your_moves_tomorrow_january_26_2024/)
+- [Tesla Puts to Buy a Tesla!](https://www.reddit.com/r/wallstreetbets/comments/19fjjcf/tesla_puts_to_buy_a_tesla/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
