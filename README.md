@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [you&#39;re telling me there&#39;s a chance](https://www.reddit.com/r/wallstreetbets/comments/19fk4wi/youre_telling_me_theres_a_chance/)
-- [$INTC Earnings Thread](https://www.reddit.com/r/wallstreetbets/comments/19fjxxd/intc_earnings_thread/)
-- [Immediately plummets 5% following the announcement](https://www.reddit.com/r/wallstreetbets/comments/19fjslq/immediately_plummets_5_following_the_announcement/)
-- [What Are Your Moves Tomorrow, January 26, 2024](https://www.reddit.com/r/wallstreetbets/comments/19fjq9x/what_are_your_moves_tomorrow_january_26_2024/)
-- [Tesla Puts to Buy a Tesla!](https://www.reddit.com/r/wallstreetbets/comments/19fjjcf/tesla_puts_to_buy_a_tesla/)
+- [Ok , my last 5K . How can i make it all back ? 🤡](https://www.reddit.com/r/wallstreetbets/comments/1abt1rr/ok_my_last_5k_how_can_i_make_it_all_back/)
+- [$30k SOFI Earnings YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1absvdk/30k_sofi_earnings_yolo/)
+- [Weekend Discussion Thread for the Weekend of January 27, 2024](https://www.reddit.com/r/wallstreetbets/comments/1abstfv/weekend_discussion_thread_for_the_weekend_of/)
+- [Hey Dickheads and assholes! TSLA](https://www.reddit.com/r/wallstreetbets/comments/1abrmab/hey_dickheads_and_assholes_tsla/)
+- [Put my actual rent money for February on Sofi earnings calls, am I about to be evicted?](https://www.reddit.com/r/wallstreetbets/comments/1abr7df/put_my_actual_rent_money_for_february_on_sofi/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
