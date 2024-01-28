@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ok , my last 5K . How can i make it all back ? 🤡](https://www.reddit.com/r/wallstreetbets/comments/1abt1rr/ok_my_last_5k_how_can_i_make_it_all_back/)
-- [$30k SOFI Earnings YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1absvdk/30k_sofi_earnings_yolo/)
-- [Weekend Discussion Thread for the Weekend of January 27, 2024](https://www.reddit.com/r/wallstreetbets/comments/1abstfv/weekend_discussion_thread_for_the_weekend_of/)
-- [Hey Dickheads and assholes! TSLA](https://www.reddit.com/r/wallstreetbets/comments/1abrmab/hey_dickheads_and_assholes_tsla/)
-- [Put my actual rent money for February on Sofi earnings calls, am I about to be evicted?](https://www.reddit.com/r/wallstreetbets/comments/1abr7df/put_my_actual_rent_money_for_february_on_sofi/)
+- [Tesla to the moon 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1acpdmr/tesla_to_the_moon/)
+- [China creating a new generation of bagholders](https://www.reddit.com/r/wallstreetbets/comments/1acoy1j/china_creating_a_new_generation_of_bagholders/)
+- [&quot;How many times did you include &quot;AI&quot; in the prepared remarks section of your earnings report?&quot;](https://www.reddit.com/r/wallstreetbets/comments/1acou3g/how_many_times_did_you_include_ai_in_the_prepared/)
+- [Whirlpool Corporation &lpar;$WHR&rpar; is a cutting edge boomer firm out of the Midwest and it&#39;s going to go up.](https://www.reddit.com/r/wallstreetbets/comments/1aco76w/whirlpool_corporation_whr_is_a_cutting_edge/)
+- [Time to full port on AMZN calls fellas](https://www.reddit.com/r/wallstreetbets/comments/1acnywh/time_to_full_port_on_amzn_calls_fellas/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
