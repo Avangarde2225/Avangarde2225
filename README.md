@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla to the moon 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1acpdmr/tesla_to_the_moon/)
-- [China creating a new generation of bagholders](https://www.reddit.com/r/wallstreetbets/comments/1acoy1j/china_creating_a_new_generation_of_bagholders/)
-- [&quot;How many times did you include &quot;AI&quot; in the prepared remarks section of your earnings report?&quot;](https://www.reddit.com/r/wallstreetbets/comments/1acou3g/how_many_times_did_you_include_ai_in_the_prepared/)
-- [Whirlpool Corporation &lpar;$WHR&rpar; is a cutting edge boomer firm out of the Midwest and it&#39;s going to go up.](https://www.reddit.com/r/wallstreetbets/comments/1aco76w/whirlpool_corporation_whr_is_a_cutting_edge/)
-- [Time to full port on AMZN calls fellas](https://www.reddit.com/r/wallstreetbets/comments/1acnywh/time_to_full_port_on_amzn_calls_fellas/)
+- [After earnings miss, Cramer says Tesla&#39;s out of the Magnificent Seven 🐐](https://www.reddit.com/r/wallstreetbets/comments/1adgyuj/after_earnings_miss_cramer_says_teslas_out_of_the/)
+- [timing the mar-](https://www.reddit.com/r/wallstreetbets/comments/1adgvpj/timing_the_mar/)
+- [Biggest oil giants raked in £100bn last year](https://www.reddit.com/r/wallstreetbets/comments/1adfu4r/biggest_oil_giants_raked_in_100bn_last_year/)
+- [Y’all better lock in them gains. War in Mideast about to expan](https://www.reddit.com/r/wallstreetbets/comments/1adffxk/yall_better_lock_in_them_gains_war_in_mideast/)
+- [Do we calculate inflation in the most regarded way, or am I just regarded?](https://www.reddit.com/r/wallstreetbets/comments/1adfbso/do_we_calculate_inflation_in_the_most_regarded/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
