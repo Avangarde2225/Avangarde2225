@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [After earnings miss, Cramer says Tesla&#39;s out of the Magnificent Seven 🐐](https://www.reddit.com/r/wallstreetbets/comments/1adgyuj/after_earnings_miss_cramer_says_teslas_out_of_the/)
-- [timing the mar-](https://www.reddit.com/r/wallstreetbets/comments/1adgvpj/timing_the_mar/)
-- [Biggest oil giants raked in £100bn last year](https://www.reddit.com/r/wallstreetbets/comments/1adfu4r/biggest_oil_giants_raked_in_100bn_last_year/)
-- [Y’all better lock in them gains. War in Mideast about to expan](https://www.reddit.com/r/wallstreetbets/comments/1adffxk/yall_better_lock_in_them_gains_war_in_mideast/)
-- [Do we calculate inflation in the most regarded way, or am I just regarded?](https://www.reddit.com/r/wallstreetbets/comments/1adfbso/do_we_calculate_inflation_in_the_most_regarded/)
+- [2 Year Anniversary of 20k -&gt; 95k -&gt; 10k](https://www.reddit.com/r/wallstreetbets/comments/1ae865m/2_year_anniversary_of_20k_95k_10k/)
+- [Nice](https://www.reddit.com/r/wallstreetbets/comments/1ae7lml/nice/)
+- [Tomorrow starts the bloodbath and the trend that will dictate the rest of 2024. Only question is, which side are you on?](https://www.reddit.com/r/wallstreetbets/comments/1ae7hkf/tomorrow_starts_the_bloodbath_and_the_trend_that/)
+- [Next stop, the moon! 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ae6izc/next_stop_the_moon/)
+- [What Are Your Moves Tomorrow, January 30, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ae62hf/what_are_your_moves_tomorrow_january_30_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
