@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [2 Year Anniversary of 20k -&gt; 95k -&gt; 10k](https://www.reddit.com/r/wallstreetbets/comments/1ae865m/2_year_anniversary_of_20k_95k_10k/)
-- [Nice](https://www.reddit.com/r/wallstreetbets/comments/1ae7lml/nice/)
-- [Tomorrow starts the bloodbath and the trend that will dictate the rest of 2024. Only question is, which side are you on?](https://www.reddit.com/r/wallstreetbets/comments/1ae7hkf/tomorrow_starts_the_bloodbath_and_the_trend_that/)
-- [Next stop, the moon! 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ae6izc/next_stop_the_moon/)
-- [What Are Your Moves Tomorrow, January 30, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ae62hf/what_are_your_moves_tomorrow_january_30_2024/)
+- [Tesla holders to AMD rn](https://www.reddit.com/r/wallstreetbets/comments/1af2u5n/tesla_holders_to_amd_rn/)
+- [No more down weeks](https://www.reddit.com/r/wallstreetbets/comments/1af2qxz/no_more_down_weeks/)
+- [Stop freaking out about AMD](https://www.reddit.com/r/wallstreetbets/comments/1af1wza/stop_freaking_out_about_amd/)
+- [Tesla shares slide after judge voids Elon Musk&#39;s $56 billion compensation](https://www.reddit.com/r/wallstreetbets/comments/1af0jkb/tesla_shares_slide_after_judge_voids_elon_musks/)
+- [Damn AMD…. I buy earning calls because I’m poor. I’m poor because I keep buying earning calls.](https://www.reddit.com/r/wallstreetbets/comments/1af08kp/damn_amd_i_buy_earning_calls_because_im_poor_im/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
