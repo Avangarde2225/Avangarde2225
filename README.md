@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla holders to AMD rn](https://www.reddit.com/r/wallstreetbets/comments/1af2u5n/tesla_holders_to_amd_rn/)
-- [No more down weeks](https://www.reddit.com/r/wallstreetbets/comments/1af2qxz/no_more_down_weeks/)
-- [Stop freaking out about AMD](https://www.reddit.com/r/wallstreetbets/comments/1af1wza/stop_freaking_out_about_amd/)
-- [Tesla shares slide after judge voids Elon Musk&#39;s $56 billion compensation](https://www.reddit.com/r/wallstreetbets/comments/1af0jkb/tesla_shares_slide_after_judge_voids_elon_musks/)
-- [Damn AMD…. I buy earning calls because I’m poor. I’m poor because I keep buying earning calls.](https://www.reddit.com/r/wallstreetbets/comments/1af08kp/damn_amd_i_buy_earning_calls_because_im_poor_im/)
+- [Dont gamble &lpar;40k loss in two days&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1afty67/dont_gamble_40k_loss_in_two_days/)
+- [All in on QQQ puts for tomorrow!](https://www.reddit.com/r/wallstreetbets/comments/1afto7n/all_in_on_qqq_puts_for_tomorrow/)
+- [I singlehandedly determine the market](https://www.reddit.com/r/wallstreetbets/comments/1afthjx/i_singlehandedly_determine_the_market/)
+- [I&#39;m a victim of today&#39;s market. Please feed me confirmation bias so I can sleep tonight.](https://www.reddit.com/r/wallstreetbets/comments/1aft19e/im_a_victim_of_todays_market_please_feed_me/)
+- [Quick trade today bought SPY 485P exp 05/06..it went down like crazy and than it did this](https://www.reddit.com/r/wallstreetbets/comments/1afstwi/quick_trade_today_bought_spy_485p_exp_0506it_went/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
