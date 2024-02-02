@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dont gamble &lpar;40k loss in two days&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1afty67/dont_gamble_40k_loss_in_two_days/)
-- [All in on QQQ puts for tomorrow!](https://www.reddit.com/r/wallstreetbets/comments/1afto7n/all_in_on_qqq_puts_for_tomorrow/)
-- [I singlehandedly determine the market](https://www.reddit.com/r/wallstreetbets/comments/1afthjx/i_singlehandedly_determine_the_market/)
-- [I&#39;m a victim of today&#39;s market. Please feed me confirmation bias so I can sleep tonight.](https://www.reddit.com/r/wallstreetbets/comments/1aft19e/im_a_victim_of_todays_market_please_feed_me/)
-- [Quick trade today bought SPY 485P exp 05/06..it went down like crazy and than it did this](https://www.reddit.com/r/wallstreetbets/comments/1afstwi/quick_trade_today_bought_spy_485p_exp_0506it_went/)
+- [Well ZuckerTerd has done well for me.](https://www.reddit.com/r/wallstreetbets/comments/1agos3x/well_zuckerterd_has_done_well_for_me/)
+- [60k AMZN Calls](https://www.reddit.com/r/wallstreetbets/comments/1ago8yj/60k_amzn_calls/)
+- [Hey its Zuck and the team here just wanted to say Fuk your puts!](https://www.reddit.com/r/wallstreetbets/comments/1ago5l2/hey_its_zuck_and_the_team_here_just_wanted_to_say/)
+- [JPOW: You bears fumbled the ball again!](https://www.reddit.com/r/wallstreetbets/comments/1agny4w/jpow_you_bears_fumbled_the_ball_again/)
+- [I thought I was gonna print on my $META puts](https://www.reddit.com/r/wallstreetbets/comments/1agn5i8/i_thought_i_was_gonna_print_on_my_meta_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
