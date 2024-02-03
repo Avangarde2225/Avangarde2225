@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Well ZuckerTerd has done well for me.](https://www.reddit.com/r/wallstreetbets/comments/1agos3x/well_zuckerterd_has_done_well_for_me/)
-- [60k AMZN Calls](https://www.reddit.com/r/wallstreetbets/comments/1ago8yj/60k_amzn_calls/)
-- [Hey its Zuck and the team here just wanted to say Fuk your puts!](https://www.reddit.com/r/wallstreetbets/comments/1ago5l2/hey_its_zuck_and_the_team_here_just_wanted_to_say/)
-- [JPOW: You bears fumbled the ball again!](https://www.reddit.com/r/wallstreetbets/comments/1agny4w/jpow_you_bears_fumbled_the_ball_again/)
-- [I thought I was gonna print on my $META puts](https://www.reddit.com/r/wallstreetbets/comments/1agn5i8/i_thought_i_was_gonna_print_on_my_meta_puts/)
+- [Even an idiot like me can double my portfolio within two weeks, so you can](https://www.reddit.com/r/wallstreetbets/comments/1ahf5sq/even_an_idiot_like_me_can_double_my_portfolio/)
+- [Weekend Discussion Thread for the Weekend of February 03, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ahe54x/weekend_discussion_thread_for_the_weekend_of/)
+- [Meta - kicking myself for not buying more](https://www.reddit.com/r/wallstreetbets/comments/1ahe1gc/meta_kicking_myself_for_not_buying_more/)
+- [These went to 600% and my punk ass sold at 100% …missed out in $10k in one hour 🤬🤬🤬🤬](https://www.reddit.com/r/wallstreetbets/comments/1ahdqvv/these_went_to_600_and_my_punk_ass_sold_at_100/)
+- [$14k Gain in a Week](https://www.reddit.com/r/wallstreetbets/comments/1ahcs5x/14k_gain_in_a_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
