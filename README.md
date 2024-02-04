@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Even an idiot like me can double my portfolio within two weeks, so you can](https://www.reddit.com/r/wallstreetbets/comments/1ahf5sq/even_an_idiot_like_me_can_double_my_portfolio/)
-- [Weekend Discussion Thread for the Weekend of February 03, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ahe54x/weekend_discussion_thread_for_the_weekend_of/)
-- [Meta - kicking myself for not buying more](https://www.reddit.com/r/wallstreetbets/comments/1ahe1gc/meta_kicking_myself_for_not_buying_more/)
-- [These went to 600% and my punk ass sold at 100% …missed out in $10k in one hour 🤬🤬🤬🤬](https://www.reddit.com/r/wallstreetbets/comments/1ahdqvv/these_went_to_600_and_my_punk_ass_sold_at_100/)
-- [$14k Gain in a Week](https://www.reddit.com/r/wallstreetbets/comments/1ahcs5x/14k_gain_in_a_week/)
+- [TSLA 35k 192.50 calls expiring 02/09. Make or break?](https://www.reddit.com/r/wallstreetbets/comments/1ai8yu9/tsla_35k_19250_calls_expiring_0209_make_or_break/)
+- [Played it safe](https://www.reddit.com/r/wallstreetbets/comments/1ai8jah/played_it_safe/)
+- [META covered call oopsie](https://www.reddit.com/r/wallstreetbets/comments/1ai4nx1/meta_covered_call_oopsie/)
+- [Governments will increase demand for NVIDIA chips](https://www.reddit.com/r/wallstreetbets/comments/1ai2yl7/governments_will_increase_demand_for_nvidia_chips/)
+- [I never fat finger the right plays but still fire gains 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ai2iui/i_never_fat_finger_the_right_plays_but_still_fire/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
