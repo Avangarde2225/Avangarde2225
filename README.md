@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Remember these guys? Anyone got any updates on how well things turned out for them?](https://www.reddit.com/r/wallstreetbets/comments/1aj35za/remember_these_guys_anyone_got_any_updates_on_how/)
-- [China Academic Calls for $1.4 Trillion Stock Stabilization Fund](https://www.reddit.com/r/wallstreetbets/comments/1aj1qbc/china_academic_calls_for_14_trillion_stock/)
-- [Is Tesla in position for a nice reversal?](https://www.reddit.com/r/wallstreetbets/comments/1aj1eff/is_tesla_in_position_for_a_nice_reversal/)
-- [What’s really going on with the economy, in your opinion?](https://www.reddit.com/r/wallstreetbets/comments/1aiz8js/whats_really_going_on_with_the_economy_in_your/)
-- [What Are Your Moves Tomorrow, February 05, 2024](https://www.reddit.com/r/wallstreetbets/comments/1aiyf9s/what_are_your_moves_tomorrow_february_05_2024/)
+- [Powell: ‘The US is on an unsustainable fiscal path’](https://www.reddit.com/r/wallstreetbets/comments/1ajto17/powell_the_us_is_on_an_unsustainable_fiscal_path/)
+- [Throw back for all the Palantards 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ajrxz1/throw_back_for_all_the_palantards/)
+- [Thank you Nancy for giving me this NVDA play](https://www.reddit.com/r/wallstreetbets/comments/1ajrxwi/thank_you_nancy_for_giving_me_this_nvda_play/)
+- [What Are Your Moves Tomorrow, February 06, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ajrfjq/what_are_your_moves_tomorrow_february_06_2024/)
+- [Tesla no longer in the Magnificent Seven, replaced by $AVGO, no longer a top ten S&amp;P 500 constituent stock. 🪦🙏](https://www.reddit.com/r/wallstreetbets/comments/1ajr09b/tesla_no_longer_in_the_magnificent_seven_replaced/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
