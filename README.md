@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Powell: ‘The US is on an unsustainable fiscal path’](https://www.reddit.com/r/wallstreetbets/comments/1ajto17/powell_the_us_is_on_an_unsustainable_fiscal_path/)
-- [Throw back for all the Palantards 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ajrxz1/throw_back_for_all_the_palantards/)
-- [Thank you Nancy for giving me this NVDA play](https://www.reddit.com/r/wallstreetbets/comments/1ajrxwi/thank_you_nancy_for_giving_me_this_nvda_play/)
-- [What Are Your Moves Tomorrow, February 06, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ajrfjq/what_are_your_moves_tomorrow_february_06_2024/)
-- [Tesla no longer in the Magnificent Seven, replaced by $AVGO, no longer a top ten S&amp;P 500 constituent stock. 🪦🙏](https://www.reddit.com/r/wallstreetbets/comments/1ajr09b/tesla_no_longer_in_the_magnificent_seven_replaced/)
+- [Ford 33,000 shares YOLO - $50,000 gain](https://www.reddit.com/r/wallstreetbets/comments/1aklty8/ford_33000_shares_yolo_50000_gain/)
+- [SNAP Got Thanos&#39;d on Earnings &lpar;down 34%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1aklse8/snap_got_thanosd_on_earnings_down_34/)
+- [AMD potato chips. Bullish.](https://www.reddit.com/r/wallstreetbets/comments/1akl1fw/amd_potato_chips_bullish/)
+- [$Baba Magic Carpet letting 268k ride, I don’t HEDGE also my DD for why. Call me DEEP FUCKING BABA &lpar;I bought more&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1akkokw/baba_magic_carpet_letting_268k_ride_i_dont_hedge/)
+- [What Are Your Moves Tomorrow, February 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1akkhe4/what_are_your_moves_tomorrow_february_07_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
