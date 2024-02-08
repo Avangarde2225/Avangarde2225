@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ford 33,000 shares YOLO - $50,000 gain](https://www.reddit.com/r/wallstreetbets/comments/1aklty8/ford_33000_shares_yolo_50000_gain/)
-- [SNAP Got Thanos&#39;d on Earnings &lpar;down 34%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1aklse8/snap_got_thanosd_on_earnings_down_34/)
-- [AMD potato chips. Bullish.](https://www.reddit.com/r/wallstreetbets/comments/1akl1fw/amd_potato_chips_bullish/)
-- [$Baba Magic Carpet letting 268k ride, I don’t HEDGE also my DD for why. Call me DEEP FUCKING BABA &lpar;I bought more&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1akkokw/baba_magic_carpet_letting_268k_ride_i_dont_hedge/)
-- [What Are Your Moves Tomorrow, February 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1akkhe4/what_are_your_moves_tomorrow_february_07_2024/)
+- [When investing goes wrong in live time:](https://www.reddit.com/r/wallstreetbets/comments/1algqd8/when_investing_goes_wrong_in_live_time/)
+- [Classic PayPal](https://www.reddit.com/r/wallstreetbets/comments/1algkhe/classic_paypal/)
+- [I’ve been begging NVDA to pullback and wait for me since 300. I give up. Calls at open.](https://www.reddit.com/r/wallstreetbets/comments/1alg4vy/ive_been_begging_nvda_to_pullback_and_wait_for_me/)
+- [Guys... I think I bought the dip](https://www.reddit.com/r/wallstreetbets/comments/1alfjvu/guys_i_think_i_bought_the_dip/)
+- [What exactly are the rules here? Because this sucks!](https://www.reddit.com/r/wallstreetbets/comments/1alf5wd/what_exactly_are_the_rules_here_because_this_sucks/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
