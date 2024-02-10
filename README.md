@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Most Anticipated Earnings Releases for the week beginning February 12th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1am9jdu/most_anticipated_earnings_releases_for_the_week/)
-- [SOLD my car and took every cash advance I could to make this happen. What is everyones prediction for this stock? Will we really hit ATH?](https://www.reddit.com/r/wallstreetbets/comments/1am7bdy/sold_my_car_and_took_every_cash_advance_i_could/)
-- [The future of Tesla &amp; Apple](https://www.reddit.com/r/wallstreetbets/comments/1am6nxu/the_future_of_tesla_apple/)
-- [WTF Just happened!!!???](https://www.reddit.com/r/wallstreetbets/comments/1am6dlp/wtf_just_happened/)
-- [What Are Your Moves Tomorrow, February 09, 2024](https://www.reddit.com/r/wallstreetbets/comments/1am64cw/what_are_your_moves_tomorrow_february_09_2024/)
+- [my forgotten nvda bought with birthday card money a while ago](https://www.reddit.com/r/wallstreetbets/comments/1amzo8p/my_forgotten_nvda_bought_with_birthday_card_money/)
+- [Bers worst nightmare](https://www.reddit.com/r/wallstreetbets/comments/1amzj5d/bers_worst_nightmare/)
+- [S&amp;P 500 closes above 5,000 for the first time ever and Ricardo is coming home](https://www.reddit.com/r/wallstreetbets/comments/1amzbjs/sp_500_closes_above_5000_for_the_first_time_ever/)
+- [In for 10k twice, this is all my money and today I hit 100k, sold 30k bought crypto, gonna sell more this week](https://www.reddit.com/r/wallstreetbets/comments/1amyz73/in_for_10k_twice_this_is_all_my_money_and_today_i/)
+- [I made it out ya’ll!](https://www.reddit.com/r/wallstreetbets/comments/1amyses/i_made_it_out_yall/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
