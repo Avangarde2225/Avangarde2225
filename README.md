@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [my forgotten nvda bought with birthday card money a while ago](https://www.reddit.com/r/wallstreetbets/comments/1amzo8p/my_forgotten_nvda_bought_with_birthday_card_money/)
-- [Bers worst nightmare](https://www.reddit.com/r/wallstreetbets/comments/1amzj5d/bers_worst_nightmare/)
-- [S&amp;P 500 closes above 5,000 for the first time ever and Ricardo is coming home](https://www.reddit.com/r/wallstreetbets/comments/1amzbjs/sp_500_closes_above_5000_for_the_first_time_ever/)
-- [In for 10k twice, this is all my money and today I hit 100k, sold 30k bought crypto, gonna sell more this week](https://www.reddit.com/r/wallstreetbets/comments/1amyz73/in_for_10k_twice_this_is_all_my_money_and_today_i/)
-- [I made it out ya’ll!](https://www.reddit.com/r/wallstreetbets/comments/1amyses/i_made_it_out_yall/)
+- [McDonalds sucks](https://www.reddit.com/r/wallstreetbets/comments/1anudgn/mcdonalds_sucks/)
+- [Don’t know how I have an average cost of 29 cents but I think this is funny.](https://www.reddit.com/r/wallstreetbets/comments/1antmbz/dont_know_how_i_have_an_average_cost_of_29_cents/)
+- [Apple is relaunching iWork to compete with MS Office](https://www.reddit.com/r/wallstreetbets/comments/1anrygu/apple_is_relaunching_iwork_to_compete_with_ms/)
+- [Idk what to do at this point](https://www.reddit.com/r/wallstreetbets/comments/1anqzcc/idk_what_to_do_at_this_point/)
+- [Bitcoin ETF this year.](https://www.reddit.com/r/wallstreetbets/comments/1anqc8b/bitcoin_etf_this_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
