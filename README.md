@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [McDonalds sucks](https://www.reddit.com/r/wallstreetbets/comments/1anudgn/mcdonalds_sucks/)
-- [Don’t know how I have an average cost of 29 cents but I think this is funny.](https://www.reddit.com/r/wallstreetbets/comments/1antmbz/dont_know_how_i_have_an_average_cost_of_29_cents/)
-- [Apple is relaunching iWork to compete with MS Office](https://www.reddit.com/r/wallstreetbets/comments/1anrygu/apple_is_relaunching_iwork_to_compete_with_ms/)
-- [Idk what to do at this point](https://www.reddit.com/r/wallstreetbets/comments/1anqzcc/idk_what_to_do_at_this_point/)
-- [Bitcoin ETF this year.](https://www.reddit.com/r/wallstreetbets/comments/1anqc8b/bitcoin_etf_this_year/)
+- [Tom Brady Curse](https://www.reddit.com/r/wallstreetbets/comments/1aomc71/tom_brady_curse/)
+- [The S&amp;P chart looks like it will moon…](https://www.reddit.com/r/wallstreetbets/comments/1aojyol/the_sp_chart_looks_like_it_will_moon/)
+- [Thanks pltr](https://www.reddit.com/r/wallstreetbets/comments/1aojk02/thanks_pltr/)
+- [Stock Market Surge Triggers New Wave of Early Retirements, Challenging Federal Reserve&#39;s Labor Market Objectives](https://www.reddit.com/r/wallstreetbets/comments/1aoilrn/stock_market_surge_triggers_new_wave_of_early/)
+- [What Are Your Moves Tomorrow, February 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1aoie3y/what_are_your_moves_tomorrow_february_12_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
