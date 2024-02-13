@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tom Brady Curse](https://www.reddit.com/r/wallstreetbets/comments/1aomc71/tom_brady_curse/)
-- [The S&amp;P chart looks like it will moon…](https://www.reddit.com/r/wallstreetbets/comments/1aojyol/the_sp_chart_looks_like_it_will_moon/)
-- [Thanks pltr](https://www.reddit.com/r/wallstreetbets/comments/1aojk02/thanks_pltr/)
-- [Stock Market Surge Triggers New Wave of Early Retirements, Challenging Federal Reserve&#39;s Labor Market Objectives](https://www.reddit.com/r/wallstreetbets/comments/1aoilrn/stock_market_surge_triggers_new_wave_of_early/)
-- [What Are Your Moves Tomorrow, February 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1aoie3y/what_are_your_moves_tomorrow_february_12_2024/)
+- [Average life cycle of a WSB regard](https://www.reddit.com/r/wallstreetbets/comments/1apeypx/average_life_cycle_of_a_wsb_regard/)
+- [MicroStrategy owns a record $9,500,000,000 worth of Bitcoin.](https://www.reddit.com/r/wallstreetbets/comments/1ape1xb/microstrategy_owns_a_record_9500000000_worth_of/)
+- [You won&#39;t want to hear this. But ... NVDA puts for August.](https://www.reddit.com/r/wallstreetbets/comments/1apcbpc/you_wont_want_to_hear_this_but_nvda_puts_for/)
+- [I’m now regarded](https://www.reddit.com/r/wallstreetbets/comments/1apb4q0/im_now_regarded/)
+- [BTC at 50K and no halving - bers rekt](https://www.reddit.com/r/wallstreetbets/comments/1apayqu/btc_at_50k_and_no_halving_bers_rekt/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
