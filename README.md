@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Average life cycle of a WSB regard](https://www.reddit.com/r/wallstreetbets/comments/1apeypx/average_life_cycle_of_a_wsb_regard/)
-- [MicroStrategy owns a record $9,500,000,000 worth of Bitcoin.](https://www.reddit.com/r/wallstreetbets/comments/1ape1xb/microstrategy_owns_a_record_9500000000_worth_of/)
-- [You won&#39;t want to hear this. But ... NVDA puts for August.](https://www.reddit.com/r/wallstreetbets/comments/1apcbpc/you_wont_want_to_hear_this_but_nvda_puts_for/)
-- [I’m now regarded](https://www.reddit.com/r/wallstreetbets/comments/1apb4q0/im_now_regarded/)
-- [BTC at 50K and no halving - bers rekt](https://www.reddit.com/r/wallstreetbets/comments/1apayqu/btc_at_50k_and_no_halving_bers_rekt/)
+- [I&#39;m from the future here&#39;s how the rest of 2024 will go...](https://www.reddit.com/r/wallstreetbets/comments/1aq89jt/im_from_the_future_heres_how_the_rest_of_2024/)
+- [Upstart got Destroyed](https://www.reddit.com/r/wallstreetbets/comments/1aq6szm/upstart_got_destroyed/)
+- [$HOOD beat earnings…](https://www.reddit.com/r/wallstreetbets/comments/1aq5694/hood_beat_earnings/)
+- [Why do they give me hope before ruining my life savings?](https://www.reddit.com/r/wallstreetbets/comments/1aq53jm/why_do_they_give_me_hope_before_ruining_my_life/)
+- [$10k into $990k in 45 days](https://www.reddit.com/r/wallstreetbets/comments/1aq4wmx/10k_into_990k_in_45_days/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
