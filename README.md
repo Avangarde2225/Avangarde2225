@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m from the future here&#39;s how the rest of 2024 will go...](https://www.reddit.com/r/wallstreetbets/comments/1aq89jt/im_from_the_future_heres_how_the_rest_of_2024/)
-- [Upstart got Destroyed](https://www.reddit.com/r/wallstreetbets/comments/1aq6szm/upstart_got_destroyed/)
-- [$HOOD beat earnings…](https://www.reddit.com/r/wallstreetbets/comments/1aq5694/hood_beat_earnings/)
-- [Why do they give me hope before ruining my life savings?](https://www.reddit.com/r/wallstreetbets/comments/1aq53jm/why_do_they_give_me_hope_before_ruining_my_life/)
-- [$10k into $990k in 45 days](https://www.reddit.com/r/wallstreetbets/comments/1aq4wmx/10k_into_990k_in_45_days/)
+- [My biggest loss to date.](https://www.reddit.com/r/wallstreetbets/comments/1ar16af/my_biggest_loss_to_date/)
+- [Never don’t quit](https://www.reddit.com/r/wallstreetbets/comments/1aqzhjh/never_dont_quit/)
+- [Officially one of the regards](https://www.reddit.com/r/wallstreetbets/comments/1aqzexa/officially_one_of_the_regards/)
+- [SMCI, will you be my valentine? 🫶🏼](https://www.reddit.com/r/wallstreetbets/comments/1aqy1oc/smci_will_you_be_my_valentine/)
+- [This is what I get for buying calls at 3:59pm](https://www.reddit.com/r/wallstreetbets/comments/1aqxzby/this_is_what_i_get_for_buying_calls_at_359pm/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
