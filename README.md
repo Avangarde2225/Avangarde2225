@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Most Anticipated Earnings Releases for the week beginning February 19th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1arusfa/most_anticipated_earnings_releases_for_the_week/)
-- [Hit Nearly 100k in Two Days and I Can&#39;t Shake the Gambling Bug](https://www.reddit.com/r/wallstreetbets/comments/1artdv3/hit_nearly_100k_in_two_days_and_i_cant_shake_the/)
-- [$CART about to moon. Here’s why.](https://www.reddit.com/r/wallstreetbets/comments/1ars6gv/cart_about_to_moon_heres_why/)
-- [ARK sells Coinbase shares first time in a month, right before huge earning beat](https://www.reddit.com/r/wallstreetbets/comments/1arrucr/ark_sells_coinbase_shares_first_time_in_a_month/)
-- [Bought 175k worth of apple calls right before they announced AI tools](https://www.reddit.com/r/wallstreetbets/comments/1arrswv/bought_175k_worth_of_apple_calls_right_before/)
+- [$990 -&gt; 42k caught puts at the very top $smci](https://www.reddit.com/r/wallstreetbets/comments/1asmwyv/990_42k_caught_puts_at_the_very_top_smci/)
+- [SMCI entering an extremely rare Penrose Stair Formation](https://www.reddit.com/r/wallstreetbets/comments/1askxpt/smci_entering_an_extremely_rare_penrose_stair/)
+- [not gonna lie, this stings a little](https://www.reddit.com/r/wallstreetbets/comments/1askckw/not_gonna_lie_this_stings_a_little/)
+- [Weekend Discussion Thread for the Weekend of February 17, 2024](https://www.reddit.com/r/wallstreetbets/comments/1asjhat/weekend_discussion_thread_for_the_weekend_of/)
+- [$50k in 120 2/23 900C NVDA YOLO](https://www.reddit.com/r/wallstreetbets/comments/1asjcxl/50k_in_120_223_900c_nvda_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
