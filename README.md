@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$990 -&gt; 42k caught puts at the very top $smci](https://www.reddit.com/r/wallstreetbets/comments/1asmwyv/990_42k_caught_puts_at_the_very_top_smci/)
-- [SMCI entering an extremely rare Penrose Stair Formation](https://www.reddit.com/r/wallstreetbets/comments/1askxpt/smci_entering_an_extremely_rare_penrose_stair/)
-- [not gonna lie, this stings a little](https://www.reddit.com/r/wallstreetbets/comments/1askckw/not_gonna_lie_this_stings_a_little/)
-- [Weekend Discussion Thread for the Weekend of February 17, 2024](https://www.reddit.com/r/wallstreetbets/comments/1asjhat/weekend_discussion_thread_for_the_weekend_of/)
-- [$50k in 120 2/23 900C NVDA YOLO](https://www.reddit.com/r/wallstreetbets/comments/1asjcxl/50k_in_120_223_900c_nvda_yolo/)
+- [Toyota has outperformed Tesla in the last 3 years](https://www.reddit.com/r/wallstreetbets/comments/1atg5pj/toyota_has_outperformed_tesla_in_the_last_3_years/)
+- [Guessing some of you have been gifted this](https://www.reddit.com/r/wallstreetbets/comments/1ate4kc/guessing_some_of_you_have_been_gifted_this/)
+- [Full-ported 1060c on SCMI, down 18k. Anyone else find out they were mentally challenged yesterday?](https://www.reddit.com/r/wallstreetbets/comments/1atdoaq/fullported_1060c_on_scmi_down_18k_anyone_else/)
+- [Keep talking about NVIDIA, RIVIAN will avoid the traders.](https://www.reddit.com/r/wallstreetbets/comments/1atdn0y/keep_talking_about_nvidia_rivian_will_avoid_the/)
+- [ANF continues to be the biggest shorting opportunity of 2024 - numbers don&#39;t lie](https://www.reddit.com/r/wallstreetbets/comments/1atdgdv/anf_continues_to_be_the_biggest_shorting/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
