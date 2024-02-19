@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Toyota has outperformed Tesla in the last 3 years](https://www.reddit.com/r/wallstreetbets/comments/1atg5pj/toyota_has_outperformed_tesla_in_the_last_3_years/)
-- [Guessing some of you have been gifted this](https://www.reddit.com/r/wallstreetbets/comments/1ate4kc/guessing_some_of_you_have_been_gifted_this/)
-- [Full-ported 1060c on SCMI, down 18k. Anyone else find out they were mentally challenged yesterday?](https://www.reddit.com/r/wallstreetbets/comments/1atdoaq/fullported_1060c_on_scmi_down_18k_anyone_else/)
-- [Keep talking about NVIDIA, RIVIAN will avoid the traders.](https://www.reddit.com/r/wallstreetbets/comments/1atdn0y/keep_talking_about_nvidia_rivian_will_avoid_the/)
-- [ANF continues to be the biggest shorting opportunity of 2024 - numbers don&#39;t lie](https://www.reddit.com/r/wallstreetbets/comments/1atdgdv/anf_continues_to_be_the_biggest_shorting/)
+- [Welp, SPY puts it is](https://www.reddit.com/r/wallstreetbets/comments/1au625s/welp_spy_puts_it_is/)
+- [Nvidia reveals its Eos supercomputer for AI processing sporting 4,608 H100 GPUs](https://www.reddit.com/r/wallstreetbets/comments/1au5yfe/nvidia_reveals_its_eos_supercomputer_for_ai/)
+- [Do people forget we’re in an election year and that the market is most likely going to finish green end of year?](https://www.reddit.com/r/wallstreetbets/comments/1au5qg9/do_people_forget_were_in_an_election_year_and/)
+- [I&#39;ve got NVDA 1000c expiring Friday](https://www.reddit.com/r/wallstreetbets/comments/1au5fxj/ive_got_nvda_1000c_expiring_friday/)
+- [Roku stock hemorrhages $78.3 million — its worst trading day ever](https://www.reddit.com/r/wallstreetbets/comments/1au5120/roku_stock_hemorrhages_783_million_its_worst/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
