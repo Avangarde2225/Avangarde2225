@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Welp, SPY puts it is](https://www.reddit.com/r/wallstreetbets/comments/1au625s/welp_spy_puts_it_is/)
-- [Nvidia reveals its Eos supercomputer for AI processing sporting 4,608 H100 GPUs](https://www.reddit.com/r/wallstreetbets/comments/1au5yfe/nvidia_reveals_its_eos_supercomputer_for_ai/)
-- [Do people forget we’re in an election year and that the market is most likely going to finish green end of year?](https://www.reddit.com/r/wallstreetbets/comments/1au5qg9/do_people_forget_were_in_an_election_year_and/)
-- [I&#39;ve got NVDA 1000c expiring Friday](https://www.reddit.com/r/wallstreetbets/comments/1au5fxj/ive_got_nvda_1000c_expiring_friday/)
-- [Roku stock hemorrhages $78.3 million — its worst trading day ever](https://www.reddit.com/r/wallstreetbets/comments/1au5120/roku_stock_hemorrhages_783_million_its_worst/)
+- [Discover Calls?](https://www.reddit.com/r/wallstreetbets/comments/1av120h/discover_calls/)
+- [NVDA DD: Earnings Week, contradicting signals.](https://www.reddit.com/r/wallstreetbets/comments/1auzzqx/nvda_dd_earnings_week_contradicting_signals/)
+- [NVDA triple top](https://www.reddit.com/r/wallstreetbets/comments/1auzvxk/nvda_triple_top/)
+- [Magnificent 7 profits now exceed almost every country in the world. Should we be worried?](https://www.reddit.com/r/wallstreetbets/comments/1auzjm6/magnificent_7_profits_now_exceed_almost_every/)
+- [85k gains on BITFARMS 🤌🏼](https://www.reddit.com/r/wallstreetbets/comments/1auzein/85k_gains_on_bitfarms/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
