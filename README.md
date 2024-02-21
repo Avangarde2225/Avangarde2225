@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Discover Calls?](https://www.reddit.com/r/wallstreetbets/comments/1av120h/discover_calls/)
-- [NVDA DD: Earnings Week, contradicting signals.](https://www.reddit.com/r/wallstreetbets/comments/1auzzqx/nvda_dd_earnings_week_contradicting_signals/)
-- [NVDA triple top](https://www.reddit.com/r/wallstreetbets/comments/1auzvxk/nvda_triple_top/)
-- [Magnificent 7 profits now exceed almost every country in the world. Should we be worried?](https://www.reddit.com/r/wallstreetbets/comments/1auzjm6/magnificent_7_profits_now_exceed_almost_every/)
-- [85k gains on BITFARMS 🤌🏼](https://www.reddit.com/r/wallstreetbets/comments/1auzein/85k_gains_on_bitfarms/)
+- [PANW getting hammered after hours down 20%](https://www.reddit.com/r/wallstreetbets/comments/1avv5mc/panw_getting_hammered_after_hours_down_20/)
+- [Guys I just completed my analysis and NVDA hit the rare TRIPLE 2s. Please save your life savings while you can](https://www.reddit.com/r/wallstreetbets/comments/1avue57/guys_i_just_completed_my_analysis_and_nvda_hit/)
+- [Most Anticipated Earnings since …eternity.](https://www.reddit.com/r/wallstreetbets/comments/1avu6pc/most_anticipated_earnings_since_eternity/)
+- [$SMCI is Technically Setting Up for the Rare Brachiosaurus Pattern](https://www.reddit.com/r/wallstreetbets/comments/1avtfhk/smci_is_technically_setting_up_for_the_rare/)
+- [What Are Your Moves Tomorrow, February 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1avspny/what_are_your_moves_tomorrow_february_21_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
