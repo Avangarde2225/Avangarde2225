@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PANW getting hammered after hours down 20%](https://www.reddit.com/r/wallstreetbets/comments/1avv5mc/panw_getting_hammered_after_hours_down_20/)
-- [Guys I just completed my analysis and NVDA hit the rare TRIPLE 2s. Please save your life savings while you can](https://www.reddit.com/r/wallstreetbets/comments/1avue57/guys_i_just_completed_my_analysis_and_nvda_hit/)
-- [Most Anticipated Earnings since …eternity.](https://www.reddit.com/r/wallstreetbets/comments/1avu6pc/most_anticipated_earnings_since_eternity/)
-- [$SMCI is Technically Setting Up for the Rare Brachiosaurus Pattern](https://www.reddit.com/r/wallstreetbets/comments/1avtfhk/smci_is_technically_setting_up_for_the_rare/)
-- [What Are Your Moves Tomorrow, February 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1avspny/what_are_your_moves_tomorrow_february_21_2024/)
+- [AI&#39;s prediction on the 2024 US election](https://www.reddit.com/r/wallstreetbets/comments/1awq7ip/ais_prediction_on_the_2024_us_election/)
+- [We did it boys](https://www.reddit.com/r/wallstreetbets/comments/1awpzua/we_did_it_boys/)
+- [How the world sees US now](https://www.reddit.com/r/wallstreetbets/comments/1awpd5e/how_the_world_sees_us_now/)
+- [I refuse to sell &lpar;or get a real broker&rpar; Funny green line go BRRRR](https://www.reddit.com/r/wallstreetbets/comments/1awowem/i_refuse_to_sell_or_get_a_real_broker_funny_green/)
+- [Stock Wars: Episode III – Revenge of the NVDA](https://www.reddit.com/r/wallstreetbets/comments/1awow82/stock_wars_episode_iii_revenge_of_the_nvda/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
