@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AI&#39;s prediction on the 2024 US election](https://www.reddit.com/r/wallstreetbets/comments/1awq7ip/ais_prediction_on_the_2024_us_election/)
-- [We did it boys](https://www.reddit.com/r/wallstreetbets/comments/1awpzua/we_did_it_boys/)
-- [How the world sees US now](https://www.reddit.com/r/wallstreetbets/comments/1awpd5e/how_the_world_sees_us_now/)
-- [I refuse to sell &lpar;or get a real broker&rpar; Funny green line go BRRRR](https://www.reddit.com/r/wallstreetbets/comments/1awowem/i_refuse_to_sell_or_get_a_real_broker_funny_green/)
-- [Stock Wars: Episode III – Revenge of the NVDA](https://www.reddit.com/r/wallstreetbets/comments/1awow82/stock_wars_episode_iii_revenge_of_the_nvda/)
+- [LUNR LANDER HAS SUCCESSFULLY LANDED](https://www.reddit.com/r/wallstreetbets/comments/1axli3z/lunr_lander_has_successfully_landed/)
+- [Proposal for new American flag](https://www.reddit.com/r/wallstreetbets/comments/1axkjt1/proposal_for_new_american_flag/)
+- [Reddit IPOo](https://www.reddit.com/r/wallstreetbets/comments/1axk5rt/reddit_ipoo/)
+- [Nvidia makes Wall Street history as stock surge adds $277 billion in market cap](https://www.reddit.com/r/wallstreetbets/comments/1axiz2i/nvidia_makes_wall_street_history_as_stock_surge/)
+- [Reddit lists wallstreetbets as a risk factor in their registration statement](https://www.reddit.com/r/wallstreetbets/comments/1axik5t/reddit_lists_wallstreetbets_as_a_risk_factor_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
