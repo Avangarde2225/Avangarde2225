@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [LUNR LANDER HAS SUCCESSFULLY LANDED](https://www.reddit.com/r/wallstreetbets/comments/1axli3z/lunr_lander_has_successfully_landed/)
-- [Proposal for new American flag](https://www.reddit.com/r/wallstreetbets/comments/1axkjt1/proposal_for_new_american_flag/)
-- [Reddit IPOo](https://www.reddit.com/r/wallstreetbets/comments/1axk5rt/reddit_ipoo/)
-- [Nvidia makes Wall Street history as stock surge adds $277 billion in market cap](https://www.reddit.com/r/wallstreetbets/comments/1axiz2i/nvidia_makes_wall_street_history_as_stock_surge/)
-- [Reddit lists wallstreetbets as a risk factor in their registration statement](https://www.reddit.com/r/wallstreetbets/comments/1axik5t/reddit_lists_wallstreetbets_as_a_risk_factor_in/)
+- [Guys how do i make it stop? I sold all my calls and shares for LUNR but i’ll still losing money??? All I have is NVIDA](https://www.reddit.com/r/wallstreetbets/comments/1aye3hv/guys_how_do_i_make_it_stop_i_sold_all_my_calls/)
+- [WHY DID YOU HAVE TO GIVE US THIS VISUAL.](https://www.reddit.com/r/wallstreetbets/comments/1ayde7t/why_did_you_have_to_give_us_this_visual/)
+- [RIP to anyone that bought calls.](https://www.reddit.com/r/wallstreetbets/comments/1aydcru/rip_to_anyone_that_bought_calls/)
+- [PANW - Profit: $294,000. Cost Basis: $5,900](https://www.reddit.com/r/wallstreetbets/comments/1aycpvb/panw_profit_294000_cost_basis_5900/)
+- [Weekend Discussion Thread for the Weekend of February 24, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ayblwt/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
