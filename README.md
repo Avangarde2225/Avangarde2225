@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Guys how do i make it stop? I sold all my calls and shares for LUNR but i’ll still losing money??? All I have is NVIDA](https://www.reddit.com/r/wallstreetbets/comments/1aye3hv/guys_how_do_i_make_it_stop_i_sold_all_my_calls/)
-- [WHY DID YOU HAVE TO GIVE US THIS VISUAL.](https://www.reddit.com/r/wallstreetbets/comments/1ayde7t/why_did_you_have_to_give_us_this_visual/)
-- [RIP to anyone that bought calls.](https://www.reddit.com/r/wallstreetbets/comments/1aydcru/rip_to_anyone_that_bought_calls/)
-- [PANW - Profit: $294,000. Cost Basis: $5,900](https://www.reddit.com/r/wallstreetbets/comments/1aycpvb/panw_profit_294000_cost_basis_5900/)
-- [Weekend Discussion Thread for the Weekend of February 24, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ayblwt/weekend_discussion_thread_for_the_weekend_of/)
+- [Sold all my Nvidia shares this week for my first ever options trade](https://www.reddit.com/r/wallstreetbets/comments/1az8770/sold_all_my_nvidia_shares_this_week_for_my_first/)
+- [Ber meanwhile](https://www.reddit.com/r/wallstreetbets/comments/1az7qb8/ber_meanwhile/)
+- [Country inside another country](https://www.reddit.com/r/wallstreetbets/comments/1az6clb/country_inside_another_country/)
+- [Haters are gonna hate, but &#39;American Exceptionalism&#39; is back](https://www.reddit.com/r/wallstreetbets/comments/1az4d0f/haters_are_gonna_hate_but_american_exceptionalism/)
+- [JPMorgan &lpar;JPM&rpar; CEO Jamie Dimon Sells $150 Million Worth of Bank&#39;s Shares - Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/1az2xnn/jpmorgan_jpm_ceo_jamie_dimon_sells_150_million/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
