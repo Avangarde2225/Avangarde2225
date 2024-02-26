@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sold all my Nvidia shares this week for my first ever options trade](https://www.reddit.com/r/wallstreetbets/comments/1az8770/sold_all_my_nvidia_shares_this_week_for_my_first/)
-- [Ber meanwhile](https://www.reddit.com/r/wallstreetbets/comments/1az7qb8/ber_meanwhile/)
-- [Country inside another country](https://www.reddit.com/r/wallstreetbets/comments/1az6clb/country_inside_another_country/)
-- [Haters are gonna hate, but &#39;American Exceptionalism&#39; is back](https://www.reddit.com/r/wallstreetbets/comments/1az4d0f/haters_are_gonna_hate_but_american_exceptionalism/)
-- [JPMorgan &lpar;JPM&rpar; CEO Jamie Dimon Sells $150 Million Worth of Bank&#39;s Shares - Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/1az2xnn/jpmorgan_jpm_ceo_jamie_dimon_sells_150_million/)
+- [zoom earnings play](https://www.reddit.com/r/wallstreetbets/comments/1b02uxb/zoom_earnings_play/)
+- [Elon Musk relied on China to fuel Tesla&#39;s rise. Now Beijing is turning on him.](https://www.reddit.com/r/wallstreetbets/comments/1b01xzv/elon_musk_relied_on_china_to_fuel_teslas_rise_now/)
+- [A collection of the insights Warren Buffett offered in his annual letter Saturday](https://www.reddit.com/r/wallstreetbets/comments/1b019y5/a_collection_of_the_insights_warren_buffett/)
+- [Kohls - Triple top formed, consolidating before earnings on 3/12. heading to the basement next.](https://www.reddit.com/r/wallstreetbets/comments/1b00obg/kohls_triple_top_formed_consolidating_before/)
+- [Bring back 🐸](https://www.reddit.com/r/wallstreetbets/comments/1b00b6s/bring_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
