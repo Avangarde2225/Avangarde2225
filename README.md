@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [zoom earnings play](https://www.reddit.com/r/wallstreetbets/comments/1b02uxb/zoom_earnings_play/)
-- [Elon Musk relied on China to fuel Tesla&#39;s rise. Now Beijing is turning on him.](https://www.reddit.com/r/wallstreetbets/comments/1b01xzv/elon_musk_relied_on_china_to_fuel_teslas_rise_now/)
-- [A collection of the insights Warren Buffett offered in his annual letter Saturday](https://www.reddit.com/r/wallstreetbets/comments/1b019y5/a_collection_of_the_insights_warren_buffett/)
-- [Kohls - Triple top formed, consolidating before earnings on 3/12. heading to the basement next.](https://www.reddit.com/r/wallstreetbets/comments/1b00obg/kohls_triple_top_formed_consolidating_before/)
-- [Bring back 🐸](https://www.reddit.com/r/wallstreetbets/comments/1b00b6s/bring_back/)
+- [I borrowed $4M in derivatives to invest. Too crazy?](https://www.reddit.com/r/wallstreetbets/comments/1b0uoga/i_borrowed_4m_in_derivatives_to_invest_too_crazy/)
+- [$2K to $11K in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1b0txn5/2k_to_11k_in_2_days/)
+- [MARA-CLSK Money Machine](https://www.reddit.com/r/wallstreetbets/comments/1b0thi4/maraclsk_money_machine/)
+- [Update: $32k says SPY won’t hold last weeks gains](https://www.reddit.com/r/wallstreetbets/comments/1b0tduw/update_32k_says_spy_wont_hold_last_weeks_gains/)
+- [SOUN tanking before earnings after today rally ?](https://www.reddit.com/r/wallstreetbets/comments/1b0t5mw/soun_tanking_before_earnings_after_today_rally/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
