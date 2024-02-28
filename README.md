@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I borrowed $4M in derivatives to invest. Too crazy?](https://www.reddit.com/r/wallstreetbets/comments/1b0uoga/i_borrowed_4m_in_derivatives_to_invest_too_crazy/)
-- [$2K to $11K in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1b0txn5/2k_to_11k_in_2_days/)
-- [MARA-CLSK Money Machine](https://www.reddit.com/r/wallstreetbets/comments/1b0thi4/maraclsk_money_machine/)
-- [Update: $32k says SPY won’t hold last weeks gains](https://www.reddit.com/r/wallstreetbets/comments/1b0tduw/update_32k_says_spy_wont_hold_last_weeks_gains/)
-- [SOUN tanking before earnings after today rally ?](https://www.reddit.com/r/wallstreetbets/comments/1b0t5mw/soun_tanking_before_earnings_after_today_rally/)
+- [Dress for the job you want - 2006 edition](https://www.reddit.com/r/wallstreetbets/comments/1b1pyzv/dress_for_the_job_you_want_2006_edition/)
+- [Beyond AI](https://www.reddit.com/r/wallstreetbets/comments/1b1o0v1/beyond_ai/)
+- [in Nov 2023 i maxed out 8 credit cards and bought bitcoin. Heres how its going 90 days later.](https://www.reddit.com/r/wallstreetbets/comments/1b1n9yu/in_nov_2023_i_maxed_out_8_credit_cards_and_bought/)
+- [Bumble Earnings](https://www.reddit.com/r/wallstreetbets/comments/1b1n5ay/bumble_earnings/)
+- [What Are Your Moves Tomorrow, February 28, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b1mvdr/what_are_your_moves_tomorrow_february_28_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
