@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dress for the job you want - 2006 edition](https://www.reddit.com/r/wallstreetbets/comments/1b1pyzv/dress_for_the_job_you_want_2006_edition/)
-- [Beyond AI](https://www.reddit.com/r/wallstreetbets/comments/1b1o0v1/beyond_ai/)
-- [in Nov 2023 i maxed out 8 credit cards and bought bitcoin. Heres how its going 90 days later.](https://www.reddit.com/r/wallstreetbets/comments/1b1n9yu/in_nov_2023_i_maxed_out_8_credit_cards_and_bought/)
-- [Bumble Earnings](https://www.reddit.com/r/wallstreetbets/comments/1b1n5ay/bumble_earnings/)
-- [What Are Your Moves Tomorrow, February 28, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b1mvdr/what_are_your_moves_tomorrow_february_28_2024/)
+- [New Wendy&#39;s app](https://www.reddit.com/r/wallstreetbets/comments/1b2l7xf/new_wendys_app/)
+- [Any degens gonna short some baconators?](https://www.reddit.com/r/wallstreetbets/comments/1b2kmuc/any_degens_gonna_short_some_baconators/)
+- [YOLO Failed](https://www.reddit.com/r/wallstreetbets/comments/1b2jwxa/yolo_failed/)
+- [My first option in almost two years](https://www.reddit.com/r/wallstreetbets/comments/1b2jcbd/my_first_option_in_almost_two_years/)
+- [Buying Calls Might Have Been A Mistake](https://www.reddit.com/r/wallstreetbets/comments/1b2ishm/buying_calls_might_have_been_a_mistake/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
