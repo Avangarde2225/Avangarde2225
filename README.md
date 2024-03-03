@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SMCI set to join S&amp;P 500](https://www.reddit.com/r/wallstreetbets/comments/1b47pv2/smci_set_to_join_sp_500/)
-- [don&#39;t give up boys 💪](https://www.reddit.com/r/wallstreetbets/comments/1b45vc2/dont_give_up_boys/)
-- [No one beating nividia!](https://www.reddit.com/r/wallstreetbets/comments/1b45nfc/no_one_beating_nividia/)
-- [First real gain, very cool](https://www.reddit.com/r/wallstreetbets/comments/1b45lfj/first_real_gain_very_cool/)
-- [Reddit seeking a valuation of up to $6.5 billion in IPO](https://www.reddit.com/r/wallstreetbets/comments/1b45ffo/reddit_seeking_a_valuation_of_up_to_65_billion_in/)
+- [Hit the pinnacle of my investing career](https://www.reddit.com/r/wallstreetbets/comments/1b51z1w/hit_the_pinnacle_of_my_investing_career/)
+- [The U.S. national debt is rising by $1 trillion about every 100 days](https://www.reddit.com/r/wallstreetbets/comments/1b51rg4/the_us_national_debt_is_rising_by_1_trillion/)
+- [$24k —&gt; $26](https://www.reddit.com/r/wallstreetbets/comments/1b4zk1u/24k_26/)
+- [AMD calls 📞🚀🌕 let’s go!](https://www.reddit.com/r/wallstreetbets/comments/1b4zhmt/amd_calls_lets_go/)
+- [Did the Market Miss the Big Picture on SNOW?](https://www.reddit.com/r/wallstreetbets/comments/1b4wuwr/did_the_market_miss_the_big_picture_on_snow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
