@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hit the pinnacle of my investing career](https://www.reddit.com/r/wallstreetbets/comments/1b51z1w/hit_the_pinnacle_of_my_investing_career/)
-- [The U.S. national debt is rising by $1 trillion about every 100 days](https://www.reddit.com/r/wallstreetbets/comments/1b51rg4/the_us_national_debt_is_rising_by_1_trillion/)
-- [$24k —&gt; $26](https://www.reddit.com/r/wallstreetbets/comments/1b4zk1u/24k_26/)
-- [AMD calls 📞🚀🌕 let’s go!](https://www.reddit.com/r/wallstreetbets/comments/1b4zhmt/amd_calls_lets_go/)
-- [Did the Market Miss the Big Picture on SNOW?](https://www.reddit.com/r/wallstreetbets/comments/1b4wuwr/did_the_market_miss_the_big_picture_on_snow/)
+- [The market continuing to expect 38 rate cuts in 2024](https://www.reddit.com/r/wallstreetbets/comments/1b5wenk/the_market_continuing_to_expect_38_rate_cuts_in/)
+- [I think this year and beyond, Amazon $AMZN will have record cash flow and record stock price, and here is why](https://www.reddit.com/r/wallstreetbets/comments/1b5vbd4/i_think_this_year_and_beyond_amazon_amzn_will/)
+- [It only took me 4 years to make $200! I love investing!](https://www.reddit.com/r/wallstreetbets/comments/1b5v27t/it_only_took_me_4_years_to_make_200_i_love/)
+- [All in $400k on YINN. Daddy wants his sweet and sour tendies 🍜🥢🥠🍚](https://www.reddit.com/r/wallstreetbets/comments/1b5tnq1/all_in_400k_on_yinn_daddy_wants_his_sweet_and/)
+- [Jerome Powell to Speak Wednesday](https://www.reddit.com/r/wallstreetbets/comments/1b5t5bq/jerome_powell_to_speak_wednesday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
