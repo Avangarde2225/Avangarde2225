@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The market continuing to expect 38 rate cuts in 2024](https://www.reddit.com/r/wallstreetbets/comments/1b5wenk/the_market_continuing_to_expect_38_rate_cuts_in/)
-- [I think this year and beyond, Amazon $AMZN will have record cash flow and record stock price, and here is why](https://www.reddit.com/r/wallstreetbets/comments/1b5vbd4/i_think_this_year_and_beyond_amazon_amzn_will/)
-- [It only took me 4 years to make $200! I love investing!](https://www.reddit.com/r/wallstreetbets/comments/1b5v27t/it_only_took_me_4_years_to_make_200_i_love/)
-- [All in $400k on YINN. Daddy wants his sweet and sour tendies 🍜🥢🥠🍚](https://www.reddit.com/r/wallstreetbets/comments/1b5tnq1/all_in_400k_on_yinn_daddy_wants_his_sweet_and/)
-- [Jerome Powell to Speak Wednesday](https://www.reddit.com/r/wallstreetbets/comments/1b5t5bq/jerome_powell_to_speak_wednesday/)
+- [Hit my 1st 4 figures](https://www.reddit.com/r/wallstreetbets/comments/1b6q9wt/hit_my_1st_4_figures/)
+- [SMCI 100k Put YOLO](https://www.reddit.com/r/wallstreetbets/comments/1b6ox5q/smci_100k_put_yolo/)
+- [RIP to the BTC Bullrun](https://www.reddit.com/r/wallstreetbets/comments/1b6o64x/rip_to_the_btc_bullrun/)
+- [TSM / TSMC - Investing in TSM is investing in America](https://www.reddit.com/r/wallstreetbets/comments/1b6n6pd/tsm_tsmc_investing_in_tsm_is_investing_in_america/)
+- [NVDA Falls Hard in Last 90 Minutes of 03/04/2024 Market.](https://www.reddit.com/r/wallstreetbets/comments/1b6m8u2/nvda_falls_hard_in_last_90_minutes_of_03042024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
