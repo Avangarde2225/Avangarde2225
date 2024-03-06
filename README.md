@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hit my 1st 4 figures](https://www.reddit.com/r/wallstreetbets/comments/1b6q9wt/hit_my_1st_4_figures/)
-- [SMCI 100k Put YOLO](https://www.reddit.com/r/wallstreetbets/comments/1b6ox5q/smci_100k_put_yolo/)
-- [RIP to the BTC Bullrun](https://www.reddit.com/r/wallstreetbets/comments/1b6o64x/rip_to_the_btc_bullrun/)
-- [TSM / TSMC - Investing in TSM is investing in America](https://www.reddit.com/r/wallstreetbets/comments/1b6n6pd/tsm_tsmc_investing_in_tsm_is_investing_in_america/)
-- [NVDA Falls Hard in Last 90 Minutes of 03/04/2024 Market.](https://www.reddit.com/r/wallstreetbets/comments/1b6m8u2/nvda_falls_hard_in_last_90_minutes_of_03042024/)
+- [One of these is not like the others](https://www.reddit.com/r/wallstreetbets/comments/1b7hm1o/one_of_these_is_not_like_the_others/)
+- [I fucking told you guys.](https://www.reddit.com/r/wallstreetbets/comments/1b7hb6a/i_fucking_told_you_guys/)
+- [CRWD Absolutely Beats Earnings](https://www.reddit.com/r/wallstreetbets/comments/1b7gn05/crwd_absolutely_beats_earnings/)
+- [What Are Your Moves Tomorrow, March 06, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b7gfko/what_are_your_moves_tomorrow_march_06_2024/)
+- [Netflix is about to raise prices yet again simply because it can](https://www.reddit.com/r/wallstreetbets/comments/1b7g50w/netflix_is_about_to_raise_prices_yet_again_simply/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
