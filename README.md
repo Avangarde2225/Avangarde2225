@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One of these is not like the others](https://www.reddit.com/r/wallstreetbets/comments/1b7hm1o/one_of_these_is_not_like_the_others/)
-- [I fucking told you guys.](https://www.reddit.com/r/wallstreetbets/comments/1b7hb6a/i_fucking_told_you_guys/)
-- [CRWD Absolutely Beats Earnings](https://www.reddit.com/r/wallstreetbets/comments/1b7gn05/crwd_absolutely_beats_earnings/)
-- [What Are Your Moves Tomorrow, March 06, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b7gfko/what_are_your_moves_tomorrow_march_06_2024/)
-- [Netflix is about to raise prices yet again simply because it can](https://www.reddit.com/r/wallstreetbets/comments/1b7g50w/netflix_is_about_to_raise_prices_yet_again_simply/)
+- [TSM 800% Gains](https://www.reddit.com/r/wallstreetbets/comments/1b8boyt/tsm_800_gains/)
+- [What Are Your Moves Tomorrow, March 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b8b450/what_are_your_moves_tomorrow_march_07_2024/)
+- [Another SPY PUT win &lpar;held and sold for 70k profit&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1b8azb9/another_spy_put_win_held_and_sold_for_70k_profit/)
+- [DELL $405 to $14,700 in 1 Day](https://www.reddit.com/r/wallstreetbets/comments/1b8akq9/dell_405_to_14700_in_1_day/)
+- [Is TSM going to blow up in the upcoming months?](https://www.reddit.com/r/wallstreetbets/comments/1b8adc8/is_tsm_going_to_blow_up_in_the_upcoming_months/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
