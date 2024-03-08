@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TSM 800% Gains](https://www.reddit.com/r/wallstreetbets/comments/1b8boyt/tsm_800_gains/)
-- [What Are Your Moves Tomorrow, March 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b8b450/what_are_your_moves_tomorrow_march_07_2024/)
-- [Another SPY PUT win &lpar;held and sold for 70k profit&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1b8azb9/another_spy_put_win_held_and_sold_for_70k_profit/)
-- [DELL $405 to $14,700 in 1 Day](https://www.reddit.com/r/wallstreetbets/comments/1b8akq9/dell_405_to_14700_in_1_day/)
-- [Is TSM going to blow up in the upcoming months?](https://www.reddit.com/r/wallstreetbets/comments/1b8adc8/is_tsm_going_to_blow_up_in_the_upcoming_months/)
+- [$560K SMCI gains.](https://www.reddit.com/r/wallstreetbets/comments/1b96vrn/560k_smci_gains/)
+- [Who had puts on costco?](https://www.reddit.com/r/wallstreetbets/comments/1b95ujp/who_had_puts_on_costco/)
+- [Who else got screwed with bbai](https://www.reddit.com/r/wallstreetbets/comments/1b95o7r/who_else_got_screwed_with_bbai/)
+- [Most Anticipated Earnings Releases for the week beginning March 11th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b95lgd/most_anticipated_earnings_releases_for_the_week/)
+- [So who else got smoked on MRVL?](https://www.reddit.com/r/wallstreetbets/comments/1b95g0h/so_who_else_got_smoked_on_mrvl/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
