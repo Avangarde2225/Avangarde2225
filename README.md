@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$560K SMCI gains.](https://www.reddit.com/r/wallstreetbets/comments/1b96vrn/560k_smci_gains/)
-- [Who had puts on costco?](https://www.reddit.com/r/wallstreetbets/comments/1b95ujp/who_had_puts_on_costco/)
-- [Who else got screwed with bbai](https://www.reddit.com/r/wallstreetbets/comments/1b95o7r/who_else_got_screwed_with_bbai/)
-- [Most Anticipated Earnings Releases for the week beginning March 11th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b95lgd/most_anticipated_earnings_releases_for_the_week/)
-- [So who else got smoked on MRVL?](https://www.reddit.com/r/wallstreetbets/comments/1b95g0h/so_who_else_got_smoked_on_mrvl/)
+- [NVIDIA is now oversold](https://www.reddit.com/r/wallstreetbets/comments/1ba22rc/nvidia_is_now_oversold/)
+- [What a Day](https://www.reddit.com/r/wallstreetbets/comments/1ba0mb9/what_a_day/)
+- [At 10:00 these nvda puts waz worth $90 🫡](https://www.reddit.com/r/wallstreetbets/comments/1b9zsy8/at_1000_these_nvda_puts_waz_worth_90/)
+- [TIMING THE MARKET &gt; TIME IN THE MARKET &lpar;ended +300k due to greed&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1b9z8zb/timing_the_market_time_in_the_market_ended_300k/)
+- [Weekend Discussion Thread for the Weekend of March 09, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b9z547/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
