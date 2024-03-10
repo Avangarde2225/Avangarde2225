@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVIDIA is now oversold](https://www.reddit.com/r/wallstreetbets/comments/1ba22rc/nvidia_is_now_oversold/)
-- [What a Day](https://www.reddit.com/r/wallstreetbets/comments/1ba0mb9/what_a_day/)
-- [At 10:00 these nvda puts waz worth $90 🫡](https://www.reddit.com/r/wallstreetbets/comments/1b9zsy8/at_1000_these_nvda_puts_waz_worth_90/)
-- [TIMING THE MARKET &gt; TIME IN THE MARKET &lpar;ended +300k due to greed&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1b9z8zb/timing_the_market_time_in_the_market_ended_300k/)
-- [Weekend Discussion Thread for the Weekend of March 09, 2024](https://www.reddit.com/r/wallstreetbets/comments/1b9z547/weekend_discussion_thread_for_the_weekend_of/)
+- [Need the market to get hot this week](https://www.reddit.com/r/wallstreetbets/comments/1baut2c/need_the_market_to_get_hot_this_week/)
+- [Love the DD, but Love the Real WSB more](https://www.reddit.com/r/wallstreetbets/comments/1baukqg/love_the_dd_but_love_the_real_wsb_more/)
+- [Forgot I was on my margin account and took assignment……. of $18,000 AMZN.](https://www.reddit.com/r/wallstreetbets/comments/1bau2e7/forgot_i_was_on_my_margin_account_and_took/)
+- [Bullish on Tesla and putting my money where my mouth is](https://www.reddit.com/r/wallstreetbets/comments/1barlfi/bullish_on_tesla_and_putting_my_money_where_my/)
+- [I made a minor miscalculation.](https://www.reddit.com/r/wallstreetbets/comments/1baptyv/i_made_a_minor_miscalculation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
