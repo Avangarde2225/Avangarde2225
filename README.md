@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Need the market to get hot this week](https://www.reddit.com/r/wallstreetbets/comments/1baut2c/need_the_market_to_get_hot_this_week/)
-- [Love the DD, but Love the Real WSB more](https://www.reddit.com/r/wallstreetbets/comments/1baukqg/love_the_dd_but_love_the_real_wsb_more/)
-- [Forgot I was on my margin account and took assignment……. of $18,000 AMZN.](https://www.reddit.com/r/wallstreetbets/comments/1bau2e7/forgot_i_was_on_my_margin_account_and_took/)
-- [Bullish on Tesla and putting my money where my mouth is](https://www.reddit.com/r/wallstreetbets/comments/1barlfi/bullish_on_tesla_and_putting_my_money_where_my/)
-- [I made a minor miscalculation.](https://www.reddit.com/r/wallstreetbets/comments/1baptyv/i_made_a_minor_miscalculation/)
+- [Why the next 10 year bull market is starting and you don&#39;t want to be left behind. I am back again with knowledge for free.](https://www.reddit.com/r/wallstreetbets/comments/1bboltz/why_the_next_10_year_bull_market_is_starting_and/)
+- [I only started making money on earnings plays when I started to look at website traffic. This week I will buying: $ADBE $S $ONON](https://www.reddit.com/r/wallstreetbets/comments/1bbo5vu/i_only_started_making_money_on_earnings_plays/)
+- [TSM / TSMC - Investing in TSM is investing in America Part 5](https://www.reddit.com/r/wallstreetbets/comments/1bbnvrz/tsm_tsmc_investing_in_tsm_is_investing_in_america/)
+- [It’s happening](https://www.reddit.com/r/wallstreetbets/comments/1bbmqh4/its_happening/)
+- [Someone bought $780 MILLION worth of NVDA call options on Friday](https://www.reddit.com/r/wallstreetbets/comments/1bbmbzr/someone_bought_780_million_worth_of_nvda_call/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
