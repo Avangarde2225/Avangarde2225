@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why the next 10 year bull market is starting and you don&#39;t want to be left behind. I am back again with knowledge for free.](https://www.reddit.com/r/wallstreetbets/comments/1bboltz/why_the_next_10_year_bull_market_is_starting_and/)
-- [I only started making money on earnings plays when I started to look at website traffic. This week I will buying: $ADBE $S $ONON](https://www.reddit.com/r/wallstreetbets/comments/1bbo5vu/i_only_started_making_money_on_earnings_plays/)
-- [TSM / TSMC - Investing in TSM is investing in America Part 5](https://www.reddit.com/r/wallstreetbets/comments/1bbnvrz/tsm_tsmc_investing_in_tsm_is_investing_in_america/)
-- [It’s happening](https://www.reddit.com/r/wallstreetbets/comments/1bbmqh4/its_happening/)
-- [Someone bought $780 MILLION worth of NVDA call options on Friday](https://www.reddit.com/r/wallstreetbets/comments/1bbmbzr/someone_bought_780_million_worth_of_nvda_call/)
+- [Jensen Huang Mic Checks Audience - &quot;Free, Is Not Cheap Enough&quot; - Nvidia Chips Rule the AI Data Center And There&#39;s NOTHING Competitors Can Do](https://www.reddit.com/r/wallstreetbets/comments/1bcg9td/jensen_huang_mic_checks_audience_free_is_not/)
+- [Puts on Boeing](https://www.reddit.com/r/wallstreetbets/comments/1bcfx7g/puts_on_boeing/)
+- [I know its not much but I finally broke even after 3 years](https://www.reddit.com/r/wallstreetbets/comments/1bcfuv9/i_know_its_not_much_but_i_finally_broke_even/)
+- [US Billionaire Drowns in Tesla Model X. Attempts to break into the vehicle were not possible due to the reinforced glass](https://www.reddit.com/r/wallstreetbets/comments/1bcfsv9/us_billionaire_drowns_in_tesla_model_x_attempts/)
+- [Tsm call is giving me the middle finger.](https://www.reddit.com/r/wallstreetbets/comments/1bcctsk/tsm_call_is_giving_me_the_middle_finger/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
