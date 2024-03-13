@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Jensen Huang Mic Checks Audience - &quot;Free, Is Not Cheap Enough&quot; - Nvidia Chips Rule the AI Data Center And There&#39;s NOTHING Competitors Can Do](https://www.reddit.com/r/wallstreetbets/comments/1bcg9td/jensen_huang_mic_checks_audience_free_is_not/)
-- [Puts on Boeing](https://www.reddit.com/r/wallstreetbets/comments/1bcfx7g/puts_on_boeing/)
-- [I know its not much but I finally broke even after 3 years](https://www.reddit.com/r/wallstreetbets/comments/1bcfuv9/i_know_its_not_much_but_i_finally_broke_even/)
-- [US Billionaire Drowns in Tesla Model X. Attempts to break into the vehicle were not possible due to the reinforced glass](https://www.reddit.com/r/wallstreetbets/comments/1bcfsv9/us_billionaire_drowns_in_tesla_model_x_attempts/)
-- [Tsm call is giving me the middle finger.](https://www.reddit.com/r/wallstreetbets/comments/1bcctsk/tsm_call_is_giving_me_the_middle_finger/)
+- [NVIDIA is oversold, pt duex electric bugalooo](https://www.reddit.com/r/wallstreetbets/comments/1bdbr78/nvidia_is_oversold_pt_duex_electric_bugalooo/)
+- [Sigh, $750 start -&gt; 18k -&gt; $0 again on SPX 0DTES](https://www.reddit.com/r/wallstreetbets/comments/1bd9jqd/sigh_750_start_18k_0_again_on_spx_0dtes/)
+- [Pentagon Scraps Plan to Spend $2.5 Billion on Intel Grant](https://www.reddit.com/r/wallstreetbets/comments/1bd8a3b/pentagon_scraps_plan_to_spend_25_billion_on_intel/)
+- [it could’ve been worse](https://www.reddit.com/r/wallstreetbets/comments/1bd6zsx/it_couldve_been_worse/)
+- [What Are Your Moves Tomorrow, March 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1bd6x1k/what_are_your_moves_tomorrow_march_13_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
