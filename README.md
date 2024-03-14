@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVIDIA is oversold, pt duex electric bugalooo](https://www.reddit.com/r/wallstreetbets/comments/1bdbr78/nvidia_is_oversold_pt_duex_electric_bugalooo/)
-- [Sigh, $750 start -&gt; 18k -&gt; $0 again on SPX 0DTES](https://www.reddit.com/r/wallstreetbets/comments/1bd9jqd/sigh_750_start_18k_0_again_on_spx_0dtes/)
-- [Pentagon Scraps Plan to Spend $2.5 Billion on Intel Grant](https://www.reddit.com/r/wallstreetbets/comments/1bd8a3b/pentagon_scraps_plan_to_spend_25_billion_on_intel/)
-- [it could’ve been worse](https://www.reddit.com/r/wallstreetbets/comments/1bd6zsx/it_couldve_been_worse/)
-- [What Are Your Moves Tomorrow, March 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1bd6x1k/what_are_your_moves_tomorrow_march_13_2024/)
+- [I’ve been winning the battles, but the market is still winning the war.](https://www.reddit.com/r/wallstreetbets/comments/1be4hyc/ive_been_winning_the_battles_but_the_market_is/)
+- [$MSTR on that grind!](https://www.reddit.com/r/wallstreetbets/comments/1be2ofd/mstr_on_that_grind/)
+- [$HOOD insane growth](https://www.reddit.com/r/wallstreetbets/comments/1be2jw4/hood_insane_growth/)
+- [What is going on with $MARA ?! Short squeeze opportunity?](https://www.reddit.com/r/wallstreetbets/comments/1be2flu/what_is_going_on_with_mara_short_squeeze/)
+- [Thank you for the laughs WSB. It&#39;s nice to see the same type of posts after 10 years. The sub might never learn, but it will never change :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1be27j0/thank_you_for_the_laughs_wsb_its_nice_to_see_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
