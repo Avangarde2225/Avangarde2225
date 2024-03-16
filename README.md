@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If you ain&#39;t buying Boeing now you&#39;re immune to making money](https://www.reddit.com/r/wallstreetbets/comments/1bez3du/if_you_aint_buying_boeing_now_youre_immune_to/)
-- [TSM 🚀🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1bexdmu/tsm/)
-- [Biden to announce Intel chips grant in Arizona next week, sources say](https://www.reddit.com/r/wallstreetbets/comments/1bewmnf/biden_to_announce_intel_chips_grant_in_arizona/)
-- [Tesla Worst Performing S&amp;P 500 Stock Year-To-Date: Analyst Warns More Trouble Ahead With &#39;Slower EV Demand&#39; - Tesla &lpar;NASDAQ:TSLA&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1bew5mo/tesla_worst_performing_sp_500_stock_yeartodate/)
-- [If I lose all this, Im done with options.](https://www.reddit.com/r/wallstreetbets/comments/1bew0ng/if_i_lose_all_this_im_done_with_options/)
+- [United Airlines Boeing 737 lands in Oregon after losing panel mid-air.](https://www.reddit.com/r/wallstreetbets/comments/1bfs2zh/united_airlines_boeing_737_lands_in_oregon_after/)
+- [FOMC will be a bullish event](https://www.reddit.com/r/wallstreetbets/comments/1bfqot8/fomc_will_be_a_bullish_event/)
+- [As always, FYC and FYP](https://www.reddit.com/r/wallstreetbets/comments/1bfpa86/as_always_fyc_and_fyp/)
+- [First week day trading](https://www.reddit.com/r/wallstreetbets/comments/1bfovvm/first_week_day_trading/)
+- [Cat shaped = bullish on JPM](https://www.reddit.com/r/wallstreetbets/comments/1bfojti/cat_shaped_bullish_on_jpm/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
