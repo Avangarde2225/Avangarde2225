@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [United Airlines Boeing 737 lands in Oregon after losing panel mid-air.](https://www.reddit.com/r/wallstreetbets/comments/1bfs2zh/united_airlines_boeing_737_lands_in_oregon_after/)
-- [FOMC will be a bullish event](https://www.reddit.com/r/wallstreetbets/comments/1bfqot8/fomc_will_be_a_bullish_event/)
-- [As always, FYC and FYP](https://www.reddit.com/r/wallstreetbets/comments/1bfpa86/as_always_fyc_and_fyp/)
-- [First week day trading](https://www.reddit.com/r/wallstreetbets/comments/1bfovvm/first_week_day_trading/)
-- [Cat shaped = bullish on JPM](https://www.reddit.com/r/wallstreetbets/comments/1bfojti/cat_shaped_bullish_on_jpm/)
+- [In less than a week my 1000% gains were lost](https://www.reddit.com/r/wallstreetbets/comments/1bghr3v/in_less_than_a_week_my_1000_gains_were_lost/)
+- [United Airlines close to leasing Airbus jets, Bloomberg News reports](https://www.reddit.com/r/wallstreetbets/comments/1bghqc3/united_airlines_close_to_leasing_airbus_jets/)
+- [Will dump 4K into this and get my account to green by the end of this week 😤](https://www.reddit.com/r/wallstreetbets/comments/1bghi43/will_dump_4k_into_this_and_get_my_account_to/)
+- [Prepare your anuš, this Wednesday&#39;s afternoon we ride the elevator down.](https://www.reddit.com/r/wallstreetbets/comments/1bghg1x/prepare_your_anuš_this_wednesdays_afternoon_we/)
+- [TSM FTW](https://www.reddit.com/r/wallstreetbets/comments/1bgh2nl/tsm_ftw/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
