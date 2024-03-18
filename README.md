@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [In less than a week my 1000% gains were lost](https://www.reddit.com/r/wallstreetbets/comments/1bghr3v/in_less_than_a_week_my_1000_gains_were_lost/)
-- [United Airlines close to leasing Airbus jets, Bloomberg News reports](https://www.reddit.com/r/wallstreetbets/comments/1bghqc3/united_airlines_close_to_leasing_airbus_jets/)
-- [Will dump 4K into this and get my account to green by the end of this week 😤](https://www.reddit.com/r/wallstreetbets/comments/1bghi43/will_dump_4k_into_this_and_get_my_account_to/)
-- [Prepare your anuš, this Wednesday&#39;s afternoon we ride the elevator down.](https://www.reddit.com/r/wallstreetbets/comments/1bghg1x/prepare_your_anuš_this_wednesdays_afternoon_we/)
-- [TSM FTW](https://www.reddit.com/r/wallstreetbets/comments/1bgh2nl/tsm_ftw/)
+- [Anything goes wrong I will post here first, and then text my wife](https://www.reddit.com/r/wallstreetbets/comments/1bhc0h8/anything_goes_wrong_i_will_post_here_first_and/)
+- [So you mean to tell me I have a week for it to go up 1% and it&#39;s a 5 bagger?](https://www.reddit.com/r/wallstreetbets/comments/1bhbymy/so_you_mean_to_tell_me_i_have_a_week_for_it_to_go/)
+- [MSTR&#39;s Week Ahead - Analysis for Regards](https://www.reddit.com/r/wallstreetbets/comments/1bhb2ma/mstrs_week_ahead_analysis_for_regards/)
+- [Forbes: Nvidia, Google And Microsoft Are Betting Billions On Biotech’s AI Future](https://www.reddit.com/r/wallstreetbets/comments/1bh9eol/forbes_nvidia_google_and_microsoft_are_betting/)
+- [TSM Bull Case](https://www.reddit.com/r/wallstreetbets/comments/1bh7ork/tsm_bull_case/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
