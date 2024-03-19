@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anything goes wrong I will post here first, and then text my wife](https://www.reddit.com/r/wallstreetbets/comments/1bhc0h8/anything_goes_wrong_i_will_post_here_first_and/)
-- [So you mean to tell me I have a week for it to go up 1% and it&#39;s a 5 bagger?](https://www.reddit.com/r/wallstreetbets/comments/1bhbymy/so_you_mean_to_tell_me_i_have_a_week_for_it_to_go/)
-- [MSTR&#39;s Week Ahead - Analysis for Regards](https://www.reddit.com/r/wallstreetbets/comments/1bhb2ma/mstrs_week_ahead_analysis_for_regards/)
-- [Forbes: Nvidia, Google And Microsoft Are Betting Billions On Biotech’s AI Future](https://www.reddit.com/r/wallstreetbets/comments/1bh9eol/forbes_nvidia_google_and_microsoft_are_betting/)
-- [TSM Bull Case](https://www.reddit.com/r/wallstreetbets/comments/1bh7ork/tsm_bull_case/)
+- [Breaking news from Australia !](https://www.reddit.com/r/wallstreetbets/comments/1bi5d5v/breaking_news_from_australia/)
+- [TLDR for those of you that didn’t watch NVDA livestream today](https://www.reddit.com/r/wallstreetbets/comments/1bi4me4/tldr_for_those_of_you_that_didnt_watch_nvda/)
+- [Nvidia&#39;s generative AI tool delivers a radical 60X performance boost for chipmakers](https://www.reddit.com/r/wallstreetbets/comments/1bi1eqg/nvidias_generative_ai_tool_delivers_a_radical_60x/)
+- [Nvidia Unveils Successor to Its All-Conquering AI Processor](https://www.reddit.com/r/wallstreetbets/comments/1bi1ecc/nvidia_unveils_successor_to_its_allconquering_ai/)
+- [Lady Luck](https://www.reddit.com/r/wallstreetbets/comments/1bi0wmh/lady_luck/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
