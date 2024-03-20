@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Breaking news from Australia !](https://www.reddit.com/r/wallstreetbets/comments/1bi5d5v/breaking_news_from_australia/)
-- [TLDR for those of you that didn’t watch NVDA livestream today](https://www.reddit.com/r/wallstreetbets/comments/1bi4me4/tldr_for_those_of_you_that_didnt_watch_nvda/)
-- [Nvidia&#39;s generative AI tool delivers a radical 60X performance boost for chipmakers](https://www.reddit.com/r/wallstreetbets/comments/1bi1eqg/nvidias_generative_ai_tool_delivers_a_radical_60x/)
-- [Nvidia Unveils Successor to Its All-Conquering AI Processor](https://www.reddit.com/r/wallstreetbets/comments/1bi1ecc/nvidia_unveils_successor_to_its_allconquering_ai/)
-- [Lady Luck](https://www.reddit.com/r/wallstreetbets/comments/1bi0wmh/lady_luck/)
+- [Chipotle’s board of directors approves 50-for-1 stock split](https://www.reddit.com/r/wallstreetbets/comments/1bixmj5/chipotles_board_of_directors_approves_50for1/)
+- [lol CNBC](https://www.reddit.com/r/wallstreetbets/comments/1bius5d/lol_cnbc/)
+- [YOLO Crowd Bets Nvidia Could More Than Double in Value by Friday](https://www.reddit.com/r/wallstreetbets/comments/1biuh44/yolo_crowd_bets_nvidia_could_more_than_double_in/)
+- [SPY YOLO](https://www.reddit.com/r/wallstreetbets/comments/1biu5hj/spy_yolo/)
+- [What Are Your Moves Tomorrow, March 20, 2024](https://www.reddit.com/r/wallstreetbets/comments/1bitoc0/what_are_your_moves_tomorrow_march_20_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
