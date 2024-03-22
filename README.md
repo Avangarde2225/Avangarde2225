@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Daddy Powell didn’t use any Lube](https://www.reddit.com/r/wallstreetbets/comments/1bjqvwk/daddy_powell_didnt_use_any_lube/)
-- [Why Don’t Americans Believe Inflation Is Coming Down? Because &lpar;Most&rpar; Prices Aren’t | Center for Financial Economics](https://www.reddit.com/r/wallstreetbets/comments/1bjq9hf/why_dont_americans_believe_inflation_is_coming/)
-- [$RDDT YOLO 🚀🚀🚀 WE BAGHOLDING OR MAKING SOME TENDIES 🍗🍗🍗](https://www.reddit.com/r/wallstreetbets/comments/1bjq7fa/rddt_yolo_we_bagholding_or_making_some_tendies/)
-- [RDDT officially prices at $34.00 a share](https://www.reddit.com/r/wallstreetbets/comments/1bjq6oc/rddt_officially_prices_at_3400_a_share/)
-- [Hold onto your butts...](https://www.reddit.com/r/wallstreetbets/comments/1bjq0av/hold_onto_your_butts/)
+- [RDDT $72k all-in](https://www.reddit.com/r/wallstreetbets/comments/1bkkhu4/rddt_72k_allin/)
+- [When someone offers you IPO shares with no lockup, you take the IPO shares with no lockup.](https://www.reddit.com/r/wallstreetbets/comments/1bkidr8/when_someone_offers_you_ipo_shares_with_no_lockup/)
+- [I told you Reddit karma would pay off.](https://www.reddit.com/r/wallstreetbets/comments/1bkhid0/i_told_you_reddit_karma_would_pay_off/)
+- [Took a $35k loss and couldn&#39;t be happier](https://www.reddit.com/r/wallstreetbets/comments/1bkh2pj/took_a_35k_loss_and_couldnt_be_happier/)
+- [Reddit CEO: &quot;I love wallstreetbets, I&#39;m a user, I&#39;ve seen their comments over the last couple of weeks so I just send them My REGARDS&quot;](https://www.reddit.com/r/wallstreetbets/comments/1bkh025/reddit_ceo_i_love_wallstreetbets_im_a_user_ive/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
