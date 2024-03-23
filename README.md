@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RDDT $72k all-in](https://www.reddit.com/r/wallstreetbets/comments/1bkkhu4/rddt_72k_allin/)
-- [When someone offers you IPO shares with no lockup, you take the IPO shares with no lockup.](https://www.reddit.com/r/wallstreetbets/comments/1bkidr8/when_someone_offers_you_ipo_shares_with_no_lockup/)
-- [I told you Reddit karma would pay off.](https://www.reddit.com/r/wallstreetbets/comments/1bkhid0/i_told_you_reddit_karma_would_pay_off/)
-- [Took a $35k loss and couldn&#39;t be happier](https://www.reddit.com/r/wallstreetbets/comments/1bkh2pj/took_a_35k_loss_and_couldnt_be_happier/)
-- [Reddit CEO: &quot;I love wallstreetbets, I&#39;m a user, I&#39;ve seen their comments over the last couple of weeks so I just send them My REGARDS&quot;](https://www.reddit.com/r/wallstreetbets/comments/1bkh025/reddit_ceo_i_love_wallstreetbets_im_a_user_ive/)
+- [Wall Street sees more upside in Nvidia stock after GTC event](https://www.reddit.com/r/wallstreetbets/comments/1bl9apz/wall_street_sees_more_upside_in_nvidia_stock/)
+- [NVDA on track to hit $1000 next week](https://www.reddit.com/r/wallstreetbets/comments/1bl8w04/nvda_on_track_to_hit_1000_next_week/)
+- [Weekend Discussion Thread for March 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/1bl8kj4/weekend_discussion_thread_for_march_22_2024/)
+- [Tax Free Losses](https://www.reddit.com/r/wallstreetbets/comments/1bl6exk/tax_free_losses/)
+- [NVDA calls 1.5k to 6k](https://www.reddit.com/r/wallstreetbets/comments/1bl5ym8/nvda_calls_15k_to_6k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
