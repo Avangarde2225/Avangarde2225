@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wall Street sees more upside in Nvidia stock after GTC event](https://www.reddit.com/r/wallstreetbets/comments/1bl9apz/wall_street_sees_more_upside_in_nvidia_stock/)
-- [NVDA on track to hit $1000 next week](https://www.reddit.com/r/wallstreetbets/comments/1bl8w04/nvda_on_track_to_hit_1000_next_week/)
-- [Weekend Discussion Thread for March 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/1bl8kj4/weekend_discussion_thread_for_march_22_2024/)
-- [Tax Free Losses](https://www.reddit.com/r/wallstreetbets/comments/1bl6exk/tax_free_losses/)
-- [NVDA calls 1.5k to 6k](https://www.reddit.com/r/wallstreetbets/comments/1bl5ym8/nvda_calls_15k_to_6k/)
+- [All aboard the Winnebago](https://www.reddit.com/r/wallstreetbets/comments/1bm6dup/all_aboard_the_winnebago/)
+- [Going all in Monday](https://www.reddit.com/r/wallstreetbets/comments/1bm60uq/going_all_in_monday/)
+- [RDDT options all things set](https://www.reddit.com/r/wallstreetbets/comments/1bm5zo6/rddt_options_all_things_set/)
+- [Nvidia announces AI-powered health care &#39;agents&#39; that outperform nurses — and cost $9 an hour](https://www.reddit.com/r/wallstreetbets/comments/1bm5syp/nvidia_announces_aipowered_health_care_agents/)
+- [$DWAC to the gutter](https://www.reddit.com/r/wallstreetbets/comments/1bm5iml/dwac_to_the_gutter/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
