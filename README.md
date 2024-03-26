@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WSB philosophy](https://www.reddit.com/r/wallstreetbets/comments/1bmyfml/wsb_philosophy/)
-- [NVDA ain’t shit](https://www.reddit.com/r/wallstreetbets/comments/1bmyfld/nvda_aint_shit/)
-- [Is this as dangerous as it sounds? This gives me 2008 vibes](https://www.reddit.com/r/wallstreetbets/comments/1bmycez/is_this_as_dangerous_as_it_sounds_this_gives_me/)
-- [ADM goes up](https://www.reddit.com/r/wallstreetbets/comments/1bmya5k/adm_goes_up/)
-- [I may not have many brain wrinkles, but I see a pattern here](https://www.reddit.com/r/wallstreetbets/comments/1bmwrc4/i_may_not_have_many_brain_wrinkles_but_i_see_a/)
+- [RDDT hit $69 LFGGG](https://www.reddit.com/r/wallstreetbets/comments/1bnr07g/rddt_hit_69_lfggg/)
+- [I’m up 30% today on RDDT. Thanks Reddit!](https://www.reddit.com/r/wallstreetbets/comments/1bnpqop/im_up_30_today_on_rddt_thanks_reddit/)
+- [Citi loan Update: +$12k.](https://www.reddit.com/r/wallstreetbets/comments/1bnpmy0/citi_loan_update_12k/)
+- [Monday gains](https://www.reddit.com/r/wallstreetbets/comments/1bno4in/monday_gains/)
+- [Yikes!!! There and back again! 2k-80k in two weeks.](https://www.reddit.com/r/wallstreetbets/comments/1bno1s9/yikes_there_and_back_again_2k80k_in_two_weeks/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
