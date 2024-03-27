@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RDDT hit $69 LFGGG](https://www.reddit.com/r/wallstreetbets/comments/1bnr07g/rddt_hit_69_lfggg/)
-- [I’m up 30% today on RDDT. Thanks Reddit!](https://www.reddit.com/r/wallstreetbets/comments/1bnpqop/im_up_30_today_on_rddt_thanks_reddit/)
-- [Citi loan Update: +$12k.](https://www.reddit.com/r/wallstreetbets/comments/1bnpmy0/citi_loan_update_12k/)
-- [Monday gains](https://www.reddit.com/r/wallstreetbets/comments/1bno4in/monday_gains/)
-- [Yikes!!! There and back again! 2k-80k in two weeks.](https://www.reddit.com/r/wallstreetbets/comments/1bno1s9/yikes_there_and_back_again_2k80k_in_two_weeks/)
+- [Fuck you guys](https://www.reddit.com/r/wallstreetbets/comments/1bonbfu/fuck_you_guys/)
+- [You truly are a regard if you invest in DJT](https://www.reddit.com/r/wallstreetbets/comments/1bokhxa/you_truly_are_a_regard_if_you_invest_in_djt/)
+- [The regards at the Fed posted their loss porn](https://www.reddit.com/r/wallstreetbets/comments/1boj7jg/the_regards_at_the_fed_posted_their_loss_porn/)
+- [QQQ Power Hour 1,000% 0dte gainer... thanks to squeeze, triangle, and crayons.](https://www.reddit.com/r/wallstreetbets/comments/1boi0fh/qqq_power_hour_1000_0dte_gainer_thanks_to_squeeze/)
+- [Earnings for THAT stock](https://www.reddit.com/r/wallstreetbets/comments/1bohwbl/earnings_for_that_stock/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
