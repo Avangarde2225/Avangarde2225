@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fuck you guys](https://www.reddit.com/r/wallstreetbets/comments/1bonbfu/fuck_you_guys/)
-- [You truly are a regard if you invest in DJT](https://www.reddit.com/r/wallstreetbets/comments/1bokhxa/you_truly_are_a_regard_if_you_invest_in_djt/)
-- [The regards at the Fed posted their loss porn](https://www.reddit.com/r/wallstreetbets/comments/1boj7jg/the_regards_at_the_fed_posted_their_loss_porn/)
-- [QQQ Power Hour 1,000% 0dte gainer... thanks to squeeze, triangle, and crayons.](https://www.reddit.com/r/wallstreetbets/comments/1boi0fh/qqq_power_hour_1000_0dte_gainer_thanks_to_squeeze/)
-- [Earnings for THAT stock](https://www.reddit.com/r/wallstreetbets/comments/1bohwbl/earnings_for_that_stock/)
+- [u/spez is King Regard , he sold 500k shares of RDDT for $32.30 per share](https://www.reddit.com/r/wallstreetbets/comments/1bpfymg/uspez_is_king_regard_he_sold_500k_shares_of_rddt/)
+- [Drill baby drill! Possible 25-bagger calls.](https://www.reddit.com/r/wallstreetbets/comments/1bpf4fv/drill_baby_drill_possible_25bagger_calls/)
+- [JPMorgan says stocks are so crowded they may crack at anytime.](https://www.reddit.com/r/wallstreetbets/comments/1bpd440/jpmorgan_says_stocks_are_so_crowded_they_may/)
+- [that was sick yo](https://www.reddit.com/r/wallstreetbets/comments/1bpc6lf/that_was_sick_yo/)
+- [Citi loan update: 10k loss net &lpar;20k since yesterday&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1bpbo3z/citi_loan_update_10k_loss_net_20k_since_yesterday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
