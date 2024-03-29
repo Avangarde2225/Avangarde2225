@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [u/spez is King Regard , he sold 500k shares of RDDT for $32.30 per share](https://www.reddit.com/r/wallstreetbets/comments/1bpfymg/uspez_is_king_regard_he_sold_500k_shares_of_rddt/)
-- [Drill baby drill! Possible 25-bagger calls.](https://www.reddit.com/r/wallstreetbets/comments/1bpf4fv/drill_baby_drill_possible_25bagger_calls/)
-- [JPMorgan says stocks are so crowded they may crack at anytime.](https://www.reddit.com/r/wallstreetbets/comments/1bpd440/jpmorgan_says_stocks_are_so_crowded_they_may/)
-- [that was sick yo](https://www.reddit.com/r/wallstreetbets/comments/1bpc6lf/that_was_sick_yo/)
-- [Citi loan update: 10k loss net &lpar;20k since yesterday&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1bpbo3z/citi_loan_update_10k_loss_net_20k_since_yesterday/)
+- [Diamond Hands vs. SEC&#39;s $25k Day Trading Rule Cage Match](https://www.reddit.com/r/wallstreetbets/comments/1bq9bfm/diamond_hands_vs_secs_25k_day_trading_rule_cage/)
+- [Travel Stocks Are About To Get Fucked](https://www.reddit.com/r/wallstreetbets/comments/1bq8gcw/travel_stocks_are_about_to_get_fucked/)
+- [me ever since i found out about wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/1bq6wmp/me_ever_since_i_found_out_about_wallstreetbets/)
+- [Finally out of day trade restrictions.](https://www.reddit.com/r/wallstreetbets/comments/1bq6f9h/finally_out_of_day_trade_restrictions/)
+- [Trading Options In FHSA. Hit High of $18.7k. Wanted $20k. Lost All My Money. Down $50k All Time.](https://www.reddit.com/r/wallstreetbets/comments/1bq5sm8/trading_options_in_fhsa_hit_high_of_187k_wanted/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
