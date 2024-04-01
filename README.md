@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I found WSB Headquarters](https://www.reddit.com/r/wallstreetbets/comments/1brvb7u/i_found_wsb_headquarters/)
-- [TSM Earnings Play](https://www.reddit.com/r/wallstreetbets/comments/1brv5tx/tsm_earnings_play/)
-- [Max that Margin](https://www.reddit.com/r/wallstreetbets/comments/1brtmk4/max_that_margin/)
-- [Short NIO - $9 billion of market cap to be lost](https://www.reddit.com/r/wallstreetbets/comments/1brsa6j/short_nio_9_billion_of_market_cap_to_be_lost/)
-- [Remember This Day? 11/10/22](https://www.reddit.com/r/wallstreetbets/comments/1brqmei/remember_this_day_111022/)
+- [DJT, Stock Down](https://www.reddit.com/r/wallstreetbets/comments/1bspoee/djt_stock_down/)
+- [GOOG ⬆️](https://www.reddit.com/r/wallstreetbets/comments/1bsoaui/goog/)
+- [Ten years of deduction rollovers](https://www.reddit.com/r/wallstreetbets/comments/1bsntzx/ten_years_of_deduction_rollovers/)
+- [nCino NCNO rising after great earnings. Cheap options](https://www.reddit.com/r/wallstreetbets/comments/1bslnhx/ncino_ncno_rising_after_great_earnings_cheap/)
+- [TKO - Owning UFC and WWE could net you a FCF yield of 7-9%](https://www.reddit.com/r/wallstreetbets/comments/1bslcft/tko_owning_ufc_and_wwe_could_net_you_a_fcf_yield/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
