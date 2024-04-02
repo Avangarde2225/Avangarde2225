@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DJT, Stock Down](https://www.reddit.com/r/wallstreetbets/comments/1bspoee/djt_stock_down/)
-- [GOOG ⬆️](https://www.reddit.com/r/wallstreetbets/comments/1bsoaui/goog/)
-- [Ten years of deduction rollovers](https://www.reddit.com/r/wallstreetbets/comments/1bsntzx/ten_years_of_deduction_rollovers/)
-- [nCino NCNO rising after great earnings. Cheap options](https://www.reddit.com/r/wallstreetbets/comments/1bslnhx/ncino_ncno_rising_after_great_earnings_cheap/)
-- [TKO - Owning UFC and WWE could net you a FCF yield of 7-9%](https://www.reddit.com/r/wallstreetbets/comments/1bslcft/tko_owning_ufc_and_wwe_could_net_you_a_fcf_yield/)
+- [SBF also said his defense team plans to appeal later this year based on certain trial testimony](https://www.reddit.com/r/wallstreetbets/comments/1btiemt/sbf_also_said_his_defense_team_plans_to_appeal/)
+- [Good job regards!](https://www.reddit.com/r/wallstreetbets/comments/1bth8hv/good_job_regards/)
+- [Cybersecurity 🚀 Rubrik &lpar;RBRK&rpar; Files for IPO! &lpar;Backed by Microsoft $$$&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1btgdg6/cybersecurity_rubrik_rbrk_files_for_ipo_backed_by/)
+- [All your $TSM calls will be green by EOW](https://www.reddit.com/r/wallstreetbets/comments/1btg51b/all_your_tsm_calls_will_be_green_by_eow/)
+- [Get rekt regards](https://www.reddit.com/r/wallstreetbets/comments/1btevpm/get_rekt_regards/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
