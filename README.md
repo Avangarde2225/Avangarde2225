@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SBF also said his defense team plans to appeal later this year based on certain trial testimony](https://www.reddit.com/r/wallstreetbets/comments/1btiemt/sbf_also_said_his_defense_team_plans_to_appeal/)
-- [Good job regards!](https://www.reddit.com/r/wallstreetbets/comments/1bth8hv/good_job_regards/)
-- [Cybersecurity 🚀 Rubrik &lpar;RBRK&rpar; Files for IPO! &lpar;Backed by Microsoft $$$&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1btgdg6/cybersecurity_rubrik_rbrk_files_for_ipo_backed_by/)
-- [All your $TSM calls will be green by EOW](https://www.reddit.com/r/wallstreetbets/comments/1btg51b/all_your_tsm_calls_will_be_green_by_eow/)
-- [Get rekt regards](https://www.reddit.com/r/wallstreetbets/comments/1btevpm/get_rekt_regards/)
+- [Suns Owner Under Heavy Fire After Leaked Voicemail](https://www.reddit.com/r/wallstreetbets/comments/1bucuqj/suns_owner_under_heavy_fire_after_leaked_voicemail/)
+- [The GUH of GUHs - Balls deep in the Mouse $DIS](https://www.reddit.com/r/wallstreetbets/comments/1bubxx3/the_guh_of_guhs_balls_deep_in_the_mouse_dis/)
+- [It feels like it happened only last week](https://www.reddit.com/r/wallstreetbets/comments/1bubccv/it_feels_like_it_happened_only_last_week/)
+- [One single META LEAP bought near the absolute bottom in late 2022. Best single option I ever bought, sold today. Helped keep my spirits up.](https://www.reddit.com/r/wallstreetbets/comments/1buareb/one_single_meta_leap_bought_near_the_absolute/)
+- [30x DJT 45P expiring Friday. Awaiting Biden’s executive order to save me.](https://www.reddit.com/r/wallstreetbets/comments/1bua9yw/30x_djt_45p_expiring_friday_awaiting_bidens/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
