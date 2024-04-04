@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Suns Owner Under Heavy Fire After Leaked Voicemail](https://www.reddit.com/r/wallstreetbets/comments/1bucuqj/suns_owner_under_heavy_fire_after_leaked_voicemail/)
-- [The GUH of GUHs - Balls deep in the Mouse $DIS](https://www.reddit.com/r/wallstreetbets/comments/1bubxx3/the_guh_of_guhs_balls_deep_in_the_mouse_dis/)
-- [It feels like it happened only last week](https://www.reddit.com/r/wallstreetbets/comments/1bubccv/it_feels_like_it_happened_only_last_week/)
-- [One single META LEAP bought near the absolute bottom in late 2022. Best single option I ever bought, sold today. Helped keep my spirits up.](https://www.reddit.com/r/wallstreetbets/comments/1buareb/one_single_meta_leap_bought_near_the_absolute/)
-- [30x DJT 45P expiring Friday. Awaiting Biden’s executive order to save me.](https://www.reddit.com/r/wallstreetbets/comments/1bua9yw/30x_djt_45p_expiring_friday_awaiting_bidens/)
+- [Tilroy Jenkins YOLO420NOSCOPE](https://www.reddit.com/r/wallstreetbets/comments/1bv5exp/tilroy_jenkins_yolo420noscope/)
+- [Trader bets over $20 million Nvidia stock will rise 30% by next earnings report By Investing.com](https://www.reddit.com/r/wallstreetbets/comments/1bv58mt/trader_bets_over_20_million_nvidia_stock_will/)
+- [Apple reportedly exploring personal home robots](https://www.reddit.com/r/wallstreetbets/comments/1bv4j3o/apple_reportedly_exploring_personal_home_robots/)
+- [Disney You Idiots - Now You’re Definitely Fucked](https://www.reddit.com/r/wallstreetbets/comments/1bv35y9/disney_you_idiots_now_youre_definitely_fucked/)
+- [What Are Your Moves Tomorrow, April 4, 2024](https://www.reddit.com/r/wallstreetbets/comments/1bv2l9f/what_are_your_moves_tomorrow_april_4_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
