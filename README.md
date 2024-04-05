@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tilroy Jenkins YOLO420NOSCOPE](https://www.reddit.com/r/wallstreetbets/comments/1bv5exp/tilroy_jenkins_yolo420noscope/)
-- [Trader bets over $20 million Nvidia stock will rise 30% by next earnings report By Investing.com](https://www.reddit.com/r/wallstreetbets/comments/1bv58mt/trader_bets_over_20_million_nvidia_stock_will/)
-- [Apple reportedly exploring personal home robots](https://www.reddit.com/r/wallstreetbets/comments/1bv4j3o/apple_reportedly_exploring_personal_home_robots/)
-- [Disney You Idiots - Now You’re Definitely Fucked](https://www.reddit.com/r/wallstreetbets/comments/1bv35y9/disney_you_idiots_now_youre_definitely_fucked/)
-- [What Are Your Moves Tomorrow, April 4, 2024](https://www.reddit.com/r/wallstreetbets/comments/1bv2l9f/what_are_your_moves_tomorrow_april_4_2024/)
+- [There are 2 types of people in this world.](https://www.reddit.com/r/wallstreetbets/comments/1bw35su/there_are_2_types_of_people_in_this_world/)
+- [After missing out on 600$ to 150k today &lpar;see last post&rpar; - here is my YOLO for tomorrow with my last 18k](https://www.reddit.com/r/wallstreetbets/comments/1bw12ww/after_missing_out_on_600_to_150k_today_see_last/)
+- [44k loss on SPY Calls smh](https://www.reddit.com/r/wallstreetbets/comments/1bvzfmj/44k_loss_on_spy_calls_smh/)
+- [Paperhanded SPY Puts for $60, leaving over $10,000 on the table…](https://www.reddit.com/r/wallstreetbets/comments/1bvynbr/paperhanded_spy_puts_for_60_leaving_over_10000_on/)
+- [The big bad bear turns $200 into 10k this week](https://www.reddit.com/r/wallstreetbets/comments/1bvy6vn/the_big_bad_bear_turns_200_into_10k_this_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
