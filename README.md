@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [There are 2 types of people in this world.](https://www.reddit.com/r/wallstreetbets/comments/1bw35su/there_are_2_types_of_people_in_this_world/)
-- [After missing out on 600$ to 150k today &lpar;see last post&rpar; - here is my YOLO for tomorrow with my last 18k](https://www.reddit.com/r/wallstreetbets/comments/1bw12ww/after_missing_out_on_600_to_150k_today_see_last/)
-- [44k loss on SPY Calls smh](https://www.reddit.com/r/wallstreetbets/comments/1bvzfmj/44k_loss_on_spy_calls_smh/)
-- [Paperhanded SPY Puts for $60, leaving over $10,000 on the table…](https://www.reddit.com/r/wallstreetbets/comments/1bvynbr/paperhanded_spy_puts_for_60_leaving_over_10000_on/)
-- [The big bad bear turns $200 into 10k this week](https://www.reddit.com/r/wallstreetbets/comments/1bvy6vn/the_big_bad_bear_turns_200_into_10k_this_week/)
+- [CEO got $32.8 million last year to ruin Boeing. I would’ve done it for $10 million](https://www.reddit.com/r/wallstreetbets/comments/1bwux81/ceo_got_328_million_last_year_to_ruin_boeing_i/)
+- [YOLO update - Tesla was only stock that was down today. Lost basically everything… then to rub salt in the wound TSLA shot up AH.](https://www.reddit.com/r/wallstreetbets/comments/1bwupun/yolo_update_tesla_was_only_stock_that_was_down/)
+- [Elon Musk says Tesla will unveil its robotaxi on Aug. 8; shares pop](https://www.reddit.com/r/wallstreetbets/comments/1bwue3i/elon_musk_says_tesla_will_unveil_its_robotaxi_on/)
+- [29k SPY puts YOLO](https://www.reddit.com/r/wallstreetbets/comments/1bwt4i2/29k_spy_puts_yolo/)
+- [Elon says ROBOTAXI will be unveiled August 8th](https://www.reddit.com/r/wallstreetbets/comments/1bwt2ux/elon_says_robotaxi_will_be_unveiled_august_8th/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
