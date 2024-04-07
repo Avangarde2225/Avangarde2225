@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CEO got $32.8 million last year to ruin Boeing. I would’ve done it for $10 million](https://www.reddit.com/r/wallstreetbets/comments/1bwux81/ceo_got_328_million_last_year_to_ruin_boeing_i/)
-- [YOLO update - Tesla was only stock that was down today. Lost basically everything… then to rub salt in the wound TSLA shot up AH.](https://www.reddit.com/r/wallstreetbets/comments/1bwupun/yolo_update_tesla_was_only_stock_that_was_down/)
-- [Elon Musk says Tesla will unveil its robotaxi on Aug. 8; shares pop](https://www.reddit.com/r/wallstreetbets/comments/1bwue3i/elon_musk_says_tesla_will_unveil_its_robotaxi_on/)
-- [29k SPY puts YOLO](https://www.reddit.com/r/wallstreetbets/comments/1bwt4i2/29k_spy_puts_yolo/)
-- [Elon says ROBOTAXI will be unveiled August 8th](https://www.reddit.com/r/wallstreetbets/comments/1bwt2ux/elon_says_robotaxi_will_be_unveiled_august_8th/)
+- [Insurance Companies Are Dumping Customers In Droves And That’s Bullish](https://www.reddit.com/r/wallstreetbets/comments/1bxpfgj/insurance_companies_are_dumping_customers_in/)
+- [4/10 Will be a good day for $TSM](https://www.reddit.com/r/wallstreetbets/comments/1bxpfb6/410_will_be_a_good_day_for_tsm/)
+- [&#39;They&#39;re not going to keep buying this&#39;: 3 Wall Street analysts explain why Nvidia&#39;s best days are behind it](https://www.reddit.com/r/wallstreetbets/comments/1bxnn2l/theyre_not_going_to_keep_buying_this_3_wall/)
+- [Bought a bunch of 0 DTE Tesla puts right before the Reuters hit piece on Tesla](https://www.reddit.com/r/wallstreetbets/comments/1bxmfk0/bought_a_bunch_of_0_dte_tesla_puts_right_before/)
+- [After losing $50k, I made it all back thanks to NVDA🙏🏼](https://www.reddit.com/r/wallstreetbets/comments/1bxkyy1/after_losing_50k_i_made_it_all_back_thanks_to_nvda/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
