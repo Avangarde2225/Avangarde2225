@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It was just a matter of time 🇨🇳 🇺🇸 …](https://www.reddit.com/r/wallstreetbets/comments/1byjqql/it_was_just_a_matter_of_time/)
-- [Trading is like basketball](https://www.reddit.com/r/wallstreetbets/comments/1byj3xs/trading_is_like_basketball/)
-- [So apparently if you want the Boeing CEO to develop safe airplanes, it has to be worded into their contract… and it costs more](https://www.reddit.com/r/wallstreetbets/comments/1byhu92/so_apparently_if_you_want_the_boeing_ceo_to/)
-- [Solar Eclipse Will Break The Stock Market 44%+ Return To Top The Record From 1954](https://www.reddit.com/r/wallstreetbets/comments/1byf0wh/solar_eclipse_will_break_the_stock_market_44/)
-- [BioNTech shows strong 3 year follow up results on T cell Vaccine to increase remission and survival time in patients with pancreatic cancer](https://www.reddit.com/r/wallstreetbets/comments/1byf09k/biontech_shows_strong_3_year_follow_up_results_on/)
+- [PAA - Why it can go higher, even if oil doesnt](https://www.reddit.com/r/wallstreetbets/comments/1bzddvu/paa_why_it_can_go_higher_even_if_oil_doesnt/)
+- [It’ll bounce back right?](https://www.reddit.com/r/wallstreetbets/comments/1bzcorh/itll_bounce_back_right/)
+- [$HOOD will 🚀 5/8 Q1 Earnings](https://www.reddit.com/r/wallstreetbets/comments/1bzcegm/hood_will_58_q1_earnings/)
+- [I am not very good at this &lpar;$35k Loss&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1bzcdwy/i_am_not_very_good_at_this_35k_loss/)
+- [Leaps on $ET, Potential 10 bagger as Oil Surges &lpar;DD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1bzbzd3/leaps_on_et_potential_10_bagger_as_oil_surges_dd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
