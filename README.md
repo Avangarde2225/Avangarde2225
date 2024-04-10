@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PAA - Why it can go higher, even if oil doesnt](https://www.reddit.com/r/wallstreetbets/comments/1bzddvu/paa_why_it_can_go_higher_even_if_oil_doesnt/)
-- [It’ll bounce back right?](https://www.reddit.com/r/wallstreetbets/comments/1bzcorh/itll_bounce_back_right/)
-- [$HOOD will 🚀 5/8 Q1 Earnings](https://www.reddit.com/r/wallstreetbets/comments/1bzcegm/hood_will_58_q1_earnings/)
-- [I am not very good at this &lpar;$35k Loss&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1bzcdwy/i_am_not_very_good_at_this_35k_loss/)
-- [Leaps on $ET, Potential 10 bagger as Oil Surges &lpar;DD&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1bzbzd3/leaps_on_et_potential_10_bagger_as_oil_surges_dd/)
+- [GG tomorrow no Re](https://www.reddit.com/r/wallstreetbets/comments/1c069o2/gg_tomorrow_no_re/)
+- [Disney+ confirms it is cracking down on password sharing, as Bob Iger says &#39;Netflix got it right&#39;](https://www.reddit.com/r/wallstreetbets/comments/1c05x9y/disney_confirms_it_is_cracking_down_on_password/)
+- [“PPI? Lmao. You must mean CPI”](https://www.reddit.com/r/wallstreetbets/comments/1c03hjt/ppi_lmao_you_must_mean_cpi/)
+- [$10K Spy Put YOLO 1DTE &lpar;Regard Alert&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c026xb/10k_spy_put_yolo_1dte_regard_alert/)
+- [Never thought I would be the one. I thought I was too smart.](https://www.reddit.com/r/wallstreetbets/comments/1c023er/never_thought_i_would_be_the_one_i_thought_i_was/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
