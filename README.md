@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GG tomorrow no Re](https://www.reddit.com/r/wallstreetbets/comments/1c069o2/gg_tomorrow_no_re/)
-- [Disney+ confirms it is cracking down on password sharing, as Bob Iger says &#39;Netflix got it right&#39;](https://www.reddit.com/r/wallstreetbets/comments/1c05x9y/disney_confirms_it_is_cracking_down_on_password/)
-- [“PPI? Lmao. You must mean CPI”](https://www.reddit.com/r/wallstreetbets/comments/1c03hjt/ppi_lmao_you_must_mean_cpi/)
-- [$10K Spy Put YOLO 1DTE &lpar;Regard Alert&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c026xb/10k_spy_put_yolo_1dte_regard_alert/)
-- [Never thought I would be the one. I thought I was too smart.](https://www.reddit.com/r/wallstreetbets/comments/1c023er/never_thought_i_would_be_the_one_i_thought_i_was/)
+- [So long retirement!](https://www.reddit.com/r/wallstreetbets/comments/1c0zs5r/so_long_retirement/)
+- [Two rate cuts this year](https://www.reddit.com/r/wallstreetbets/comments/1c0zfsq/two_rate_cuts_this_year/)
+- [I did it](https://www.reddit.com/r/wallstreetbets/comments/1c0xws8/i_did_it/)
+- [Embrace the dip](https://www.reddit.com/r/wallstreetbets/comments/1c0xa85/embrace_the_dip/)
+- [Fed rate cut expectations move to Q3 2027.](https://www.reddit.com/r/wallstreetbets/comments/1c0x273/fed_rate_cut_expectations_move_to_q3_2027/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
