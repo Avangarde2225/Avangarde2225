@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [So long retirement!](https://www.reddit.com/r/wallstreetbets/comments/1c0zs5r/so_long_retirement/)
-- [Two rate cuts this year](https://www.reddit.com/r/wallstreetbets/comments/1c0zfsq/two_rate_cuts_this_year/)
-- [I did it](https://www.reddit.com/r/wallstreetbets/comments/1c0xws8/i_did_it/)
-- [Embrace the dip](https://www.reddit.com/r/wallstreetbets/comments/1c0xa85/embrace_the_dip/)
-- [Fed rate cut expectations move to Q3 2027.](https://www.reddit.com/r/wallstreetbets/comments/1c0x273/fed_rate_cut_expectations_move_to_q3_2027/)
+- [It’s certainly been quite a week](https://www.reddit.com/r/wallstreetbets/comments/1c1u44l/its_certainly_been_quite_a_week/)
+- [Anther 30k day on 0te calls](https://www.reddit.com/r/wallstreetbets/comments/1c1s6yt/anther_30k_day_on_0te_calls/)
+- [Apple warns users in 92 countries they may have been targeted by mercenary spyware attacks](https://www.reddit.com/r/wallstreetbets/comments/1c1rkgn/apple_warns_users_in_92_countries_they_may_have/)
+- [Any of you regards up 195,900% today? 😀](https://www.reddit.com/r/wallstreetbets/comments/1c1rkbv/any_of_you_regards_up_195900_today/)
+- [PSA Robinhood users &lpar;about 95% of you regards&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c1rbpw/psa_robinhood_users_about_95_of_you_regards/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
