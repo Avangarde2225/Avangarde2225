@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It’s certainly been quite a week](https://www.reddit.com/r/wallstreetbets/comments/1c1u44l/its_certainly_been_quite_a_week/)
-- [Anther 30k day on 0te calls](https://www.reddit.com/r/wallstreetbets/comments/1c1s6yt/anther_30k_day_on_0te_calls/)
-- [Apple warns users in 92 countries they may have been targeted by mercenary spyware attacks](https://www.reddit.com/r/wallstreetbets/comments/1c1rkgn/apple_warns_users_in_92_countries_they_may_have/)
-- [Any of you regards up 195,900% today? 😀](https://www.reddit.com/r/wallstreetbets/comments/1c1rkbv/any_of_you_regards_up_195900_today/)
-- [PSA Robinhood users &lpar;about 95% of you regards&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c1rbpw/psa_robinhood_users_about_95_of_you_regards/)
+- [What is going to happen when nothing happens?](https://www.reddit.com/r/wallstreetbets/comments/1c2lwo6/what_is_going_to_happen_when_nothing_happens/)
+- [Yep](https://www.reddit.com/r/wallstreetbets/comments/1c2lsfj/yep/)
+- [Up a little over 200% on the year turned 12k into 40k](https://www.reddit.com/r/wallstreetbets/comments/1c2kgzv/up_a_little_over_200_on_the_year_turned_12k_into/)
+- [SPY 0DTE over the past week](https://www.reddit.com/r/wallstreetbets/comments/1c2jibg/spy_0dte_over_the_past_week/)
+- [Vietnam tycoon sentenced to death in $12 billion fraud case| SBF is laughing at this from prison](https://www.reddit.com/r/wallstreetbets/comments/1c2j6bf/vietnam_tycoon_sentenced_to_death_in_12_billion/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
