@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What is going to happen when nothing happens?](https://www.reddit.com/r/wallstreetbets/comments/1c2lwo6/what_is_going_to_happen_when_nothing_happens/)
-- [Yep](https://www.reddit.com/r/wallstreetbets/comments/1c2lsfj/yep/)
-- [Up a little over 200% on the year turned 12k into 40k](https://www.reddit.com/r/wallstreetbets/comments/1c2kgzv/up_a_little_over_200_on_the_year_turned_12k_into/)
-- [SPY 0DTE over the past week](https://www.reddit.com/r/wallstreetbets/comments/1c2jibg/spy_0dte_over_the_past_week/)
-- [Vietnam tycoon sentenced to death in $12 billion fraud case| SBF is laughing at this from prison](https://www.reddit.com/r/wallstreetbets/comments/1c2j6bf/vietnam_tycoon_sentenced_to_death_in_12_billion/)
+- [How much would the drone attack affect market on Monday?](https://www.reddit.com/r/wallstreetbets/comments/1c3fz8s/how_much_would_the_drone_attack_affect_market_on/)
+- [It&#39;s all about long term gains.](https://www.reddit.com/r/wallstreetbets/comments/1c3fyvn/its_all_about_long_term_gains/)
+- [Iranian Attack Concluded](https://www.reddit.com/r/wallstreetbets/comments/1c3fuum/iranian_attack_concluded/)
+- [Iran is bluffing](https://www.reddit.com/r/wallstreetbets/comments/1c3fou0/iran_is_bluffing/)
+- [Big Wet Calls on US Defense and Airspace](https://www.reddit.com/r/wallstreetbets/comments/1c3eyuu/big_wet_calls_on_us_defense_and_airspace/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
