@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How much would the drone attack affect market on Monday?](https://www.reddit.com/r/wallstreetbets/comments/1c3fz8s/how_much_would_the_drone_attack_affect_market_on/)
-- [It&#39;s all about long term gains.](https://www.reddit.com/r/wallstreetbets/comments/1c3fyvn/its_all_about_long_term_gains/)
-- [Iranian Attack Concluded](https://www.reddit.com/r/wallstreetbets/comments/1c3fuum/iranian_attack_concluded/)
-- [Iran is bluffing](https://www.reddit.com/r/wallstreetbets/comments/1c3fou0/iran_is_bluffing/)
-- [Big Wet Calls on US Defense and Airspace](https://www.reddit.com/r/wallstreetbets/comments/1c3eyuu/big_wet_calls_on_us_defense_and_airspace/)
+- [State of BTC sub](https://www.reddit.com/r/wallstreetbets/comments/1c4bbbq/state_of_btc_sub/)
+- [We’re only halfway there.](https://www.reddit.com/r/wallstreetbets/comments/1c4ayxc/were_only_halfway_there/)
+- [Jerome walking to the podium next FOMC](https://www.reddit.com/r/wallstreetbets/comments/1c4afj1/jerome_walking_to_the_podium_next_fomc/)
+- [The underlying economy may be in worse shape than we realize. Rolls Royces are now being sold at yard sales](https://www.reddit.com/r/wallstreetbets/comments/1c49lxe/the_underlying_economy_may_be_in_worse_shape_than/)
+- [Apple’s &lpar;AAPL&rpar; iPhone Shipments Plunge 10% as Android Rivals Rise](https://www.reddit.com/r/wallstreetbets/comments/1c48sgi/apples_aapl_iphone_shipments_plunge_10_as_android/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
