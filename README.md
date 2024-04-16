@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [State of BTC sub](https://www.reddit.com/r/wallstreetbets/comments/1c4bbbq/state_of_btc_sub/)
-- [We’re only halfway there.](https://www.reddit.com/r/wallstreetbets/comments/1c4ayxc/were_only_halfway_there/)
-- [Jerome walking to the podium next FOMC](https://www.reddit.com/r/wallstreetbets/comments/1c4afj1/jerome_walking_to_the_podium_next_fomc/)
-- [The underlying economy may be in worse shape than we realize. Rolls Royces are now being sold at yard sales](https://www.reddit.com/r/wallstreetbets/comments/1c49lxe/the_underlying_economy_may_be_in_worse_shape_than/)
-- [Apple’s &lpar;AAPL&rpar; iPhone Shipments Plunge 10% as Android Rivals Rise](https://www.reddit.com/r/wallstreetbets/comments/1c48sgi/apples_aapl_iphone_shipments_plunge_10_as_android/)
+- [Know nothing about day/swing trading, just buying and selling on vibes](https://www.reddit.com/r/wallstreetbets/comments/1c50ziy/know_nothing_about_dayswing_trading_just_buying/)
+- [TSM is dead guys. Rip to all the delusional OTM bag holders.](https://www.reddit.com/r/wallstreetbets/comments/1c4xunv/tsm_is_dead_guys_rip_to_all_the_delusional_otm/)
+- [$SPY the market is selling off at a much faster pace than anticipated](https://www.reddit.com/r/wallstreetbets/comments/1c4w86w/spy_the_market_is_selling_off_at_a_much_faster/)
+- [I feel ugly for this SPY puts](https://www.reddit.com/r/wallstreetbets/comments/1c4vy8z/i_feel_ugly_for_this_spy_puts/)
+- [What Are Your Moves Tomorrow, April 16, 2024](https://www.reddit.com/r/wallstreetbets/comments/1c4vwlp/what_are_your_moves_tomorrow_april_16_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
