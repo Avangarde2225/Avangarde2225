@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Know nothing about day/swing trading, just buying and selling on vibes](https://www.reddit.com/r/wallstreetbets/comments/1c50ziy/know_nothing_about_dayswing_trading_just_buying/)
-- [TSM is dead guys. Rip to all the delusional OTM bag holders.](https://www.reddit.com/r/wallstreetbets/comments/1c4xunv/tsm_is_dead_guys_rip_to_all_the_delusional_otm/)
-- [$SPY the market is selling off at a much faster pace than anticipated](https://www.reddit.com/r/wallstreetbets/comments/1c4w86w/spy_the_market_is_selling_off_at_a_much_faster/)
-- [I feel ugly for this SPY puts](https://www.reddit.com/r/wallstreetbets/comments/1c4vy8z/i_feel_ugly_for_this_spy_puts/)
-- [What Are Your Moves Tomorrow, April 16, 2024](https://www.reddit.com/r/wallstreetbets/comments/1c4vwlp/what_are_your_moves_tomorrow_april_16_2024/)
+- [Let’s drink some $ALCC](https://www.reddit.com/r/wallstreetbets/comments/1c5qqxy/lets_drink_some_alcc/)
+- [United Airlines reports $124 million loss in a quarter marred by grounding of some Boeing planes $BA $UAL](https://www.reddit.com/r/wallstreetbets/comments/1c5qg6n/united_airlines_reports_124_million_loss_in_a/)
+- [What Are Your Moves Tomorrow, April 17, 2024](https://www.reddit.com/r/wallstreetbets/comments/1c5pps7/what_are_your_moves_tomorrow_april_17_2024/)
+- [$TSLA - going below $125?](https://www.reddit.com/r/wallstreetbets/comments/1c5poh3/tsla_going_below_125/)
+- [Buy Novo Nordisk now &lpar;Huge gain potential&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c5p2tg/buy_novo_nordisk_now_huge_gain_potential/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
