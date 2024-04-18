@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Let’s drink some $ALCC](https://www.reddit.com/r/wallstreetbets/comments/1c5qqxy/lets_drink_some_alcc/)
-- [United Airlines reports $124 million loss in a quarter marred by grounding of some Boeing planes $BA $UAL](https://www.reddit.com/r/wallstreetbets/comments/1c5qg6n/united_airlines_reports_124_million_loss_in_a/)
-- [What Are Your Moves Tomorrow, April 17, 2024](https://www.reddit.com/r/wallstreetbets/comments/1c5pps7/what_are_your_moves_tomorrow_april_17_2024/)
-- [$TSLA - going below $125?](https://www.reddit.com/r/wallstreetbets/comments/1c5poh3/tsla_going_below_125/)
-- [Buy Novo Nordisk now &lpar;Huge gain potential&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c5p2tg/buy_novo_nordisk_now_huge_gain_potential/)
+- [Boeing whistleblower received ‘physical threats’ from bosses after raising concerns](https://www.reddit.com/r/wallstreetbets/comments/1c6pkc6/boeing_whistleblower_received_physical_threats/)
+- [Every damn time](https://www.reddit.com/r/wallstreetbets/comments/1c6p2ks/every_damn_time/)
+- [TKO YOLO update 4/17](https://www.reddit.com/r/wallstreetbets/comments/1c6meav/tko_yolo_update_417/)
+- [Wall Street pushes out rate-cut expectations, sees risk they don&#39;t start until March 2025](https://www.reddit.com/r/wallstreetbets/comments/1c6luxf/wall_street_pushes_out_ratecut_expectations_sees/)
+- [$20k TSLA bet](https://www.reddit.com/r/wallstreetbets/comments/1c6k8nr/20k_tsla_bet/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
