@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Boeing whistleblower received ‘physical threats’ from bosses after raising concerns](https://www.reddit.com/r/wallstreetbets/comments/1c6pkc6/boeing_whistleblower_received_physical_threats/)
-- [Every damn time](https://www.reddit.com/r/wallstreetbets/comments/1c6p2ks/every_damn_time/)
-- [TKO YOLO update 4/17](https://www.reddit.com/r/wallstreetbets/comments/1c6meav/tko_yolo_update_417/)
-- [Wall Street pushes out rate-cut expectations, sees risk they don&#39;t start until March 2025](https://www.reddit.com/r/wallstreetbets/comments/1c6luxf/wall_street_pushes_out_ratecut_expectations_sees/)
-- [$20k TSLA bet](https://www.reddit.com/r/wallstreetbets/comments/1c6k8nr/20k_tsla_bet/)
+- [Imhotep has spoken - no cuts for you!](https://www.reddit.com/r/wallstreetbets/comments/1c7hore/imhotep_has_spoken_no_cuts_for_you/)
+- [$500- -&gt;$6000- -&gt;$14,000](https://www.reddit.com/r/wallstreetbets/comments/1c7hole/500_6000_14000/)
+- [Fuck TSM forever.](https://www.reddit.com/r/wallstreetbets/comments/1c7h0f5/fuck_tsm_forever/)
+- [One small victory for a regard](https://www.reddit.com/r/wallstreetbets/comments/1c7gw0a/one_small_victory_for_a_regard/)
+- [DJT is in for massive dilution](https://www.reddit.com/r/wallstreetbets/comments/1c7giet/djt_is_in_for_massive_dilution/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
