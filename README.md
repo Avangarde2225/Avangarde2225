@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Imhotep has spoken - no cuts for you!](https://www.reddit.com/r/wallstreetbets/comments/1c7hore/imhotep_has_spoken_no_cuts_for_you/)
-- [$500- -&gt;$6000- -&gt;$14,000](https://www.reddit.com/r/wallstreetbets/comments/1c7hole/500_6000_14000/)
-- [Fuck TSM forever.](https://www.reddit.com/r/wallstreetbets/comments/1c7h0f5/fuck_tsm_forever/)
-- [One small victory for a regard](https://www.reddit.com/r/wallstreetbets/comments/1c7gw0a/one_small_victory_for_a_regard/)
-- [DJT is in for massive dilution](https://www.reddit.com/r/wallstreetbets/comments/1c7giet/djt_is_in_for_massive_dilution/)
+- [$10k -&gt; $134k in 3 days](https://www.reddit.com/r/wallstreetbets/comments/1c89szj/10k_134k_in_3_days/)
+- [Oh yea lost it all](https://www.reddit.com/r/wallstreetbets/comments/1c87f2t/oh_yea_lost_it_all/)
+- [-$57k in one day &lpar;SPY MU and NVDA calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c877k7/57k_in_one_day_spy_mu_and_nvda_calls/)
+- [This is the top before the crash](https://www.reddit.com/r/wallstreetbets/comments/1c87782/this_is_the_top_before_the_crash/)
+- [Guy who set himself on fire outside Trump trial believed crypto collapse would cause a recession](https://www.reddit.com/r/wallstreetbets/comments/1c873f3/guy_who_set_himself_on_fire_outside_trump_trial/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
