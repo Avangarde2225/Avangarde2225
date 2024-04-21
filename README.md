@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$10k -&gt; $134k in 3 days](https://www.reddit.com/r/wallstreetbets/comments/1c89szj/10k_134k_in_3_days/)
-- [Oh yea lost it all](https://www.reddit.com/r/wallstreetbets/comments/1c87f2t/oh_yea_lost_it_all/)
-- [-$57k in one day &lpar;SPY MU and NVDA calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1c877k7/57k_in_one_day_spy_mu_and_nvda_calls/)
-- [This is the top before the crash](https://www.reddit.com/r/wallstreetbets/comments/1c87782/this_is_the_top_before_the_crash/)
-- [Guy who set himself on fire outside Trump trial believed crypto collapse would cause a recession](https://www.reddit.com/r/wallstreetbets/comments/1c873f3/guy_who_set_himself_on_fire_outside_trump_trial/)
+- [The yield curve has been inverted for over 500 days - We’ve only seen this 3 times in history: 2008, 1929, 1974. All 3 were &gt;50% stock crash](https://www.reddit.com/r/wallstreetbets/comments/1c93g6j/the_yield_curve_has_been_inverted_for_over_500/)
+- [These Tesla calls ain’t lookin too hot boys](https://www.reddit.com/r/wallstreetbets/comments/1c91ytp/these_tesla_calls_aint_lookin_too_hot_boys/)
+- [The lost](https://www.reddit.com/r/wallstreetbets/comments/1c90vy4/the_lost/)
+- [Tesla FSD: Mercedes beats them to market](https://www.reddit.com/r/wallstreetbets/comments/1c90kzb/tesla_fsd_mercedes_beats_them_to_market/)
+- [If we enter an actual recession, what are the odds of boomers &quot;skipping this one&quot; and cashing out?](https://www.reddit.com/r/wallstreetbets/comments/1c8zwti/if_we_enter_an_actual_recession_what_are_the_odds/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
