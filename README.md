@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The yield curve has been inverted for over 500 days - We’ve only seen this 3 times in history: 2008, 1929, 1974. All 3 were &gt;50% stock crash](https://www.reddit.com/r/wallstreetbets/comments/1c93g6j/the_yield_curve_has_been_inverted_for_over_500/)
-- [These Tesla calls ain’t lookin too hot boys](https://www.reddit.com/r/wallstreetbets/comments/1c91ytp/these_tesla_calls_aint_lookin_too_hot_boys/)
-- [The lost](https://www.reddit.com/r/wallstreetbets/comments/1c90vy4/the_lost/)
-- [Tesla FSD: Mercedes beats them to market](https://www.reddit.com/r/wallstreetbets/comments/1c90kzb/tesla_fsd_mercedes_beats_them_to_market/)
-- [If we enter an actual recession, what are the odds of boomers &quot;skipping this one&quot; and cashing out?](https://www.reddit.com/r/wallstreetbets/comments/1c8zwti/if_we_enter_an_actual_recession_what_are_the_odds/)
+- [Mama Woods sparked the oil rally this year and the collapse of $TSLA.](https://www.reddit.com/r/wallstreetbets/comments/1c9w3ar/mama_woods_sparked_the_oil_rally_this_year_and/)
+- [200K&gt;320K&gt;60K](https://www.reddit.com/r/wallstreetbets/comments/1c9w1em/200k320k60k/)
+- [Yes, I guess my previous loss porn wasn’t good enough. I like options.](https://www.reddit.com/r/wallstreetbets/comments/1c9v9e7/yes_i_guess_my_previous_loss_porn_wasnt_good/)
+- [Tesla is shorting it’s ex employees severance package](https://www.reddit.com/r/wallstreetbets/comments/1c9ru6a/tesla_is_shorting_its_ex_employees_severance/)
+- [Done and dusted](https://www.reddit.com/r/wallstreetbets/comments/1c9rkgu/done_and_dusted/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
