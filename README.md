@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Mama Woods sparked the oil rally this year and the collapse of $TSLA.](https://www.reddit.com/r/wallstreetbets/comments/1c9w3ar/mama_woods_sparked_the_oil_rally_this_year_and/)
-- [200K&gt;320K&gt;60K](https://www.reddit.com/r/wallstreetbets/comments/1c9w1em/200k320k60k/)
-- [Yes, I guess my previous loss porn wasn’t good enough. I like options.](https://www.reddit.com/r/wallstreetbets/comments/1c9v9e7/yes_i_guess_my_previous_loss_porn_wasnt_good/)
-- [Tesla is shorting it’s ex employees severance package](https://www.reddit.com/r/wallstreetbets/comments/1c9ru6a/tesla_is_shorting_its_ex_employees_severance/)
-- [Done and dusted](https://www.reddit.com/r/wallstreetbets/comments/1c9rkgu/done_and_dusted/)
+- [All you guys thinking of getting a job at Wendy&#39;s, seem to be screwed!](https://www.reddit.com/r/wallstreetbets/comments/1caq1pb/all_you_guys_thinking_of_getting_a_job_at_wendys/)
+- [Sounds legit. Calls for sure](https://www.reddit.com/r/wallstreetbets/comments/1caof2i/sounds_legit_calls_for_sure/)
+- [Learned an 8k lesson](https://www.reddit.com/r/wallstreetbets/comments/1can9sq/learned_an_8k_lesson/)
+- [+18k day. Up +68k in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1cal2cw/18k_day_up_68k_in_2_days/)
+- [If You Held Puts Over The Weekend Outcome…](https://www.reddit.com/r/wallstreetbets/comments/1cakmq8/if_you_held_puts_over_the_weekend_outcome/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
