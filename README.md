@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [All you guys thinking of getting a job at Wendy&#39;s, seem to be screwed!](https://www.reddit.com/r/wallstreetbets/comments/1caq1pb/all_you_guys_thinking_of_getting_a_job_at_wendys/)
-- [Sounds legit. Calls for sure](https://www.reddit.com/r/wallstreetbets/comments/1caof2i/sounds_legit_calls_for_sure/)
-- [Learned an 8k lesson](https://www.reddit.com/r/wallstreetbets/comments/1can9sq/learned_an_8k_lesson/)
-- [+18k day. Up +68k in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1cal2cw/18k_day_up_68k_in_2_days/)
-- [If You Held Puts Over The Weekend Outcome…](https://www.reddit.com/r/wallstreetbets/comments/1cakmq8/if_you_held_puts_over_the_weekend_outcome/)
+- [Tesla stock surges as EV maker will &#39;accelerate&#39; the launch of cheaper cars](https://www.reddit.com/r/wallstreetbets/comments/1cbi1u3/tesla_stock_surges_as_ev_maker_will_accelerate/)
+- [Apparently I am not smarter than the market](https://www.reddit.com/r/wallstreetbets/comments/1cbhx1j/apparently_i_am_not_smarter_than_the_market/)
+- [Newbies out here betting AGAINST basic &quot;old man fucked up leg&quot; fundamentals - are you TRYING to lose money?](https://www.reddit.com/r/wallstreetbets/comments/1cbhquk/newbies_out_here_betting_against_basic_old_man/)
+- [TSLA quarterly net income chart](https://www.reddit.com/r/wallstreetbets/comments/1cbg6a5/tsla_quarterly_net_income_chart/)
+- [NFLX Baad , TSLA Goode - I am done with earnings.](https://www.reddit.com/r/wallstreetbets/comments/1cbfuwk/nflx_baad_tsla_goode_i_am_done_with_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
