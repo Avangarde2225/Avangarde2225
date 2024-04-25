@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla stock surges as EV maker will &#39;accelerate&#39; the launch of cheaper cars](https://www.reddit.com/r/wallstreetbets/comments/1cbi1u3/tesla_stock_surges_as_ev_maker_will_accelerate/)
-- [Apparently I am not smarter than the market](https://www.reddit.com/r/wallstreetbets/comments/1cbhx1j/apparently_i_am_not_smarter_than_the_market/)
-- [Newbies out here betting AGAINST basic &quot;old man fucked up leg&quot; fundamentals - are you TRYING to lose money?](https://www.reddit.com/r/wallstreetbets/comments/1cbhquk/newbies_out_here_betting_against_basic_old_man/)
-- [TSLA quarterly net income chart](https://www.reddit.com/r/wallstreetbets/comments/1cbg6a5/tsla_quarterly_net_income_chart/)
-- [NFLX Baad , TSLA Goode - I am done with earnings.](https://www.reddit.com/r/wallstreetbets/comments/1cbfuwk/nflx_baad_tsla_goode_i_am_done_with_earnings/)
+- [They say laughter is the best medicine.](https://www.reddit.com/r/wallstreetbets/comments/1ccccxq/they_say_laughter_is_the_best_medicine/)
+- [Maybe it’s a good thing I didn’t go all in on META calls](https://www.reddit.com/r/wallstreetbets/comments/1ccacj8/maybe_its_a_good_thing_i_didnt_go_all_in_on_meta/)
+- [Reaction after META earnings](https://www.reddit.com/r/wallstreetbets/comments/1cca6q8/reaction_after_meta_earnings/)
+- [META -17% post market. RIP Calls](https://www.reddit.com/r/wallstreetbets/comments/1cc9vlj/meta_17_post_market_rip_calls/)
+- [RIP my calls 💀](https://www.reddit.com/r/wallstreetbets/comments/1cc8skf/rip_my_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
