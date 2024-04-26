@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [They say laughter is the best medicine.](https://www.reddit.com/r/wallstreetbets/comments/1ccccxq/they_say_laughter_is_the_best_medicine/)
-- [Maybe it’s a good thing I didn’t go all in on META calls](https://www.reddit.com/r/wallstreetbets/comments/1ccacj8/maybe_its_a_good_thing_i_didnt_go_all_in_on_meta/)
-- [Reaction after META earnings](https://www.reddit.com/r/wallstreetbets/comments/1cca6q8/reaction_after_meta_earnings/)
-- [META -17% post market. RIP Calls](https://www.reddit.com/r/wallstreetbets/comments/1cc9vlj/meta_17_post_market_rip_calls/)
-- [RIP my calls 💀](https://www.reddit.com/r/wallstreetbets/comments/1cc8skf/rip_my_calls/)
+- [$Meta dip buying +455k](https://www.reddit.com/r/wallstreetbets/comments/1cd5qfo/meta_dip_buying_455k/)
+- [Google parent Alphabet issues first dividend after strong earnings](https://www.reddit.com/r/wallstreetbets/comments/1cd49nz/google_parent_alphabet_issues_first_dividend/)
+- [Went full SPY regard before close](https://www.reddit.com/r/wallstreetbets/comments/1cd3spd/went_full_spy_regard_before_close/)
+- [Who’s going to be rich off SNAP tomorrow??](https://www.reddit.com/r/wallstreetbets/comments/1cd2w9w/whos_going_to_be_rich_off_snap_tomorrow/)
+- [Most Anticipated Earnings Releases for the week beginning April 29th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cd2mzx/most_anticipated_earnings_releases_for_the_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
