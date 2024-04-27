@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$Meta dip buying +455k](https://www.reddit.com/r/wallstreetbets/comments/1cd5qfo/meta_dip_buying_455k/)
-- [Google parent Alphabet issues first dividend after strong earnings](https://www.reddit.com/r/wallstreetbets/comments/1cd49nz/google_parent_alphabet_issues_first_dividend/)
-- [Went full SPY regard before close](https://www.reddit.com/r/wallstreetbets/comments/1cd3spd/went_full_spy_regard_before_close/)
-- [Who’s going to be rich off SNAP tomorrow??](https://www.reddit.com/r/wallstreetbets/comments/1cd2w9w/whos_going_to_be_rich_off_snap_tomorrow/)
-- [Most Anticipated Earnings Releases for the week beginning April 29th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cd2mzx/most_anticipated_earnings_releases_for_the_week/)
+- [First fucking winning streak… NVDA &amp; GOOGL calls](https://www.reddit.com/r/wallstreetbets/comments/1ce0g8x/first_fucking_winning_streak_nvda_googl_calls/)
+- [I continued to be bearish. Goodbye](https://www.reddit.com/r/wallstreetbets/comments/1cdxhpd/i_continued_to_be_bearish_goodbye/)
+- [Yeah … It’s going to get postponed](https://www.reddit.com/r/wallstreetbets/comments/1cdwd3z/yeah_its_going_to_get_postponed/)
+- [I’m done with options finally broke even after getting wrecked last friday.](https://www.reddit.com/r/wallstreetbets/comments/1cdw8tw/im_done_with_options_finally_broke_even_after/)
+- [I guess I belong here](https://www.reddit.com/r/wallstreetbets/comments/1cdv34w/i_guess_i_belong_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
