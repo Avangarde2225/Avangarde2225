@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [First fucking winning streak… NVDA &amp; GOOGL calls](https://www.reddit.com/r/wallstreetbets/comments/1ce0g8x/first_fucking_winning_streak_nvda_googl_calls/)
-- [I continued to be bearish. Goodbye](https://www.reddit.com/r/wallstreetbets/comments/1cdxhpd/i_continued_to_be_bearish_goodbye/)
-- [Yeah … It’s going to get postponed](https://www.reddit.com/r/wallstreetbets/comments/1cdwd3z/yeah_its_going_to_get_postponed/)
-- [I’m done with options finally broke even after getting wrecked last friday.](https://www.reddit.com/r/wallstreetbets/comments/1cdw8tw/im_done_with_options_finally_broke_even_after/)
-- [I guess I belong here](https://www.reddit.com/r/wallstreetbets/comments/1cdv34w/i_guess_i_belong_here/)
+- [I&#39;m highly against the potential opening of the market to 24/7 trading, after spending the last 3 years in crypto futures. Here&#39;s why:](https://www.reddit.com/r/wallstreetbets/comments/1ceoe4h/im_highly_against_the_potential_opening_of_the/)
+- [Investing Pivot](https://www.reddit.com/r/wallstreetbets/comments/1ceo2kh/investing_pivot/)
+- [Apple renews talks to integrate OpenAI&#39;s technology into the next iPhone operating system — FORTUNE](https://www.reddit.com/r/wallstreetbets/comments/1cenfka/apple_renews_talks_to_integrate_openais/)
+- [I am an idiot…](https://www.reddit.com/r/wallstreetbets/comments/1cekiz6/i_am_an_idiot/)
+- [CNBC : Federal regulator finds Tesla Autopilot has ‘critical safety gap’ linked to hundreds of collisions](https://www.reddit.com/r/wallstreetbets/comments/1cejrq2/cnbc_federal_regulator_finds_tesla_autopilot_has/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
