@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m highly against the potential opening of the market to 24/7 trading, after spending the last 3 years in crypto futures. Here&#39;s why:](https://www.reddit.com/r/wallstreetbets/comments/1ceoe4h/im_highly_against_the_potential_opening_of_the/)
-- [Investing Pivot](https://www.reddit.com/r/wallstreetbets/comments/1ceo2kh/investing_pivot/)
-- [Apple renews talks to integrate OpenAI&#39;s technology into the next iPhone operating system — FORTUNE](https://www.reddit.com/r/wallstreetbets/comments/1cenfka/apple_renews_talks_to_integrate_openais/)
-- [I am an idiot…](https://www.reddit.com/r/wallstreetbets/comments/1cekiz6/i_am_an_idiot/)
-- [CNBC : Federal regulator finds Tesla Autopilot has ‘critical safety gap’ linked to hundreds of collisions](https://www.reddit.com/r/wallstreetbets/comments/1cejrq2/cnbc_federal_regulator_finds_tesla_autopilot_has/)
+- [How to lose 100k in 3.5 years](https://www.reddit.com/r/wallstreetbets/comments/1cfl9en/how_to_lose_100k_in_35_years/)
+- [$317 Billion surge: Microsoft and Amazon lead tech stock rally to 2-month high as AI Bets pay off](https://www.reddit.com/r/wallstreetbets/comments/1cfkzb4/317_billion_surge_microsoft_and_amazon_lead_tech/)
+- [The market only goes up. The sooner you accept this the better](https://www.reddit.com/r/wallstreetbets/comments/1cfipv0/the_market_only_goes_up_the_sooner_you_accept/)
+- [PSA: Rate cuts = Market crash](https://www.reddit.com/r/wallstreetbets/comments/1cfi4tr/psa_rate_cuts_market_crash/)
+- [$F = Why I think it might run this week...Hybrid is kicking EV&#39;s pants. Fleets are where it&#39;s at, more than individual retail sales.](https://www.reddit.com/r/wallstreetbets/comments/1cfhtby/f_why_i_think_it_might_run_this_weekhybrid_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
