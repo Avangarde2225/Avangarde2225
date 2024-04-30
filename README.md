@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How to lose 100k in 3.5 years](https://www.reddit.com/r/wallstreetbets/comments/1cfl9en/how_to_lose_100k_in_35_years/)
-- [$317 Billion surge: Microsoft and Amazon lead tech stock rally to 2-month high as AI Bets pay off](https://www.reddit.com/r/wallstreetbets/comments/1cfkzb4/317_billion_surge_microsoft_and_amazon_lead_tech/)
-- [The market only goes up. The sooner you accept this the better](https://www.reddit.com/r/wallstreetbets/comments/1cfipv0/the_market_only_goes_up_the_sooner_you_accept/)
-- [PSA: Rate cuts = Market crash](https://www.reddit.com/r/wallstreetbets/comments/1cfi4tr/psa_rate_cuts_market_crash/)
-- [$F = Why I think it might run this week...Hybrid is kicking EV&#39;s pants. Fleets are where it&#39;s at, more than individual retail sales.](https://www.reddit.com/r/wallstreetbets/comments/1cfhtby/f_why_i_think_it_might_run_this_weekhybrid_is/)
+- [My Trading Plan](https://www.reddit.com/r/wallstreetbets/comments/1cge2pm/my_trading_plan/)
+- [Why isn’t everyone doing this?](https://www.reddit.com/r/wallstreetbets/comments/1cgdycm/why_isnt_everyone_doing_this/)
+- [Trust me bro](https://www.reddit.com/r/wallstreetbets/comments/1cgdwai/trust_me_bro/)
+- [$TSLA GAIN](https://www.reddit.com/r/wallstreetbets/comments/1cgcy8y/tsla_gain/)
+- [ITS GONNA BE DOWN AGAIN IM A WEEK TOPS!!!!](https://www.reddit.com/r/wallstreetbets/comments/1cgaewa/its_gonna_be_down_again_im_a_week_tops/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
