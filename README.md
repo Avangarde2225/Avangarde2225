@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My Trading Plan](https://www.reddit.com/r/wallstreetbets/comments/1cge2pm/my_trading_plan/)
-- [Why isn’t everyone doing this?](https://www.reddit.com/r/wallstreetbets/comments/1cgdycm/why_isnt_everyone_doing_this/)
-- [Trust me bro](https://www.reddit.com/r/wallstreetbets/comments/1cgdwai/trust_me_bro/)
-- [$TSLA GAIN](https://www.reddit.com/r/wallstreetbets/comments/1cgcy8y/tsla_gain/)
-- [ITS GONNA BE DOWN AGAIN IM A WEEK TOPS!!!!](https://www.reddit.com/r/wallstreetbets/comments/1cgaewa/its_gonna_be_down_again_im_a_week_tops/)
+- [Truth](https://www.reddit.com/r/wallstreetbets/comments/1ch6iko/truth/)
+- [This will be a fun ride $MSOS eod @ $11.25](https://www.reddit.com/r/wallstreetbets/comments/1ch54ku/this_will_be_a_fun_ride_msos_eod_1125/)
+- [absolute THETA FUCK](https://www.reddit.com/r/wallstreetbets/comments/1ch4o58/absolute_theta_fuck/)
+- [This is what will happen during the FOMC meeting](https://www.reddit.com/r/wallstreetbets/comments/1ch49wa/this_is_what_will_happen_during_the_fomc_meeting/)
+- [I literally bought this garbage a month ago… right before buying a house. I belong here.](https://www.reddit.com/r/wallstreetbets/comments/1ch3gvg/i_literally_bought_this_garbage_a_month_ago_right/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
