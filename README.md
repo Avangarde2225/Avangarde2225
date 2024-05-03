@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Whistleblower Josh Dean of Boeing supplier Spirit AeroSystems has died](https://www.reddit.com/r/wallstreetbets/comments/1ci0ns2/whistleblower_josh_dean_of_boeing_supplier_spirit/)
-- [NVDA will drop to 800 tomorrow because:](https://www.reddit.com/r/wallstreetbets/comments/1ci0k60/nvda_will_drop_to_800_tomorrow_because/)
-- [$1.4K - $45K CVS Puts](https://www.reddit.com/r/wallstreetbets/comments/1ci01ji/14k_45k_cvs_puts/)
-- [Trump Awarded 36 Million More Trump Media Shares Worth $1.6 Billion After Hitting Price Benchmarks](https://www.reddit.com/r/wallstreetbets/comments/1chze0a/trump_awarded_36_million_more_trump_media_shares/)
-- [CNBC: Why hundreds of U.S. banks may be at risk of failure](https://www.reddit.com/r/wallstreetbets/comments/1chxxo1/cnbc_why_hundreds_of_us_banks_may_be_at_risk_of/)
+- [Apple’s $110 Billion Stock Buyback Plan is Largest in US History](https://www.reddit.com/r/wallstreetbets/comments/1citsry/apples_110_billion_stock_buyback_plan_is_largest/)
+- [What rescheduling Marijuana means](https://www.reddit.com/r/wallstreetbets/comments/1citlmg/what_rescheduling_marijuana_means/)
+- [Well played Mr. Tim Apple](https://www.reddit.com/r/wallstreetbets/comments/1ciscxf/well_played_mr_tim_apple/)
+- [Snowflake isn&#39;t worth $50 Billion Dollars](https://www.reddit.com/r/wallstreetbets/comments/1cirikp/snowflake_isnt_worth_50_billion_dollars/)
+- [Apple beats Q2 estimates, as iPhone sales decline 10%](https://www.reddit.com/r/wallstreetbets/comments/1ciqsp8/apple_beats_q2_estimates_as_iphone_sales_decline/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
