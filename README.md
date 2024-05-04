@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple’s $110 Billion Stock Buyback Plan is Largest in US History](https://www.reddit.com/r/wallstreetbets/comments/1citsry/apples_110_billion_stock_buyback_plan_is_largest/)
-- [What rescheduling Marijuana means](https://www.reddit.com/r/wallstreetbets/comments/1citlmg/what_rescheduling_marijuana_means/)
-- [Well played Mr. Tim Apple](https://www.reddit.com/r/wallstreetbets/comments/1ciscxf/well_played_mr_tim_apple/)
-- [Snowflake isn&#39;t worth $50 Billion Dollars](https://www.reddit.com/r/wallstreetbets/comments/1cirikp/snowflake_isnt_worth_50_billion_dollars/)
-- [Apple beats Q2 estimates, as iPhone sales decline 10%](https://www.reddit.com/r/wallstreetbets/comments/1ciqsp8/apple_beats_q2_estimates_as_iphone_sales_decline/)
+- [DIS &lpar;Disney&rpar; will fall 10%+ on earnings because:](https://www.reddit.com/r/wallstreetbets/comments/1cjmhu1/dis_disney_will_fall_10_on_earnings_because/)
+- [$1200 to $13K in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1cjkrck/1200_to_13k_in_2_days/)
+- [Yarrr](https://www.reddit.com/r/wallstreetbets/comments/1cjkpdb/yarrr/)
+- [Closed these Wednesday. Would’ve been over 20k after the last two days. 10 months of my salary. Might go whistleblow Boeing so I can die.](https://www.reddit.com/r/wallstreetbets/comments/1cjimff/closed_these_wednesday_wouldve_been_over_20k/)
+- [He speaks next week! &lpar;Tuesday @ 11:30AM EST&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1cjht48/he_speaks_next_week_tuesday_1130am_est/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
