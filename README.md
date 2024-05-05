@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DIS &lpar;Disney&rpar; will fall 10%+ on earnings because:](https://www.reddit.com/r/wallstreetbets/comments/1cjmhu1/dis_disney_will_fall_10_on_earnings_because/)
-- [$1200 to $13K in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1cjkrck/1200_to_13k_in_2_days/)
-- [Yarrr](https://www.reddit.com/r/wallstreetbets/comments/1cjkpdb/yarrr/)
-- [Closed these Wednesday. Would’ve been over 20k after the last two days. 10 months of my salary. Might go whistleblow Boeing so I can die.](https://www.reddit.com/r/wallstreetbets/comments/1cjimff/closed_these_wednesday_wouldve_been_over_20k/)
-- [He speaks next week! &lpar;Tuesday @ 11:30AM EST&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1cjht48/he_speaks_next_week_tuesday_1130am_est/)
+- [Me too Warren, me too](https://www.reddit.com/r/wallstreetbets/comments/1ckeere/me_too_warren_me_too/)
+- [I feel like I’m back in 2021](https://www.reddit.com/r/wallstreetbets/comments/1cke6cn/i_feel_like_im_back_in_2021/)
+- [HIMS company stock drops after CEO applauds &amp; offers employment to protesters](https://www.reddit.com/r/wallstreetbets/comments/1cke363/hims_company_stock_drops_after_ceo_applauds/)
+- [The other day. &amp;TSLA](https://www.reddit.com/r/wallstreetbets/comments/1cke07k/the_other_day_tsla/)
+- [How to make 8% on stonk market in a month](https://www.reddit.com/r/wallstreetbets/comments/1ckcy7h/how_to_make_8_on_stonk_market_in_a_month/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
