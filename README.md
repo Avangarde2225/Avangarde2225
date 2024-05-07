@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$RILY-why I believe short funds are using naked shorts to manipulate price](https://www.reddit.com/r/wallstreetbets/comments/1cl5i1m/rilywhy_i_believe_short_funds_are_using_naked/)
-- [Update - Boeing whistleblower death ruled a mere accident](https://www.reddit.com/r/wallstreetbets/comments/1cl54ap/update_boeing_whistleblower_death_ruled_a_mere/)
-- [Heartwarming Moment From The Annual Berkshire Meeting](https://www.reddit.com/r/wallstreetbets/comments/1cl4e0z/heartwarming_moment_from_the_annual_berkshire/)
-- [I will bet against WSB on BA.](https://www.reddit.com/r/wallstreetbets/comments/1cl3smz/i_will_bet_against_wsb_on_ba/)
-- [Gain on YINN](https://www.reddit.com/r/wallstreetbets/comments/1cl3lik/gain_on_yinn/)
+- [It&#39;s THAT time again boys](https://www.reddit.com/r/wallstreetbets/comments/1clwxl1/its_that_time_again_boys/)
+- [Selling these tomorrow if it’s green again. This sucks.](https://www.reddit.com/r/wallstreetbets/comments/1clwrl9/selling_these_tomorrow_if_its_green_again_this/)
+- [Is anyone watching the Earnings Call for Palantir](https://www.reddit.com/r/wallstreetbets/comments/1clv0ee/is_anyone_watching_the_earnings_call_for_palantir/)
+- [Palantir shares fall 10% on lower-than-expected guidance](https://www.reddit.com/r/wallstreetbets/comments/1cltcnb/palantir_shares_fall_10_on_lowerthanexpected/)
+- [Help me. You are the only hope for my puts.](https://www.reddit.com/r/wallstreetbets/comments/1clt8dx/help_me_you_are_the_only_hope_for_my_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
