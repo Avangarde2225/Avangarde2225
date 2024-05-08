@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It&#39;s THAT time again boys](https://www.reddit.com/r/wallstreetbets/comments/1clwxl1/its_that_time_again_boys/)
-- [Selling these tomorrow if it’s green again. This sucks.](https://www.reddit.com/r/wallstreetbets/comments/1clwrl9/selling_these_tomorrow_if_its_green_again_this/)
-- [Is anyone watching the Earnings Call for Palantir](https://www.reddit.com/r/wallstreetbets/comments/1clv0ee/is_anyone_watching_the_earnings_call_for_palantir/)
-- [Palantir shares fall 10% on lower-than-expected guidance](https://www.reddit.com/r/wallstreetbets/comments/1cltcnb/palantir_shares_fall_10_on_lowerthanexpected/)
-- [Help me. You are the only hope for my puts.](https://www.reddit.com/r/wallstreetbets/comments/1clt8dx/help_me_you_are_the_only_hope_for_my_puts/)
+- [Fed’s Kashkari: Rates will stay high for &#39;extended period&#39; and can&#39;t rule out a hike](https://www.reddit.com/r/wallstreetbets/comments/1cmqbg3/feds_kashkari_rates_will_stay_high_for_extended/)
+- [RDDT YOLO](https://www.reddit.com/r/wallstreetbets/comments/1cmpw5g/rddt_yolo/)
+- [PLTR loss porn](https://www.reddit.com/r/wallstreetbets/comments/1cmogdt/pltr_loss_porn/)
+- [ALCC/OKLO $30k YOLO](https://www.reddit.com/r/wallstreetbets/comments/1cmm7vr/alccoklo_30k_yolo/)
+- [RDDT Followup Post](https://www.reddit.com/r/wallstreetbets/comments/1cmllba/rddt_followup_post/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
