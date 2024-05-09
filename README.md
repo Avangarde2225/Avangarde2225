@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fed’s Kashkari: Rates will stay high for &#39;extended period&#39; and can&#39;t rule out a hike](https://www.reddit.com/r/wallstreetbets/comments/1cmqbg3/feds_kashkari_rates_will_stay_high_for_extended/)
-- [RDDT YOLO](https://www.reddit.com/r/wallstreetbets/comments/1cmpw5g/rddt_yolo/)
-- [PLTR loss porn](https://www.reddit.com/r/wallstreetbets/comments/1cmogdt/pltr_loss_porn/)
-- [ALCC/OKLO $30k YOLO](https://www.reddit.com/r/wallstreetbets/comments/1cmm7vr/alccoklo_30k_yolo/)
-- [RDDT Followup Post](https://www.reddit.com/r/wallstreetbets/comments/1cmllba/rddt_followup_post/)
+- [Market is rigged](https://www.reddit.com/r/wallstreetbets/comments/1cniz26/market_is_rigged/)
+- [NVDA Will Fall Then Soar: The Guide to Earnings](https://www.reddit.com/r/wallstreetbets/comments/1cniy8t/nvda_will_fall_then_soar_the_guide_to_earnings/)
+- [Were they expecting a flying saucer landing on top of $ARM headquarters?](https://www.reddit.com/r/wallstreetbets/comments/1cnhwc2/were_they_expecting_a_flying_saucer_landing_on/)
+- [Shopify shares plunge 20% in company’s worst-ever trading day amid sales Slowdown](https://www.reddit.com/r/wallstreetbets/comments/1cnh8sc/shopify_shares_plunge_20_in_companys_worstever/)
+- [Rode the Utilities Sector](https://www.reddit.com/r/wallstreetbets/comments/1cnf35s/rode_the_utilities_sector/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
