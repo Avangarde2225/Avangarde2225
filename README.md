@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market is rigged](https://www.reddit.com/r/wallstreetbets/comments/1cniz26/market_is_rigged/)
-- [NVDA Will Fall Then Soar: The Guide to Earnings](https://www.reddit.com/r/wallstreetbets/comments/1cniy8t/nvda_will_fall_then_soar_the_guide_to_earnings/)
-- [Were they expecting a flying saucer landing on top of $ARM headquarters?](https://www.reddit.com/r/wallstreetbets/comments/1cnhwc2/were_they_expecting_a_flying_saucer_landing_on/)
-- [Shopify shares plunge 20% in company’s worst-ever trading day amid sales Slowdown](https://www.reddit.com/r/wallstreetbets/comments/1cnh8sc/shopify_shares_plunge_20_in_companys_worstever/)
-- [Rode the Utilities Sector](https://www.reddit.com/r/wallstreetbets/comments/1cnf35s/rode_the_utilities_sector/)
+- [OpenAI plans to announce Google search competitor on Monday, sources say](https://www.reddit.com/r/wallstreetbets/comments/1co9jk1/openai_plans_to_announce_google_search_competitor/)
+- [Intel Foundry is playing hardball. They bought all of the new High-NA EUV machines available to keep them out of TSM and Samsung’s hands.](https://www.reddit.com/r/wallstreetbets/comments/1co8582/intel_foundry_is_playing_hardball_they_bought_all/)
+- [NVDA 5/17 call, $900 strike YOLO. $70k, down $22k.](https://www.reddit.com/r/wallstreetbets/comments/1co7voo/nvda_517_call_900_strike_yolo_70k_down_22k/)
+- [Request: Can we stop with all the “A 30 year old plane in Madagascar had landing gear trouble...Puts on Boeing!!” posts?](https://www.reddit.com/r/wallstreetbets/comments/1co7qbh/request_can_we_stop_with_all_the_a_30_year_old/)
+- [BA](https://www.reddit.com/r/wallstreetbets/comments/1co7ezo/ba/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
