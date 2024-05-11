@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [OpenAI plans to announce Google search competitor on Monday, sources say](https://www.reddit.com/r/wallstreetbets/comments/1co9jk1/openai_plans_to_announce_google_search_competitor/)
-- [Intel Foundry is playing hardball. They bought all of the new High-NA EUV machines available to keep them out of TSM and Samsung’s hands.](https://www.reddit.com/r/wallstreetbets/comments/1co8582/intel_foundry_is_playing_hardball_they_bought_all/)
-- [NVDA 5/17 call, $900 strike YOLO. $70k, down $22k.](https://www.reddit.com/r/wallstreetbets/comments/1co7voo/nvda_517_call_900_strike_yolo_70k_down_22k/)
-- [Request: Can we stop with all the “A 30 year old plane in Madagascar had landing gear trouble...Puts on Boeing!!” posts?](https://www.reddit.com/r/wallstreetbets/comments/1co7qbh/request_can_we_stop_with_all_the_a_30_year_old/)
-- [BA](https://www.reddit.com/r/wallstreetbets/comments/1co7ezo/ba/)
+- [Microsoft is hiring a nuclear energy expert to help power its AI and cloud data centers](https://www.reddit.com/r/wallstreetbets/comments/1cp30qj/microsoft_is_hiring_a_nuclear_energy_expert_to/)
+- [Billionaire Druckenmiller slashed his bet in Nvidia “So AI might be a little overhyped now, but underhyped long term.&quot; I I agree](https://www.reddit.com/r/wallstreetbets/comments/1cp1nnl/billionaire_druckenmiller_slashed_his_bet_in/)
+- [Stop Buying Intel Calls - Remember They Have Fucking Sucked Ass Since 2000](https://www.reddit.com/r/wallstreetbets/comments/1cp1iys/stop_buying_intel_calls_remember_they_have/)
+- [Back to green](https://www.reddit.com/r/wallstreetbets/comments/1cp0a53/back_to_green/)
+- [The market when regards get into another hype train &lpar; ALCC &rpar;](https://www.reddit.com/r/wallstreetbets/comments/1cozyu8/the_market_when_regards_get_into_another_hype/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
