@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Microsoft is hiring a nuclear energy expert to help power its AI and cloud data centers](https://www.reddit.com/r/wallstreetbets/comments/1cp30qj/microsoft_is_hiring_a_nuclear_energy_expert_to/)
-- [Billionaire Druckenmiller slashed his bet in Nvidia “So AI might be a little overhyped now, but underhyped long term.&quot; I I agree](https://www.reddit.com/r/wallstreetbets/comments/1cp1nnl/billionaire_druckenmiller_slashed_his_bet_in/)
-- [Stop Buying Intel Calls - Remember They Have Fucking Sucked Ass Since 2000](https://www.reddit.com/r/wallstreetbets/comments/1cp1iys/stop_buying_intel_calls_remember_they_have/)
-- [Back to green](https://www.reddit.com/r/wallstreetbets/comments/1cp0a53/back_to_green/)
-- [The market when regards get into another hype train &lpar; ALCC &rpar;](https://www.reddit.com/r/wallstreetbets/comments/1cozyu8/the_market_when_regards_get_into_another_hype/)
+- [How I sound when I tell my friends I invest myself when in reality my portfolio is bleeding](https://www.reddit.com/r/wallstreetbets/comments/1cpqykn/how_i_sound_when_i_tell_my_friends_i_invest/)
+- [Apple is finalizing a deal with Open AI to add ChatGPT to iPhone](https://www.reddit.com/r/wallstreetbets/comments/1cpqjg5/apple_is_finalizing_a_deal_with_open_ai_to_add/)
+- [Hodl loss p0rn](https://www.reddit.com/r/wallstreetbets/comments/1cpp0r4/hodl_loss_p0rn/)
+- [Europe risks losing its biggest oil companies to America](https://www.reddit.com/r/wallstreetbets/comments/1cpo0ro/europe_risks_losing_its_biggest_oil_companies_to/)
+- [A $600 Billion Wall of Debt Looms Over Market’s Riskiest Stocks. And small caps are well below record high - Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/1cpnpjx/a_600_billion_wall_of_debt_looms_over_markets/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
