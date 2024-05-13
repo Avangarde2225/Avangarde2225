@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How I sound when I tell my friends I invest myself when in reality my portfolio is bleeding](https://www.reddit.com/r/wallstreetbets/comments/1cpqykn/how_i_sound_when_i_tell_my_friends_i_invest/)
-- [Apple is finalizing a deal with Open AI to add ChatGPT to iPhone](https://www.reddit.com/r/wallstreetbets/comments/1cpqjg5/apple_is_finalizing_a_deal_with_open_ai_to_add/)
-- [Hodl loss p0rn](https://www.reddit.com/r/wallstreetbets/comments/1cpp0r4/hodl_loss_p0rn/)
-- [Europe risks losing its biggest oil companies to America](https://www.reddit.com/r/wallstreetbets/comments/1cpo0ro/europe_risks_losing_its_biggest_oil_companies_to/)
-- [A $600 Billion Wall of Debt Looms Over Market’s Riskiest Stocks. And small caps are well below record high - Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/1cpnpjx/a_600_billion_wall_of_debt_looms_over_markets/)
+- [Hedge Fund Billionaire Jim Simons’ Final Interview: $31.4 Billion, 30% Annual Returns &amp; The Secrets to His Empire](https://www.reddit.com/r/wallstreetbets/comments/1cql7xt/hedge_fund_billionaire_jim_simons_final_interview/)
+- [Warren Buffett on Berkshire Hathaway’s Top 10 Stocks for 2024](https://www.reddit.com/r/wallstreetbets/comments/1cqk7k3/warren_buffett_on_berkshire_hathaways_top_10/)
+- [A Response to Low_Ad_1262](https://www.reddit.com/r/wallstreetbets/comments/1cqis7o/a_response_to_low_ad_1262/)
+- [Housing Deflation](https://www.reddit.com/r/wallstreetbets/comments/1cqi6qb/housing_deflation/)
+- [What Are Your Moves Tomorrow, May 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cqgj9o/what_are_your_moves_tomorrow_may_13_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
