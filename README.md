@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hedge Fund Billionaire Jim Simons’ Final Interview: $31.4 Billion, 30% Annual Returns &amp; The Secrets to His Empire](https://www.reddit.com/r/wallstreetbets/comments/1cql7xt/hedge_fund_billionaire_jim_simons_final_interview/)
-- [Warren Buffett on Berkshire Hathaway’s Top 10 Stocks for 2024](https://www.reddit.com/r/wallstreetbets/comments/1cqk7k3/warren_buffett_on_berkshire_hathaways_top_10/)
-- [A Response to Low_Ad_1262](https://www.reddit.com/r/wallstreetbets/comments/1cqis7o/a_response_to_low_ad_1262/)
-- [Housing Deflation](https://www.reddit.com/r/wallstreetbets/comments/1cqi6qb/housing_deflation/)
-- [What Are Your Moves Tomorrow, May 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cqgj9o/what_are_your_moves_tomorrow_may_13_2024/)
+- [😎🤙](https://www.reddit.com/r/wallstreetbets/comments/1crcyug/_/)
+- [My wife’s bf is almost impressed](https://www.reddit.com/r/wallstreetbets/comments/1crc0do/my_wifes_bf_is_almost_impressed/)
+- [💎🖐️](https://www.reddit.com/r/wallstreetbets/comments/1cradff/_/)
+- [93K BB 3.10](https://www.reddit.com/r/wallstreetbets/comments/1cra9sd/93k_bb_310/)
+- [BB YOLO](https://www.reddit.com/r/wallstreetbets/comments/1cr9qa2/bb_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
