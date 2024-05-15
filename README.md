@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [😎🤙](https://www.reddit.com/r/wallstreetbets/comments/1crcyug/_/)
-- [My wife’s bf is almost impressed](https://www.reddit.com/r/wallstreetbets/comments/1crc0do/my_wifes_bf_is_almost_impressed/)
-- [💎🖐️](https://www.reddit.com/r/wallstreetbets/comments/1cradff/_/)
-- [93K BB 3.10](https://www.reddit.com/r/wallstreetbets/comments/1cra9sd/93k_bb_310/)
-- [BB YOLO](https://www.reddit.com/r/wallstreetbets/comments/1cr9qa2/bb_yolo/)
+- [Wanted to jump into a certain stonk at $10.10 but got called a regard, so here’s an angry YOLO in a financially healthy meme](https://www.reddit.com/r/wallstreetbets/comments/1cs6bgp/wanted_to_jump_into_a_certain_stonk_at_1010_but/)
+- [Cyyyyummm on. Bought 145k shares today](https://www.reddit.com/r/wallstreetbets/comments/1cs5i01/cyyyyummm_on_bought_145k_shares_today/)
+- [Justice Department says Boeing breached 2021 agreement that shielded it from criminal charges over 737 Max crashes](https://www.reddit.com/r/wallstreetbets/comments/1cs5f9k/justice_department_says_boeing_breached_2021/)
+- [He speaks again tomorrow at 12:00PM](https://www.reddit.com/r/wallstreetbets/comments/1cs44sw/he_speaks_again_tomorrow_at_1200pm/)
+- [30k AMC Gain](https://www.reddit.com/r/wallstreetbets/comments/1cs3r6a/30k_amc_gain/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
