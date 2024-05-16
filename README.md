@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wanted to jump into a certain stonk at $10.10 but got called a regard, so here’s an angry YOLO in a financially healthy meme](https://www.reddit.com/r/wallstreetbets/comments/1cs6bgp/wanted_to_jump_into_a_certain_stonk_at_1010_but/)
-- [Cyyyyummm on. Bought 145k shares today](https://www.reddit.com/r/wallstreetbets/comments/1cs5i01/cyyyyummm_on_bought_145k_shares_today/)
-- [Justice Department says Boeing breached 2021 agreement that shielded it from criminal charges over 737 Max crashes](https://www.reddit.com/r/wallstreetbets/comments/1cs5f9k/justice_department_says_boeing_breached_2021/)
-- [He speaks again tomorrow at 12:00PM](https://www.reddit.com/r/wallstreetbets/comments/1cs44sw/he_speaks_again_tomorrow_at_1200pm/)
-- [30k AMC Gain](https://www.reddit.com/r/wallstreetbets/comments/1cs3r6a/30k_amc_gain/)
+- [Tesla billionaire investor votes against restoring Elon Musk’s $50 billion pay package](https://www.reddit.com/r/wallstreetbets/comments/1csxtxo/tesla_billionaire_investor_votes_against/)
+- [Once in a Lifetime Trade](https://www.reddit.com/r/wallstreetbets/comments/1csxr2u/once_in_a_lifetime_trade/)
+- [AMC 11k -&gt; 5k…](https://www.reddit.com/r/wallstreetbets/comments/1csxj4t/amc_11k_5k/)
+- [these fuckers burned down my whole town with fire now they&#39;re going to moon without us](https://www.reddit.com/r/wallstreetbets/comments/1csxagi/these_fuckers_burned_down_my_whole_town_with_fire/)
+- [Pick your poison](https://www.reddit.com/r/wallstreetbets/comments/1csw0r8/pick_your_poison/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
