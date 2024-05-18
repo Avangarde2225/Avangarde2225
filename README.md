@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ChatGPT is going to get a lot Dumber. Training on Reddit content LOL.](https://www.reddit.com/r/wallstreetbets/comments/1ctoqen/chatgpt_is_going_to_get_a_lot_dumber_training_on/)
-- [Most Anticipated Earnings Releases for the week beginning May 20th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cto0z5/most_anticipated_earnings_releases_for_the_week/)
-- [$8.8k Gains - Spy poots.](https://www.reddit.com/r/wallstreetbets/comments/1ctngxo/88k_gains_spy_poots/)
-- [I came across this comment from 6 years ago where someone proposed &quot;the Neckbeard Index&quot;. It&#39;s VASTLY outperforming SPY.](https://www.reddit.com/r/wallstreetbets/comments/1ctmc41/i_came_across_this_comment_from_6_years_ago_where/)
-- [What Are Your Moves Tomorrow, May 17, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ctm7q6/what_are_your_moves_tomorrow_may_17_2024/)
+- [PSA - The market will be flat AF Monday. 😂](https://www.reddit.com/r/wallstreetbets/comments/1cufdpp/psa_the_market_will_be_flat_af_monday/)
+- [I am straight up not having a good time](https://www.reddit.com/r/wallstreetbets/comments/1cuf3il/i_am_straight_up_not_having_a_good_time/)
+- [I have got to be one of the most elite losers to ever trade options](https://www.reddit.com/r/wallstreetbets/comments/1cueuj2/i_have_got_to_be_one_of_the_most_elite_losers_to/)
+- [Weekend Discussion Thread for May 17, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cuerdt/weekend_discussion_thread_for_may_17_2024/)
+- [BB to the moon 🌕](https://www.reddit.com/r/wallstreetbets/comments/1cuelwt/bb_to_the_moon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
