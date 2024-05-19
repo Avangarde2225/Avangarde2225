@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PSA - The market will be flat AF Monday. 😂](https://www.reddit.com/r/wallstreetbets/comments/1cufdpp/psa_the_market_will_be_flat_af_monday/)
-- [I am straight up not having a good time](https://www.reddit.com/r/wallstreetbets/comments/1cuf3il/i_am_straight_up_not_having_a_good_time/)
-- [I have got to be one of the most elite losers to ever trade options](https://www.reddit.com/r/wallstreetbets/comments/1cueuj2/i_have_got_to_be_one_of_the_most_elite_losers_to/)
-- [Weekend Discussion Thread for May 17, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cuerdt/weekend_discussion_thread_for_may_17_2024/)
-- [BB to the moon 🌕](https://www.reddit.com/r/wallstreetbets/comments/1cuelwt/bb_to_the_moon/)
+- [SBUX will be over $100 by end of 2024](https://www.reddit.com/r/wallstreetbets/comments/1cvb2jf/sbux_will_be_over_100_by_end_of_2024/)
+- [Couldn’t beat the shorts last time. Joined them this time for 18k gains last week](https://www.reddit.com/r/wallstreetbets/comments/1cvaukl/couldnt_beat_the_shorts_last_time_joined_them/)
+- [BB References in Recent Posts](https://www.reddit.com/r/wallstreetbets/comments/1cval0e/bb_references_in_recent_posts/)
+- [Diamond hands broked me](https://www.reddit.com/r/wallstreetbets/comments/1cva4cf/diamond_hands_broked_me/)
+- [AMC gain almost 7k in less than 2 days](https://www.reddit.com/r/wallstreetbets/comments/1cv95kh/amc_gain_almost_7k_in_less_than_2_days/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
