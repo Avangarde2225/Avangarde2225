@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SBUX will be over $100 by end of 2024](https://www.reddit.com/r/wallstreetbets/comments/1cvb2jf/sbux_will_be_over_100_by_end_of_2024/)
-- [Couldn’t beat the shorts last time. Joined them this time for 18k gains last week](https://www.reddit.com/r/wallstreetbets/comments/1cvaukl/couldnt_beat_the_shorts_last_time_joined_them/)
-- [BB References in Recent Posts](https://www.reddit.com/r/wallstreetbets/comments/1cval0e/bb_references_in_recent_posts/)
-- [Diamond hands broked me](https://www.reddit.com/r/wallstreetbets/comments/1cva4cf/diamond_hands_broked_me/)
-- [AMC gain almost 7k in less than 2 days](https://www.reddit.com/r/wallstreetbets/comments/1cv95kh/amc_gain_almost_7k_in_less_than_2_days/)
+- [Unmasking the Future: A Deep Dive into HOOD](https://www.reddit.com/r/wallstreetbets/comments/1cw2c4h/unmasking_the_future_a_deep_dive_into_hood/)
+- [Inflation goes up by roughly 0.1pp for every 1.00 pp increase in tariffs - Goldman Sachs](https://www.reddit.com/r/wallstreetbets/comments/1cw1984/inflation_goes_up_by_roughly_01pp_for_every_100/)
+- [Leaps &amp; Call Spreads Ladies &amp; Gents](https://www.reddit.com/r/wallstreetbets/comments/1cw0ywq/leaps_call_spreads_ladies_gents/)
+- [GOD I LOVE GAMBLING](https://www.reddit.com/r/wallstreetbets/comments/1cvzcts/god_i_love_gambling/)
+- [Regarded positions in comments &lpar;1.5k -&gt; 50k -&gt; 2.5k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1cvz4t9/regarded_positions_in_comments_15k_50k_25k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
