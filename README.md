@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Unmasking the Future: A Deep Dive into HOOD](https://www.reddit.com/r/wallstreetbets/comments/1cw2c4h/unmasking_the_future_a_deep_dive_into_hood/)
-- [Inflation goes up by roughly 0.1pp for every 1.00 pp increase in tariffs - Goldman Sachs](https://www.reddit.com/r/wallstreetbets/comments/1cw1984/inflation_goes_up_by_roughly_01pp_for_every_100/)
-- [Leaps &amp; Call Spreads Ladies &amp; Gents](https://www.reddit.com/r/wallstreetbets/comments/1cw0ywq/leaps_call_spreads_ladies_gents/)
-- [GOD I LOVE GAMBLING](https://www.reddit.com/r/wallstreetbets/comments/1cvzcts/god_i_love_gambling/)
-- [Regarded positions in comments &lpar;1.5k -&gt; 50k -&gt; 2.5k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1cvz4t9/regarded_positions_in_comments_15k_50k_25k/)
+- [Netflix is raising its subscription prices by another 11%, CEO confirms](https://www.reddit.com/r/wallstreetbets/comments/1cwtpxz/netflix_is_raising_its_subscription_prices_by/)
+- [Trump Media lost more than $300 million last quarter on very little revenue](https://www.reddit.com/r/wallstreetbets/comments/1cwrdom/trump_media_lost_more_than_300_million_last/)
+- [What Are Your Moves Tomorrow, May 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cwous5/what_are_your_moves_tomorrow_may_21_2024/)
+- [Red Lobster probes &quot;endless shrimp&quot; losses after bankruptcy filing](https://www.reddit.com/r/wallstreetbets/comments/1cwos1b/red_lobster_probes_endless_shrimp_losses_after/)
+- [+$1M on ASTS](https://www.reddit.com/r/wallstreetbets/comments/1cwn2h6/1m_on_asts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
