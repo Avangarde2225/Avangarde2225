@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Netflix is raising its subscription prices by another 11%, CEO confirms](https://www.reddit.com/r/wallstreetbets/comments/1cwtpxz/netflix_is_raising_its_subscription_prices_by/)
-- [Trump Media lost more than $300 million last quarter on very little revenue](https://www.reddit.com/r/wallstreetbets/comments/1cwrdom/trump_media_lost_more_than_300_million_last/)
-- [What Are Your Moves Tomorrow, May 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1cwous5/what_are_your_moves_tomorrow_may_21_2024/)
-- [Red Lobster probes &quot;endless shrimp&quot; losses after bankruptcy filing](https://www.reddit.com/r/wallstreetbets/comments/1cwos1b/red_lobster_probes_endless_shrimp_losses_after/)
-- [+$1M on ASTS](https://www.reddit.com/r/wallstreetbets/comments/1cwn2h6/1m_on_asts/)
+- [SPY YOLO ~50k](https://www.reddit.com/r/wallstreetbets/comments/1cxldn4/spy_yolo_50k/)
+- [Elon Musk topples Bezos as world’s 2nd richest person after $6 billion Tesla surge](https://www.reddit.com/r/wallstreetbets/comments/1cxkrg4/elon_musk_topples_bezos_as_worlds_2nd_richest/)
+- [Amazon says it has not halted any Nvidia chip order](https://www.reddit.com/r/wallstreetbets/comments/1cxjht9/amazon_says_it_has_not_halted_any_nvidia_chip/)
+- [NVDA up 22,239%](https://www.reddit.com/r/wallstreetbets/comments/1cxiz6u/nvda_up_22239/)
+- [Nvidia&#39;s self driving program will crash Tesla tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1cxi7lc/nvidias_self_driving_program_will_crash_tesla/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
