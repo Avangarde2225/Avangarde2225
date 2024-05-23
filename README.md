@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPY YOLO ~50k](https://www.reddit.com/r/wallstreetbets/comments/1cxldn4/spy_yolo_50k/)
-- [Elon Musk topples Bezos as world’s 2nd richest person after $6 billion Tesla surge](https://www.reddit.com/r/wallstreetbets/comments/1cxkrg4/elon_musk_topples_bezos_as_worlds_2nd_richest/)
-- [Amazon says it has not halted any Nvidia chip order](https://www.reddit.com/r/wallstreetbets/comments/1cxjht9/amazon_says_it_has_not_halted_any_nvidia_chip/)
-- [NVDA up 22,239%](https://www.reddit.com/r/wallstreetbets/comments/1cxiz6u/nvda_up_22239/)
-- [Nvidia&#39;s self driving program will crash Tesla tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1cxi7lc/nvidias_self_driving_program_will_crash_tesla/)
+- [Keep digging, regards](https://www.reddit.com/r/wallstreetbets/comments/1cyf9d5/keep_digging_regards/)
+- [IV crush these](https://www.reddit.com/r/wallstreetbets/comments/1cydg52/iv_crush_these/)
+- [10k in 10 seconds on Nvidia earnings release, NQ futures](https://www.reddit.com/r/wallstreetbets/comments/1cyclj5/10k_in_10_seconds_on_nvidia_earnings_release_nq/)
+- [If NVDA bears were alive in 1850, they would have shorted the pick and shovels companies during the California gold rush](https://www.reddit.com/r/wallstreetbets/comments/1cybua5/if_nvda_bears_were_alive_in_1850_they_would_have/)
+- [Nvidia&#39;s Q1 Earnings Visualized](https://www.reddit.com/r/wallstreetbets/comments/1cyblbu/nvidias_q1_earnings_visualized/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
