@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Keep digging, regards](https://www.reddit.com/r/wallstreetbets/comments/1cyf9d5/keep_digging_regards/)
-- [IV crush these](https://www.reddit.com/r/wallstreetbets/comments/1cydg52/iv_crush_these/)
-- [10k in 10 seconds on Nvidia earnings release, NQ futures](https://www.reddit.com/r/wallstreetbets/comments/1cyclj5/10k_in_10_seconds_on_nvidia_earnings_release_nq/)
-- [If NVDA bears were alive in 1850, they would have shorted the pick and shovels companies during the California gold rush](https://www.reddit.com/r/wallstreetbets/comments/1cybua5/if_nvda_bears_were_alive_in_1850_they_would_have/)
-- [Nvidia&#39;s Q1 Earnings Visualized](https://www.reddit.com/r/wallstreetbets/comments/1cyblbu/nvidias_q1_earnings_visualized/)
+- [Here’s My Super Micro PP &lpar;Put Profit&rpar; - $1800 to $8000 🍆](https://www.reddit.com/r/wallstreetbets/comments/1cz6uv8/heres_my_super_micro_pp_put_profit_1800_to_8000/)
+- [Bought NVDA shares back in 2022 on an account that was doing really bad so I stopped looking at it until 2024 lol](https://www.reddit.com/r/wallstreetbets/comments/1cz63ga/bought_nvda_shares_back_in_2022_on_an_account/)
+- [All-In on NVDA Puts, Yoga Saved Me, Diamond Hands Paid Off! 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/1cz5l4f/allin_on_nvda_puts_yoga_saved_me_diamond_hands/)
+- [Accidental NVDA gains](https://www.reddit.com/r/wallstreetbets/comments/1cz4swk/accidental_nvda_gains/)
+- [$TNDM to present a “company update” June 6th 🚀](https://www.reddit.com/r/wallstreetbets/comments/1cz4ed3/tndm_to_present_a_company_update_june_6th/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
