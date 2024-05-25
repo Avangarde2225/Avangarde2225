@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Here’s My Super Micro PP &lpar;Put Profit&rpar; - $1800 to $8000 🍆](https://www.reddit.com/r/wallstreetbets/comments/1cz6uv8/heres_my_super_micro_pp_put_profit_1800_to_8000/)
-- [Bought NVDA shares back in 2022 on an account that was doing really bad so I stopped looking at it until 2024 lol](https://www.reddit.com/r/wallstreetbets/comments/1cz63ga/bought_nvda_shares_back_in_2022_on_an_account/)
-- [All-In on NVDA Puts, Yoga Saved Me, Diamond Hands Paid Off! 💎🙌](https://www.reddit.com/r/wallstreetbets/comments/1cz5l4f/allin_on_nvda_puts_yoga_saved_me_diamond_hands/)
-- [Accidental NVDA gains](https://www.reddit.com/r/wallstreetbets/comments/1cz4swk/accidental_nvda_gains/)
-- [$TNDM to present a “company update” June 6th 🚀](https://www.reddit.com/r/wallstreetbets/comments/1cz4ed3/tndm_to_present_a_company_update_june_6th/)
+- [our lawd and savior nvdia](https://www.reddit.com/r/wallstreetbets/comments/1czuxka/our_lawd_and_savior_nvdia/)
+- [Anyone know what a cuda is?](https://www.reddit.com/r/wallstreetbets/comments/1czupu0/anyone_know_what_a_cuda_is/)
+- [Which one of you regards bought my 0dte RIVN calls 5 seconds before the bell rang?](https://www.reddit.com/r/wallstreetbets/comments/1cztx4y/which_one_of_you_regards_bought_my_0dte_rivn/)
+- [NVDA Gainz $200k+, max margin, concentrated position](https://www.reddit.com/r/wallstreetbets/comments/1cztwn7/nvda_gainz_200k_max_margin_concentrated_position/)
+- [Weekend Discussion Thread for May 24, 2024](https://www.reddit.com/r/wallstreetbets/comments/1czttjf/weekend_discussion_thread_for_may_24_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
