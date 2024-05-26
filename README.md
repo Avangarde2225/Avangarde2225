@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [our lawd and savior nvdia](https://www.reddit.com/r/wallstreetbets/comments/1czuxka/our_lawd_and_savior_nvdia/)
-- [Anyone know what a cuda is?](https://www.reddit.com/r/wallstreetbets/comments/1czupu0/anyone_know_what_a_cuda_is/)
-- [Which one of you regards bought my 0dte RIVN calls 5 seconds before the bell rang?](https://www.reddit.com/r/wallstreetbets/comments/1cztx4y/which_one_of_you_regards_bought_my_0dte_rivn/)
-- [NVDA Gainz $200k+, max margin, concentrated position](https://www.reddit.com/r/wallstreetbets/comments/1cztwn7/nvda_gainz_200k_max_margin_concentrated_position/)
-- [Weekend Discussion Thread for May 24, 2024](https://www.reddit.com/r/wallstreetbets/comments/1czttjf/weekend_discussion_thread_for_may_24_2024/)
+- [NVDA Chips in Windows PCs](https://www.reddit.com/r/wallstreetbets/comments/1d0onan/nvda_chips_in_windows_pcs/)
+- [Fed’s Favorite Underlying Inflation Gauge Is Seen Cooling](https://www.reddit.com/r/wallstreetbets/comments/1d0o9h6/feds_favorite_underlying_inflation_gauge_is_seen/)
+- [Globalstar &lpar;$GSAT&rpar;: A Contrarian Play on a Falling Satellite?](https://www.reddit.com/r/wallstreetbets/comments/1d0neq4/globalstar_gsat_a_contrarian_play_on_a_falling/)
+- [Costco regarded play](https://www.reddit.com/r/wallstreetbets/comments/1d0n7vz/costco_regarded_play/)
+- [Met the legend himself](https://www.reddit.com/r/wallstreetbets/comments/1d0mmsi/met_the_legend_himself/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
