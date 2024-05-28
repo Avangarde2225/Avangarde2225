@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on Nvda](https://www.reddit.com/r/wallstreetbets/comments/1d1et3z/puts_on_nvda/)
-- [YOLO’d 21k into sqqq calls](https://www.reddit.com/r/wallstreetbets/comments/1d1c2o1/yolod_21k_into_sqqq_calls/)
-- [Musk to build most powerful AI supercomputer powered by 100,000 Nvidia chips](https://www.reddit.com/r/wallstreetbets/comments/1d1bqpi/musk_to_build_most_powerful_ai_supercomputer/)
-- [Apple should not create its own Generative AI](https://www.reddit.com/r/wallstreetbets/comments/1d1bbxh/apple_should_not_create_its_own_generative_ai/)
-- [What are we buying in June? $nvda? $mstr? $fslr? $dell?](https://www.reddit.com/r/wallstreetbets/comments/1d1an1m/what_are_we_buying_in_june_nvda_mstr_fslr_dell/)
+- [Rumor: Lucid and Hyundai Partnership](https://www.reddit.com/r/wallstreetbets/comments/1d267xd/rumor_lucid_and_hyundai_partnership/)
+- [ASML 🤔](https://www.reddit.com/r/wallstreetbets/comments/1d25pd7/asml/)
+- [NVDA bulls, prepare for wife changing money, again. NVDA bears, prepare for a lifetime of public transportation, again.](https://www.reddit.com/r/wallstreetbets/comments/1d25n9i/nvda_bulls_prepare_for_wife_changing_money_again/)
+- [NVDIA will reach $1120 Tomorrow. DD](https://www.reddit.com/r/wallstreetbets/comments/1d25mox/nvdia_will_reach_1120_tomorrow_dd/)
+- [MPW….has the ship turned? I’m saying it has.](https://www.reddit.com/r/wallstreetbets/comments/1d235n6/mpwhas_the_ship_turned_im_saying_it_has/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
