@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVDA, They all told me we are going to 1200 after DELL reports today. Nice knowing everyone.](https://www.reddit.com/r/wallstreetbets/comments/1d4gs1p/nvda_they_all_told_me_we_are_going_to_1200_after/)
-- [Donald Trump guilty on all 34 counts at hush money trial](https://www.reddit.com/r/wallstreetbets/comments/1d4emia/donald_trump_guilty_on_all_34_counts_at_hush/)
-- [Salesforce dropped 20% today. Its insiders sold $1 bn during last 7 months 😀](https://www.reddit.com/r/wallstreetbets/comments/1d4ei8a/salesforce_dropped_20_today_its_insiders_sold_1/)
-- [hilarious](https://www.reddit.com/r/wallstreetbets/comments/1d4efsm/hilarious/)
-- [Nvidia Stock Could Mirror Cisco’s Early 2000s Collapse, Warns Investor](https://www.reddit.com/r/wallstreetbets/comments/1d4dl0w/nvidia_stock_could_mirror_ciscos_early_2000s/)
+- [Thank you from the bottom of my heart](https://www.reddit.com/r/wallstreetbets/comments/1d59h6d/thank_you_from_the_bottom_of_my_heart/)
+- [$233-&gt;$5250. Thanks SPY](https://www.reddit.com/r/wallstreetbets/comments/1d57uvu/2335250_thanks_spy/)
+- [Tesla investor accuses Elon Musk of $7.5 billion of insider trades, new lawsuit reveals](https://www.reddit.com/r/wallstreetbets/comments/1d57s21/tesla_investor_accuses_elon_musk_of_75_billion_of/)
+- [My wife took our daughter to her parents because I spend too much time working. I&#39;m the sole provider. She is a SAHM.](https://www.reddit.com/r/wallstreetbets/comments/1d576fv/my_wife_took_our_daughter_to_her_parents_because/)
+- [+1400%/$4.5m on 0 dte, new personal record](https://www.reddit.com/r/wallstreetbets/comments/1d5667t/140045m_on_0_dte_new_personal_record/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
