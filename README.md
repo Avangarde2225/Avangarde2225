@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How to become a millionaire within 6 months - Altimmune &lpar;ALT&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1d60anz/how_to_become_a_millionaire_within_6_months/)
-- [Warren Buffett portfolio as of 1Q 2024](https://www.reddit.com/r/wallstreetbets/comments/1d5yhuy/warren_buffett_portfolio_as_of_1q_2024/)
-- [St. Louis Fed Financial Stress Index printing a decade record in low financial stress.](https://www.reddit.com/r/wallstreetbets/comments/1d5ydv2/st_louis_fed_financial_stress_index_printing_a/)
-- [A series of bad decisions, what now?](https://www.reddit.com/r/wallstreetbets/comments/1d5y820/a_series_of_bad_decisions_what_now/)
-- [TSLA after stock split crashed by more than 60%.](https://www.reddit.com/r/wallstreetbets/comments/1d5xuhp/tsla_after_stock_split_crashed_by_more_than_60/)
+- [Required Pre-flight Safety Video](https://www.reddit.com/r/wallstreetbets/comments/1d6rn40/required_preflight_safety_video/)
+- [Is this accurate?](https://www.reddit.com/r/wallstreetbets/comments/1d6renn/is_this_accurate/)
+- [The United States is Entering Its Next Golden Age](https://www.reddit.com/r/wallstreetbets/comments/1d6rbcz/the_united_states_is_entering_its_next_golden_age/)
+- [Ladies and gentlemen](https://www.reddit.com/r/wallstreetbets/comments/1d6razc/ladies_and_gentlemen/)
+- [Should I have sold all?](https://www.reddit.com/r/wallstreetbets/comments/1d6qas9/should_i_have_sold_all/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
