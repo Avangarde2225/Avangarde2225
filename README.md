@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Required Pre-flight Safety Video](https://www.reddit.com/r/wallstreetbets/comments/1d6rn40/required_preflight_safety_video/)
-- [Is this accurate?](https://www.reddit.com/r/wallstreetbets/comments/1d6renn/is_this_accurate/)
-- [The United States is Entering Its Next Golden Age](https://www.reddit.com/r/wallstreetbets/comments/1d6rbcz/the_united_states_is_entering_its_next_golden_age/)
-- [Ladies and gentlemen](https://www.reddit.com/r/wallstreetbets/comments/1d6razc/ladies_and_gentlemen/)
-- [Should I have sold all?](https://www.reddit.com/r/wallstreetbets/comments/1d6qas9/should_i_have_sold_all/)
+- [Bought BRK A worth 700K with less than 500 in my IBKR cash account. What are the consequences or benefits?](https://www.reddit.com/r/wallstreetbets/comments/1d7j7ac/bought_brk_a_worth_700k_with_less_than_500_in_my/)
+- [My NVDA wild ride &lpar;$832k gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1d7i5lu/my_nvda_wild_ride_832k_gain/)
+- [Got filled at $675k on cash settled account BRK.A](https://www.reddit.com/r/wallstreetbets/comments/1d7glgw/got_filled_at_675k_on_cash_settled_account_brka/)
+- [Berkshire Hathaway&#39;s $900 billion stock glitch &#39;fixed&#39;. Warren Buffett regains $136 billion fortune on rich list](https://www.reddit.com/r/wallstreetbets/comments/1d7gbmj/berkshire_hathaways_900_billion_stock_glitch/)
+- [LULU is getting exposed](https://www.reddit.com/r/wallstreetbets/comments/1d7fpr6/lulu_is_getting_exposed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
