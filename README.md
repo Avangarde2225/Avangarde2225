@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought BRK A worth 700K with less than 500 in my IBKR cash account. What are the consequences or benefits?](https://www.reddit.com/r/wallstreetbets/comments/1d7j7ac/bought_brk_a_worth_700k_with_less_than_500_in_my/)
-- [My NVDA wild ride &lpar;$832k gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1d7i5lu/my_nvda_wild_ride_832k_gain/)
-- [Got filled at $675k on cash settled account BRK.A](https://www.reddit.com/r/wallstreetbets/comments/1d7glgw/got_filled_at_675k_on_cash_settled_account_brka/)
-- [Berkshire Hathaway&#39;s $900 billion stock glitch &#39;fixed&#39;. Warren Buffett regains $136 billion fortune on rich list](https://www.reddit.com/r/wallstreetbets/comments/1d7gbmj/berkshire_hathaways_900_billion_stock_glitch/)
-- [LULU is getting exposed](https://www.reddit.com/r/wallstreetbets/comments/1d7fpr6/lulu_is_getting_exposed/)
+- [Can You Guess When I Started Trading Options?](https://www.reddit.com/r/wallstreetbets/comments/1d8bhse/can_you_guess_when_i_started_trading_options/)
+- [Aramco, Woodside Said in Talks to Invest in Tellurian LNG Plant $Tell](https://www.reddit.com/r/wallstreetbets/comments/1d8bddd/aramco_woodside_said_in_talks_to_invest_in/)
+- [Berkshire Hathaway stock suffers worst loss in 4 months one day after glitch. Buffett’s net worth plummets $3 billion](https://www.reddit.com/r/wallstreetbets/comments/1d8az5r/berkshire_hathaway_stock_suffers_worst_loss_in_4/)
+- [How would you hedge this ridiculous concentrated stock position?](https://www.reddit.com/r/wallstreetbets/comments/1d8a50j/how_would_you_hedge_this_ridiculous_concentrated/)
+- [What Are Your Moves Tomorrow, June 5, 2024](https://www.reddit.com/r/wallstreetbets/comments/1d86jut/what_are_your_moves_tomorrow_june_5_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
