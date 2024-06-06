@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Can You Guess When I Started Trading Options?](https://www.reddit.com/r/wallstreetbets/comments/1d8bhse/can_you_guess_when_i_started_trading_options/)
-- [Aramco, Woodside Said in Talks to Invest in Tellurian LNG Plant $Tell](https://www.reddit.com/r/wallstreetbets/comments/1d8bddd/aramco_woodside_said_in_talks_to_invest_in/)
-- [Berkshire Hathaway stock suffers worst loss in 4 months one day after glitch. Buffett’s net worth plummets $3 billion](https://www.reddit.com/r/wallstreetbets/comments/1d8az5r/berkshire_hathaway_stock_suffers_worst_loss_in_4/)
-- [How would you hedge this ridiculous concentrated stock position?](https://www.reddit.com/r/wallstreetbets/comments/1d8a50j/how_would_you_hedge_this_ridiculous_concentrated/)
-- [What Are Your Moves Tomorrow, June 5, 2024](https://www.reddit.com/r/wallstreetbets/comments/1d86jut/what_are_your_moves_tomorrow_june_5_2024/)
+- [$NVDA](https://www.reddit.com/r/wallstreetbets/comments/1d9423a/nvda/)
+- [Had to do a double take…](https://www.reddit.com/r/wallstreetbets/comments/1d93d5k/had_to_do_a_double_take/)
+- [Lost $40k in 2022, tossed it into NVDA and now just passed $200k](https://www.reddit.com/r/wallstreetbets/comments/1d92p7j/lost_40k_in_2022_tossed_it_into_nvda_and_now_just/)
+- [Making them get long 🍆](https://www.reddit.com/r/wallstreetbets/comments/1d918ej/making_them_get_long/)
+- [Started investing in 2018 at 15.](https://www.reddit.com/r/wallstreetbets/comments/1d8zwu4/started_investing_in_2018_at_15/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
