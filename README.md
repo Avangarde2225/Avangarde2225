@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$NVDA](https://www.reddit.com/r/wallstreetbets/comments/1d9423a/nvda/)
-- [Had to do a double take…](https://www.reddit.com/r/wallstreetbets/comments/1d93d5k/had_to_do_a_double_take/)
-- [Lost $40k in 2022, tossed it into NVDA and now just passed $200k](https://www.reddit.com/r/wallstreetbets/comments/1d92p7j/lost_40k_in_2022_tossed_it_into_nvda_and_now_just/)
-- [Making them get long 🍆](https://www.reddit.com/r/wallstreetbets/comments/1d918ej/making_them_get_long/)
-- [Started investing in 2018 at 15.](https://www.reddit.com/r/wallstreetbets/comments/1d8zwu4/started_investing_in_2018_at_15/)
+- [Rivian redesigns all-electric R1 pickup and SUV, adds Nvidia chips](https://www.reddit.com/r/wallstreetbets/comments/1d9tqy0/rivian_redesigns_allelectric_r1_pickup_and_suv/)
+- [First option trade today](https://www.reddit.com/r/wallstreetbets/comments/1d9t59s/first_option_trade_today/)
+- [Regard Gains](https://www.reddit.com/r/wallstreetbets/comments/1d9t32g/regard_gains/)
+- [Short bets against Nvidia stand at $34 billion](https://www.reddit.com/r/wallstreetbets/comments/1d9so0a/short_bets_against_nvidia_stand_at_34_billion/)
+- [Gay bear anthem &lpar;GRND&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1d9sl8b/gay_bear_anthem_grnd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
