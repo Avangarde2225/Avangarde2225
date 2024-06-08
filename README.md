@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Rivian redesigns all-electric R1 pickup and SUV, adds Nvidia chips](https://www.reddit.com/r/wallstreetbets/comments/1d9tqy0/rivian_redesigns_allelectric_r1_pickup_and_suv/)
-- [First option trade today](https://www.reddit.com/r/wallstreetbets/comments/1d9t59s/first_option_trade_today/)
-- [Regard Gains](https://www.reddit.com/r/wallstreetbets/comments/1d9t32g/regard_gains/)
-- [Short bets against Nvidia stand at $34 billion](https://www.reddit.com/r/wallstreetbets/comments/1d9so0a/short_bets_against_nvidia_stand_at_34_billion/)
-- [Gay bear anthem &lpar;GRND&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1d9sl8b/gay_bear_anthem_grnd/)
+- [Time to get out. NVDA done me good.](https://www.reddit.com/r/wallstreetbets/comments/1daowrv/time_to_get_out_nvda_done_me_good/)
+- [Spy gain porn](https://www.reddit.com/r/wallstreetbets/comments/1dan1ok/spy_gain_porn/)
+- [How many of you were actually around and actively trading at the end of 2007 and through the first half of 2008?](https://www.reddit.com/r/wallstreetbets/comments/1dalhpz/how_many_of_you_were_actually_around_and_actively/)
+- [The Canary in the Coal Mine: Money Market Funds and Why Equities are Poised to Drop](https://www.reddit.com/r/wallstreetbets/comments/1dakbgd/the_canary_in_the_coal_mine_money_market_funds/)
+- [Weekend Discussion Thread for June 7, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dak8lf/weekend_discussion_thread_for_june_7_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
