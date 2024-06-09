@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Time to get out. NVDA done me good.](https://www.reddit.com/r/wallstreetbets/comments/1daowrv/time_to_get_out_nvda_done_me_good/)
-- [Spy gain porn](https://www.reddit.com/r/wallstreetbets/comments/1dan1ok/spy_gain_porn/)
-- [How many of you were actually around and actively trading at the end of 2007 and through the first half of 2008?](https://www.reddit.com/r/wallstreetbets/comments/1dalhpz/how_many_of_you_were_actually_around_and_actively/)
-- [The Canary in the Coal Mine: Money Market Funds and Why Equities are Poised to Drop](https://www.reddit.com/r/wallstreetbets/comments/1dakbgd/the_canary_in_the_coal_mine_money_market_funds/)
-- [Weekend Discussion Thread for June 7, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dak8lf/weekend_discussion_thread_for_june_7_2024/)
+- [Watch the freight prices - ticktock ticktock](https://www.reddit.com/r/wallstreetbets/comments/1dbfzx6/watch_the_freight_prices_ticktock_ticktock/)
+- [Occindetal Petroleum $OXY](https://www.reddit.com/r/wallstreetbets/comments/1dbfbpz/occindetal_petroleum_oxy/)
+- [GoDaddy and CrowdStrike Will Join the S&amp;P 500 Later This Month](https://www.reddit.com/r/wallstreetbets/comments/1dbez3r/godaddy_and_crowdstrike_will_join_the_sp_500/)
+- [USD. Q2M3W2. Macro Analysis. Key and leading macroeconomic indicators and their impact on each of the U.S. Dollar Index.](https://www.reddit.com/r/wallstreetbets/comments/1dbevxh/usd_q2m3w2_macro_analysis_key_and_leading/)
+- [Why do people buy ARM over SoftBank?](https://www.reddit.com/r/wallstreetbets/comments/1dbege0/why_do_people_buy_arm_over_softbank/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
