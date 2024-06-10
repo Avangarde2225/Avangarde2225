@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Watch the freight prices - ticktock ticktock](https://www.reddit.com/r/wallstreetbets/comments/1dbfzx6/watch_the_freight_prices_ticktock_ticktock/)
-- [Occindetal Petroleum $OXY](https://www.reddit.com/r/wallstreetbets/comments/1dbfbpz/occindetal_petroleum_oxy/)
-- [GoDaddy and CrowdStrike Will Join the S&amp;P 500 Later This Month](https://www.reddit.com/r/wallstreetbets/comments/1dbez3r/godaddy_and_crowdstrike_will_join_the_sp_500/)
-- [USD. Q2M3W2. Macro Analysis. Key and leading macroeconomic indicators and their impact on each of the U.S. Dollar Index.](https://www.reddit.com/r/wallstreetbets/comments/1dbevxh/usd_q2m3w2_macro_analysis_key_and_leading/)
-- [Why do people buy ARM over SoftBank?](https://www.reddit.com/r/wallstreetbets/comments/1dbege0/why_do_people_buy_arm_over_softbank/)
+- [Nvidia is responsible for 36% of the TOTAL market cap gained this year by the S&amp;P 500.](https://www.reddit.com/r/wallstreetbets/comments/1dc87fg/nvidia_is_responsible_for_36_of_the_total_market/)
+- [Elon is a loose cannon](https://www.reddit.com/r/wallstreetbets/comments/1dc7l40/elon_is_a_loose_cannon/)
+- [What Are Your Moves Tomorrow, June 10, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dc2ory/what_are_your_moves_tomorrow_june_10_2024/)
+- [Mr. Powell having a hard time seeing the stagflation.](https://www.reddit.com/r/wallstreetbets/comments/1dc23l4/mr_powell_having_a_hard_time_seeing_the/)
+- [Remembering History: The Hunt Brothers and Silver &lpar;1979-1980&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dbyvz1/remembering_history_the_hunt_brothers_and_silver/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
