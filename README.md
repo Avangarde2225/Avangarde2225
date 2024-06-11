@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nvidia is responsible for 36% of the TOTAL market cap gained this year by the S&amp;P 500.](https://www.reddit.com/r/wallstreetbets/comments/1dc87fg/nvidia_is_responsible_for_36_of_the_total_market/)
-- [Elon is a loose cannon](https://www.reddit.com/r/wallstreetbets/comments/1dc7l40/elon_is_a_loose_cannon/)
-- [What Are Your Moves Tomorrow, June 10, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dc2ory/what_are_your_moves_tomorrow_june_10_2024/)
-- [Mr. Powell having a hard time seeing the stagflation.](https://www.reddit.com/r/wallstreetbets/comments/1dc23l4/mr_powell_having_a_hard_time_seeing_the/)
-- [Remembering History: The Hunt Brothers and Silver &lpar;1979-1980&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dbyvz1/remembering_history_the_hunt_brothers_and_silver/)
+- [e Nvidia for $14 per share](https://www.reddit.com/r/wallstreetbets/comments/1dd0qu9/e_nvidia_for_14_per_share/)
+- [10k GOOG gains in an hour](https://www.reddit.com/r/wallstreetbets/comments/1dczwjs/10k_goog_gains_in_an_hour/)
+- [I don’t know what to do . My head hurts](https://www.reddit.com/r/wallstreetbets/comments/1dcxwuf/i_dont_know_what_to_do_my_head_hurts/)
+- [Intel backs away from Israel as a sight for next-gen fab expansion to focus on Ohio, remains committed to Israel as largest tech employer.](https://www.reddit.com/r/wallstreetbets/comments/1dcx0tz/intel_backs_away_from_israel_as_a_sight_for/)
+- [Interesting analyst quote on Apple’s half-baked AI debut.](https://www.reddit.com/r/wallstreetbets/comments/1dcwo7f/interesting_analyst_quote_on_apples_halfbaked_ai/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
