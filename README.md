@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [e Nvidia for $14 per share](https://www.reddit.com/r/wallstreetbets/comments/1dd0qu9/e_nvidia_for_14_per_share/)
-- [10k GOOG gains in an hour](https://www.reddit.com/r/wallstreetbets/comments/1dczwjs/10k_goog_gains_in_an_hour/)
-- [I don’t know what to do . My head hurts](https://www.reddit.com/r/wallstreetbets/comments/1dcxwuf/i_dont_know_what_to_do_my_head_hurts/)
-- [Intel backs away from Israel as a sight for next-gen fab expansion to focus on Ohio, remains committed to Israel as largest tech employer.](https://www.reddit.com/r/wallstreetbets/comments/1dcx0tz/intel_backs_away_from_israel_as_a_sight_for/)
-- [Interesting analyst quote on Apple’s half-baked AI debut.](https://www.reddit.com/r/wallstreetbets/comments/1dcwo7f/interesting_analyst_quote_on_apples_halfbaked_ai/)
+- [Thanks Apple 🍏](https://www.reddit.com/r/wallstreetbets/comments/1ddsfsc/thanks_apple/)
+- [Big Tim Apple Energy](https://www.reddit.com/r/wallstreetbets/comments/1ddr8qw/big_tim_apple_energy/)
+- [Raspberry Pi is now a public company](https://www.reddit.com/r/wallstreetbets/comments/1ddr557/raspberry_pi_is_now_a_public_company/)
+- [&lpar;Trading Strategy&rpar; The stock market hasn’t had a negative FOMC week in the past year. How to profit from this phenomenon.](https://www.reddit.com/r/wallstreetbets/comments/1ddqey1/trading_strategy_the_stock_market_hasnt_had_a/)
+- [AAPL vent](https://www.reddit.com/r/wallstreetbets/comments/1ddpzzg/aapl_vent/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
