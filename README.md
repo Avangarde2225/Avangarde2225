@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks Apple 🍏](https://www.reddit.com/r/wallstreetbets/comments/1ddsfsc/thanks_apple/)
-- [Big Tim Apple Energy](https://www.reddit.com/r/wallstreetbets/comments/1ddr8qw/big_tim_apple_energy/)
-- [Raspberry Pi is now a public company](https://www.reddit.com/r/wallstreetbets/comments/1ddr557/raspberry_pi_is_now_a_public_company/)
-- [&lpar;Trading Strategy&rpar; The stock market hasn’t had a negative FOMC week in the past year. How to profit from this phenomenon.](https://www.reddit.com/r/wallstreetbets/comments/1ddqey1/trading_strategy_the_stock_market_hasnt_had_a/)
-- [AAPL vent](https://www.reddit.com/r/wallstreetbets/comments/1ddpzzg/aapl_vent/)
+- [GRND is haram 😔](https://www.reddit.com/r/wallstreetbets/comments/1del1h5/grnd_is_haram/)
+- [Daddy&#39;s New Portfolio](https://www.reddit.com/r/wallstreetbets/comments/1deil7z/daddys_new_portfolio/)
+- [AVGO yolo](https://www.reddit.com/r/wallstreetbets/comments/1deh1u8/avgo_yolo/)
+- [Broadcom &lpar;AVGO&rpar; crushes earnings again, annouces 10:1 split on July 15](https://www.reddit.com/r/wallstreetbets/comments/1degt7y/broadcom_avgo_crushes_earnings_again_annouces_101/)
+- [What Are Your Moves Tomorrow, June 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1defzaq/what_are_your_moves_tomorrow_june_13_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
