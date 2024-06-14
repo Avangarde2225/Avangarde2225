@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GRND is haram 😔](https://www.reddit.com/r/wallstreetbets/comments/1del1h5/grnd_is_haram/)
-- [Daddy&#39;s New Portfolio](https://www.reddit.com/r/wallstreetbets/comments/1deil7z/daddys_new_portfolio/)
-- [AVGO yolo](https://www.reddit.com/r/wallstreetbets/comments/1deh1u8/avgo_yolo/)
-- [Broadcom &lpar;AVGO&rpar; crushes earnings again, annouces 10:1 split on July 15](https://www.reddit.com/r/wallstreetbets/comments/1degt7y/broadcom_avgo_crushes_earnings_again_annouces_101/)
-- [What Are Your Moves Tomorrow, June 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1defzaq/what_are_your_moves_tomorrow_june_13_2024/)
+- [Apple has climbed from #3 to #1 in market cap this week.](https://www.reddit.com/r/wallstreetbets/comments/1dfbpan/apple_has_climbed_from_3_to_1_in_market_cap_this/)
+- [All You Need is Attention &lpar;NVDA is an overpriced bubble&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dfb2jf/all_you_need_is_attention_nvda_is_an_overpriced/)
+- [Tyson Foods suspends CFO after second arrest](https://www.reddit.com/r/wallstreetbets/comments/1dfa0sx/tyson_foods_suspends_cfo_after_second_arrest/)
+- [Tesla shareholders vote to reinstate Elon Musk’s $56 billion pay package](https://www.reddit.com/r/wallstreetbets/comments/1df9yr7/tesla_shareholders_vote_to_reinstate_elon_musks/)
+- [Most Anticipated Earnings Releases for the week beginning June 17th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1df9ucb/most_anticipated_earnings_releases_for_the_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
