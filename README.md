@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple has climbed from #3 to #1 in market cap this week.](https://www.reddit.com/r/wallstreetbets/comments/1dfbpan/apple_has_climbed_from_3_to_1_in_market_cap_this/)
-- [All You Need is Attention &lpar;NVDA is an overpriced bubble&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dfb2jf/all_you_need_is_attention_nvda_is_an_overpriced/)
-- [Tyson Foods suspends CFO after second arrest](https://www.reddit.com/r/wallstreetbets/comments/1dfa0sx/tyson_foods_suspends_cfo_after_second_arrest/)
-- [Tesla shareholders vote to reinstate Elon Musk’s $56 billion pay package](https://www.reddit.com/r/wallstreetbets/comments/1df9yr7/tesla_shareholders_vote_to_reinstate_elon_musks/)
-- [Most Anticipated Earnings Releases for the week beginning June 17th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1df9ucb/most_anticipated_earnings_releases_for_the_week/)
+- [Micron earnings 06/24](https://www.reddit.com/r/wallstreetbets/comments/1dg2rpz/micron_earnings_0624/)
+- [$17,000 Grindr lottery tickets &lpar;$GRND Aug 20c&rpar; 🌈](https://www.reddit.com/r/wallstreetbets/comments/1dg2a4y/17000_grindr_lottery_tickets_grnd_aug_20c/)
+- [15k month… 300%….](https://www.reddit.com/r/wallstreetbets/comments/1dg15it/15k_month_300/)
+- [This will be the longest weekend of my life](https://www.reddit.com/r/wallstreetbets/comments/1dg0ts6/this_will_be_the_longest_weekend_of_my_life/)
+- [Over 30k losses in about 1 day](https://www.reddit.com/r/wallstreetbets/comments/1dg0l90/over_30k_losses_in_about_1_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
