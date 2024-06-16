@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Micron earnings 06/24](https://www.reddit.com/r/wallstreetbets/comments/1dg2rpz/micron_earnings_0624/)
-- [$17,000 Grindr lottery tickets &lpar;$GRND Aug 20c&rpar; 🌈](https://www.reddit.com/r/wallstreetbets/comments/1dg2a4y/17000_grindr_lottery_tickets_grnd_aug_20c/)
-- [15k month… 300%….](https://www.reddit.com/r/wallstreetbets/comments/1dg15it/15k_month_300/)
-- [This will be the longest weekend of my life](https://www.reddit.com/r/wallstreetbets/comments/1dg0ts6/this_will_be_the_longest_weekend_of_my_life/)
-- [Over 30k losses in about 1 day](https://www.reddit.com/r/wallstreetbets/comments/1dg0l90/over_30k_losses_in_about_1_day/)
+- [Grindr growth over time, with record profits in 2024](https://www.reddit.com/r/wallstreetbets/comments/1dguk6q/grindr_growth_over_time_with_record_profits_in/)
+- [Chill options week](https://www.reddit.com/r/wallstreetbets/comments/1dgtzgl/chill_options_week/)
+- [Jensen Huang to join HPE Keynote 6/18](https://www.reddit.com/r/wallstreetbets/comments/1dgt2l7/jensen_huang_to_join_hpe_keynote_618/)
+- [CRM yolo calls 6/21 expiration ; could totally rebound next week. Right guys….right? #GUH😰📉](https://www.reddit.com/r/wallstreetbets/comments/1dgqpqh/crm_yolo_calls_621_expiration_could_totally/)
+- [AVGO calls for 7/19 1740C](https://www.reddit.com/r/wallstreetbets/comments/1dgq78i/avgo_calls_for_719_1740c/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
