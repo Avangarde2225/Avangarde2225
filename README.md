@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Grindr growth over time, with record profits in 2024](https://www.reddit.com/r/wallstreetbets/comments/1dguk6q/grindr_growth_over_time_with_record_profits_in/)
-- [Chill options week](https://www.reddit.com/r/wallstreetbets/comments/1dgtzgl/chill_options_week/)
-- [Jensen Huang to join HPE Keynote 6/18](https://www.reddit.com/r/wallstreetbets/comments/1dgt2l7/jensen_huang_to_join_hpe_keynote_618/)
-- [CRM yolo calls 6/21 expiration ; could totally rebound next week. Right guys….right? #GUH😰📉](https://www.reddit.com/r/wallstreetbets/comments/1dgqpqh/crm_yolo_calls_621_expiration_could_totally/)
-- [AVGO calls for 7/19 1740C](https://www.reddit.com/r/wallstreetbets/comments/1dgq78i/avgo_calls_for_719_1740c/)
+- [What people are missing about NVDA](https://www.reddit.com/r/wallstreetbets/comments/1dhkx4w/what_people_are_missing_about_nvda/)
+- [I will sell these HIMS calls when I stop seeing fat people on the streets of America](https://www.reddit.com/r/wallstreetbets/comments/1dhkan0/i_will_sell_these_hims_calls_when_i_stop_seeing/)
+- [Am I doing this wrong?](https://www.reddit.com/r/wallstreetbets/comments/1dhjif0/am_i_doing_this_wrong/)
+- [NVDA Could Have a Big Announcement Next Month](https://www.reddit.com/r/wallstreetbets/comments/1dhjgne/nvda_could_have_a_big_announcement_next_month/)
+- [break even after years of losses](https://www.reddit.com/r/wallstreetbets/comments/1dhit6r/break_even_after_years_of_losses/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
