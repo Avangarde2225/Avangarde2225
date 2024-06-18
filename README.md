@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What people are missing about NVDA](https://www.reddit.com/r/wallstreetbets/comments/1dhkx4w/what_people_are_missing_about_nvda/)
-- [I will sell these HIMS calls when I stop seeing fat people on the streets of America](https://www.reddit.com/r/wallstreetbets/comments/1dhkan0/i_will_sell_these_hims_calls_when_i_stop_seeing/)
-- [Am I doing this wrong?](https://www.reddit.com/r/wallstreetbets/comments/1dhjif0/am_i_doing_this_wrong/)
-- [NVDA Could Have a Big Announcement Next Month](https://www.reddit.com/r/wallstreetbets/comments/1dhjgne/nvda_could_have_a_big_announcement_next_month/)
-- [break even after years of losses](https://www.reddit.com/r/wallstreetbets/comments/1dhit6r/break_even_after_years_of_losses/)
+- [BlackBerry seems like it is set to go down the shitter because of the compensation plan currently set to be voted on.](https://www.reddit.com/r/wallstreetbets/comments/1dib7gf/blackberry_seems_like_it_is_set_to_go_down_the/)
+- [This is what pulling profits looks like](https://www.reddit.com/r/wallstreetbets/comments/1dia75g/this_is_what_pulling_profits_looks_like/)
+- [AVTE Over night -320%](https://www.reddit.com/r/wallstreetbets/comments/1dia0a8/avte_over_night_320/)
+- [Am I cooked? NVDA calls caused all my losses](https://www.reddit.com/r/wallstreetbets/comments/1di8qd2/am_i_cooked_nvda_calls_caused_all_my_losses/)
+- [What Are Your Moves Tomorrow, June 18, 2024](https://www.reddit.com/r/wallstreetbets/comments/1di7eep/what_are_your_moves_tomorrow_june_18_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
