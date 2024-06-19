@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BlackBerry seems like it is set to go down the shitter because of the compensation plan currently set to be voted on.](https://www.reddit.com/r/wallstreetbets/comments/1dib7gf/blackberry_seems_like_it_is_set_to_go_down_the/)
-- [This is what pulling profits looks like](https://www.reddit.com/r/wallstreetbets/comments/1dia75g/this_is_what_pulling_profits_looks_like/)
-- [AVTE Over night -320%](https://www.reddit.com/r/wallstreetbets/comments/1dia0a8/avte_over_night_320/)
-- [Am I cooked? NVDA calls caused all my losses](https://www.reddit.com/r/wallstreetbets/comments/1di8qd2/am_i_cooked_nvda_calls_caused_all_my_losses/)
-- [What Are Your Moves Tomorrow, June 18, 2024](https://www.reddit.com/r/wallstreetbets/comments/1di7eep/what_are_your_moves_tomorrow_june_18_2024/)
+- [Did…. Boeing just expose Agent 47?](https://www.reddit.com/r/wallstreetbets/comments/1dj4uvr/did_boeing_just_expose_agent_47/)
+- [🚀 YOLO ALERT: Rocket Lab &lpar;$RKLB&rpar; is About to Go Full Apollo 11 🚀](https://www.reddit.com/r/wallstreetbets/comments/1dj4jg4/yolo_alert_rocket_lab_rklb_is_about_to_go_full/)
+- [Tech-bro-folio gains](https://www.reddit.com/r/wallstreetbets/comments/1dj3fwv/techbrofolio_gains/)
+- [&#39;Cisco replaces Microsoft as world&#39;s most valuable company&#39; 3/25/2001](https://www.reddit.com/r/wallstreetbets/comments/1dj0nyl/cisco_replaces_microsoft_as_worlds_most_valuable/)
+- [What Are Your Moves Tomorrow, June 19, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dizyad/what_are_your_moves_tomorrow_june_19_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
