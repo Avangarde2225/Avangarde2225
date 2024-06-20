@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Did…. Boeing just expose Agent 47?](https://www.reddit.com/r/wallstreetbets/comments/1dj4uvr/did_boeing_just_expose_agent_47/)
-- [🚀 YOLO ALERT: Rocket Lab &lpar;$RKLB&rpar; is About to Go Full Apollo 11 🚀](https://www.reddit.com/r/wallstreetbets/comments/1dj4jg4/yolo_alert_rocket_lab_rklb_is_about_to_go_full/)
-- [Tech-bro-folio gains](https://www.reddit.com/r/wallstreetbets/comments/1dj3fwv/techbrofolio_gains/)
-- [&#39;Cisco replaces Microsoft as world&#39;s most valuable company&#39; 3/25/2001](https://www.reddit.com/r/wallstreetbets/comments/1dj0nyl/cisco_replaces_microsoft_as_worlds_most_valuable/)
-- [What Are Your Moves Tomorrow, June 19, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dizyad/what_are_your_moves_tomorrow_june_19_2024/)
+- [When to sell/roll NVDA $80Nov-15-2024 ?](https://www.reddit.com/r/wallstreetbets/comments/1djw56m/when_to_sellroll_nvda_80nov152024/)
+- [2 days until bongillionaires](https://www.reddit.com/r/wallstreetbets/comments/1djv4f2/2_days_until_bongillionaires/)
+- [Loss Porn -$200,000](https://www.reddit.com/r/wallstreetbets/comments/1djv1oh/loss_porn_200000/)
+- [Why hold SPY, when you can hold SPXL? &lpar;That&#39;s SPY but 3x leveraged&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dju9lx/why_hold_spy_when_you_can_hold_spxl_thats_spy_but/)
+- [Rebalancing taking effect this 6/21.](https://www.reddit.com/r/wallstreetbets/comments/1djt816/rebalancing_taking_effect_this_621/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
