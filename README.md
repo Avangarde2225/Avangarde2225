@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When to sell/roll NVDA $80Nov-15-2024 ?](https://www.reddit.com/r/wallstreetbets/comments/1djw56m/when_to_sellroll_nvda_80nov152024/)
-- [2 days until bongillionaires](https://www.reddit.com/r/wallstreetbets/comments/1djv4f2/2_days_until_bongillionaires/)
-- [Loss Porn -$200,000](https://www.reddit.com/r/wallstreetbets/comments/1djv1oh/loss_porn_200000/)
-- [Why hold SPY, when you can hold SPXL? &lpar;That&#39;s SPY but 3x leveraged&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dju9lx/why_hold_spy_when_you_can_hold_spxl_thats_spy_but/)
-- [Rebalancing taking effect this 6/21.](https://www.reddit.com/r/wallstreetbets/comments/1djt816/rebalancing_taking_effect_this_621/)
+- [The poor-man&#39;s NVDA](https://www.reddit.com/r/wallstreetbets/comments/1dkq2l6/the_poormans_nvda/)
+- [I ain’t afraid of no red days - $340K AVGO yolo](https://www.reddit.com/r/wallstreetbets/comments/1dkpfe9/i_aint_afraid_of_no_red_days_340k_avgo_yolo/)
+- [Down almost 4k off of NVDA](https://www.reddit.com/r/wallstreetbets/comments/1dkm04i/down_almost_4k_off_of_nvda/)
+- [Imagine being long NVDA today &lpar;900% put gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dklcyq/imagine_being_long_nvda_today_900_put_gain/)
+- [Most Anticipated Earnings Releases for the week beginning June 24th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dkl0ln/most_anticipated_earnings_releases_for_the_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
