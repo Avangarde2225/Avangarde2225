@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The poor-man&#39;s NVDA](https://www.reddit.com/r/wallstreetbets/comments/1dkq2l6/the_poormans_nvda/)
-- [I ain’t afraid of no red days - $340K AVGO yolo](https://www.reddit.com/r/wallstreetbets/comments/1dkpfe9/i_aint_afraid_of_no_red_days_340k_avgo_yolo/)
-- [Down almost 4k off of NVDA](https://www.reddit.com/r/wallstreetbets/comments/1dkm04i/down_almost_4k_off_of_nvda/)
-- [Imagine being long NVDA today &lpar;900% put gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dklcyq/imagine_being_long_nvda_today_900_put_gain/)
-- [Most Anticipated Earnings Releases for the week beginning June 24th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dkl0ln/most_anticipated_earnings_releases_for_the_week/)
+- [Need to get roasted for this really sick play that expired worthless.](https://www.reddit.com/r/wallstreetbets/comments/1dlf161/need_to_get_roasted_for_this_really_sick_play/)
+- [This is the ideal economy. You might not like it, but this is what peak Fed rates look like.](https://www.reddit.com/r/wallstreetbets/comments/1dlehbz/this_is_the_ideal_economy_you_might_not_like_it/)
+- [They call me the CSCO strangler](https://www.reddit.com/r/wallstreetbets/comments/1dlefgj/they_call_me_the_csco_strangler/)
+- [Here&#39;s my NVDA donation for the week. See you Monday!](https://www.reddit.com/r/wallstreetbets/comments/1dldelf/heres_my_nvda_donation_for_the_week_see_you_monday/)
+- [Weekend Discussion Thread for June 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dld55m/weekend_discussion_thread_for_june_21_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
