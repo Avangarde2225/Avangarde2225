@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Need to get roasted for this really sick play that expired worthless.](https://www.reddit.com/r/wallstreetbets/comments/1dlf161/need_to_get_roasted_for_this_really_sick_play/)
-- [This is the ideal economy. You might not like it, but this is what peak Fed rates look like.](https://www.reddit.com/r/wallstreetbets/comments/1dlehbz/this_is_the_ideal_economy_you_might_not_like_it/)
-- [They call me the CSCO strangler](https://www.reddit.com/r/wallstreetbets/comments/1dlefgj/they_call_me_the_csco_strangler/)
-- [Here&#39;s my NVDA donation for the week. See you Monday!](https://www.reddit.com/r/wallstreetbets/comments/1dldelf/heres_my_nvda_donation_for_the_week_see_you_monday/)
-- [Weekend Discussion Thread for June 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dld55m/weekend_discussion_thread_for_june_21_2024/)
+- [Do you have a number in mind after which you&#39;ll quit.](https://www.reddit.com/r/wallstreetbets/comments/1dm9jry/do_you_have_a_number_in_mind_after_which_youll/)
+- [Nvidia Shareholder Annual Meeting on June 26](https://www.reddit.com/r/wallstreetbets/comments/1dm98d5/nvidia_shareholder_annual_meeting_on_june_26/)
+- [Is anyone watching the American Diabetes Association Conference?](https://www.reddit.com/r/wallstreetbets/comments/1dm8r2x/is_anyone_watching_the_american_diabetes/)
+- [Boeing CEO Admits It&#39;s Retaliated Against Whistleblowers](https://www.reddit.com/r/wallstreetbets/comments/1dm871w/boeing_ceo_admits_its_retaliated_against/)
+- [What is your strategy to 0DTE SPY options?](https://www.reddit.com/r/wallstreetbets/comments/1dm83nq/what_is_your_strategy_to_0dte_spy_options/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
