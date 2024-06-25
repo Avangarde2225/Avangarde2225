@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [5-year highs, 52 week lows &gt; 52 week highs in past events.](https://www.reddit.com/r/wallstreetbets/comments/1dmzmx1/5year_highs_52_week_lows_52_week_highs_in_past/)
-- [My bet and update heading into tomorrow&#39;s trading](https://www.reddit.com/r/wallstreetbets/comments/1dmx5i8/my_bet_and_update_heading_into_tomorrows_trading/)
-- [What do you think of ANET after hammer with vol](https://www.reddit.com/r/wallstreetbets/comments/1dmw4ar/what_do_you_think_of_anet_after_hammer_with_vol/)
-- [AMZN to go above](https://www.reddit.com/r/wallstreetbets/comments/1dmv4nf/amzn_to_go_above/)
-- [NVDA FACING INSIDERS SELLING THE STOCK AT THE FASTEST PACE IN YEARS.](https://www.reddit.com/r/wallstreetbets/comments/1dmuw1h/nvda_facing_insiders_selling_the_stock_at_the/)
+- [10K to 216K in Roth](https://www.reddit.com/r/wallstreetbets/comments/1dnrw3m/10k_to_216k_in_roth/)
+- [Tesla Delivery Results Are Coming. Brace for More Bad News.](https://www.reddit.com/r/wallstreetbets/comments/1dnrm0a/tesla_delivery_results_are_coming_brace_for_more/)
+- [1 month loss porn](https://www.reddit.com/r/wallstreetbets/comments/1dnortx/1_month_loss_porn/)
+- [NVDA loss porn - down 23k](https://www.reddit.com/r/wallstreetbets/comments/1dnocwk/nvda_loss_porn_down_23k/)
+- [Whats up with the over extended sell off?](https://www.reddit.com/r/wallstreetbets/comments/1dno73q/whats_up_with_the_over_extended_sell_off/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
