@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [10K to 216K in Roth](https://www.reddit.com/r/wallstreetbets/comments/1dnrw3m/10k_to_216k_in_roth/)
-- [Tesla Delivery Results Are Coming. Brace for More Bad News.](https://www.reddit.com/r/wallstreetbets/comments/1dnrm0a/tesla_delivery_results_are_coming_brace_for_more/)
-- [1 month loss porn](https://www.reddit.com/r/wallstreetbets/comments/1dnortx/1_month_loss_porn/)
-- [NVDA loss porn - down 23k](https://www.reddit.com/r/wallstreetbets/comments/1dnocwk/nvda_loss_porn_down_23k/)
-- [Whats up with the over extended sell off?](https://www.reddit.com/r/wallstreetbets/comments/1dno73q/whats_up_with_the_over_extended_sell_off/)
+- [I now drive Uber](https://www.reddit.com/r/wallstreetbets/comments/1dok9qs/i_now_drive_uber/)
+- [NVIDIA IS back!!!!](https://www.reddit.com/r/wallstreetbets/comments/1doikv1/nvidia_is_back/)
+- [Finally… a well timed trade $RIVN](https://www.reddit.com/r/wallstreetbets/comments/1dohks0/finally_a_well_timed_trade_rivn/)
+- [Wait RIVN what?](https://www.reddit.com/r/wallstreetbets/comments/1dohhli/wait_rivn_what/)
+- [Never sell nvda, gain post](https://www.reddit.com/r/wallstreetbets/comments/1doheqk/never_sell_nvda_gain_post/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
