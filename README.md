@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I now drive Uber](https://www.reddit.com/r/wallstreetbets/comments/1dok9qs/i_now_drive_uber/)
-- [NVIDIA IS back!!!!](https://www.reddit.com/r/wallstreetbets/comments/1doikv1/nvidia_is_back/)
-- [Finally… a well timed trade $RIVN](https://www.reddit.com/r/wallstreetbets/comments/1dohks0/finally_a_well_timed_trade_rivn/)
-- [Wait RIVN what?](https://www.reddit.com/r/wallstreetbets/comments/1dohhli/wait_rivn_what/)
-- [Never sell nvda, gain post](https://www.reddit.com/r/wallstreetbets/comments/1doheqk/never_sell_nvda_gain_post/)
+- [Puts on FedEx](https://www.reddit.com/r/wallstreetbets/comments/1dpab8r/puts_on_fedex/)
+- [My wife’s boyfriend is gonna be pissed!](https://www.reddit.com/r/wallstreetbets/comments/1dp9mz4/my_wifes_boyfriend_is_gonna_be_pissed/)
+- [Now&#39;s the Time to Buy the Dip: Micron Technology&#39;s Earnings Exceed Expectations!](https://www.reddit.com/r/wallstreetbets/comments/1dp8rlg/nows_the_time_to_buy_the_dip_micron_technologys/)
+- [Micron Earnings Summary 06262024](https://www.reddit.com/r/wallstreetbets/comments/1dp8j9n/micron_earnings_summary_06262024/)
+- [Micron down](https://www.reddit.com/r/wallstreetbets/comments/1dp891d/micron_down/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
