@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on FedEx](https://www.reddit.com/r/wallstreetbets/comments/1dpab8r/puts_on_fedex/)
-- [My wife’s boyfriend is gonna be pissed!](https://www.reddit.com/r/wallstreetbets/comments/1dp9mz4/my_wifes_boyfriend_is_gonna_be_pissed/)
-- [Now&#39;s the Time to Buy the Dip: Micron Technology&#39;s Earnings Exceed Expectations!](https://www.reddit.com/r/wallstreetbets/comments/1dp8rlg/nows_the_time_to_buy_the_dip_micron_technologys/)
-- [Micron Earnings Summary 06262024](https://www.reddit.com/r/wallstreetbets/comments/1dp8j9n/micron_earnings_summary_06262024/)
-- [Micron down](https://www.reddit.com/r/wallstreetbets/comments/1dp891d/micron_down/)
+- [Caleb Hammer hitting me where it hurts today…](https://www.reddit.com/r/wallstreetbets/comments/1dq5mey/caleb_hammer_hitting_me_where_it_hurts_today/)
+- [Nike [NKE] just fell off a cliff after earnings. I wanna see some of that juicy loss [or gain] porn](https://www.reddit.com/r/wallstreetbets/comments/1dq4vr2/nike_nke_just_fell_off_a_cliff_after_earnings_i/)
+- [Long time listener, first time caller](https://www.reddit.com/r/wallstreetbets/comments/1dq32q8/long_time_listener_first_time_caller/)
+- [DD we needed: Analysts bought 75 burritos from eight Chipotles to prove the portion size problem is real](https://www.reddit.com/r/wallstreetbets/comments/1dq2s8e/dd_we_needed_analysts_bought_75_burritos_from/)
+- [How to know which way to play earnings, every time.](https://www.reddit.com/r/wallstreetbets/comments/1dq2icc/how_to_know_which_way_to_play_earnings_every_time/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
