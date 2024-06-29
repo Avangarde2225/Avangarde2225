@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Caleb Hammer hitting me where it hurts today…](https://www.reddit.com/r/wallstreetbets/comments/1dq5mey/caleb_hammer_hitting_me_where_it_hurts_today/)
-- [Nike [NKE] just fell off a cliff after earnings. I wanna see some of that juicy loss [or gain] porn](https://www.reddit.com/r/wallstreetbets/comments/1dq4vr2/nike_nke_just_fell_off_a_cliff_after_earnings_i/)
-- [Long time listener, first time caller](https://www.reddit.com/r/wallstreetbets/comments/1dq32q8/long_time_listener_first_time_caller/)
-- [DD we needed: Analysts bought 75 burritos from eight Chipotles to prove the portion size problem is real](https://www.reddit.com/r/wallstreetbets/comments/1dq2s8e/dd_we_needed_analysts_bought_75_burritos_from/)
-- [How to know which way to play earnings, every time.](https://www.reddit.com/r/wallstreetbets/comments/1dq2icc/how_to_know_which_way_to_play_earnings_every_time/)
+- [Today vs last friday&gt;40k](https://www.reddit.com/r/wallstreetbets/comments/1dqxgf3/today_vs_last_friday40k/)
+- [Lost $165k](https://www.reddit.com/r/wallstreetbets/comments/1dqx5oh/lost_165k/)
+- [I know we want this to be true but what percentage of you actually believe this?](https://www.reddit.com/r/wallstreetbets/comments/1dqvudk/i_know_we_want_this_to_be_true_but_what/)
+- [Down 54k!!!](https://www.reddit.com/r/wallstreetbets/comments/1dqul85/down_54k/)
+- [$270-&gt;$35,000-&gt;$27](https://www.reddit.com/r/wallstreetbets/comments/1dqufq8/2703500027/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
