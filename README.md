@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Today vs last friday&gt;40k](https://www.reddit.com/r/wallstreetbets/comments/1dqxgf3/today_vs_last_friday40k/)
-- [Lost $165k](https://www.reddit.com/r/wallstreetbets/comments/1dqx5oh/lost_165k/)
-- [I know we want this to be true but what percentage of you actually believe this?](https://www.reddit.com/r/wallstreetbets/comments/1dqvudk/i_know_we_want_this_to_be_true_but_what/)
-- [Down 54k!!!](https://www.reddit.com/r/wallstreetbets/comments/1dqul85/down_54k/)
-- [$270-&gt;$35,000-&gt;$27](https://www.reddit.com/r/wallstreetbets/comments/1dqufq8/2703500027/)
+- [SMCI Stock crash upcoming](https://www.reddit.com/r/wallstreetbets/comments/1droets/smci_stock_crash_upcoming/)
+- [From up 15k to down 8k](https://www.reddit.com/r/wallstreetbets/comments/1drmzzt/from_up_15k_to_down_8k/)
+- [Sir, is this the Wendy’s with the biggest dumpster?](https://www.reddit.com/r/wallstreetbets/comments/1drmxmd/sir_is_this_the_wendys_with_the_biggest_dumpster/)
+- [July is #1 bigly](https://www.reddit.com/r/wallstreetbets/comments/1drlu38/july_is_1_bigly/)
+- [IRS new Crypto 1099 filing rules for 2025/2026. Will you sell before your forced to report?](https://www.reddit.com/r/wallstreetbets/comments/1drlrzh/irs_new_crypto_1099_filing_rules_for_20252026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
