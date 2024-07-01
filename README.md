@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SMCI Stock crash upcoming](https://www.reddit.com/r/wallstreetbets/comments/1droets/smci_stock_crash_upcoming/)
-- [From up 15k to down 8k](https://www.reddit.com/r/wallstreetbets/comments/1drmzzt/from_up_15k_to_down_8k/)
-- [Sir, is this the Wendy’s with the biggest dumpster?](https://www.reddit.com/r/wallstreetbets/comments/1drmxmd/sir_is_this_the_wendys_with_the_biggest_dumpster/)
-- [July is #1 bigly](https://www.reddit.com/r/wallstreetbets/comments/1drlu38/july_is_1_bigly/)
-- [IRS new Crypto 1099 filing rules for 2025/2026. Will you sell before your forced to report?](https://www.reddit.com/r/wallstreetbets/comments/1drlrzh/irs_new_crypto_1099_filing_rules_for_20252026/)
+- [$NKE is near its monthly support level after a major drop. Crayons suggests a major rebound at 72 back to 82.](https://www.reddit.com/r/wallstreetbets/comments/1dsfow2/nke_is_near_its_monthly_support_level_after_a/)
+- [NIKE MUST PULL BACK](https://www.reddit.com/r/wallstreetbets/comments/1dsealv/nike_must_pull_back/)
+- [South Korea&#39;s SK Hynix to invest $75 billion by 2028 in AI, chips](https://www.reddit.com/r/wallstreetbets/comments/1dsdips/south_koreas_sk_hynix_to_invest_75_billion_by/)
+- [Exclusive-Boeing agrees deal to buy Spirit Aero for $4.3 billion - sources](https://www.reddit.com/r/wallstreetbets/comments/1dscvhs/exclusiveboeing_agrees_deal_to_buy_spirit_aero/)
+- [Boeing Starliner spacecraft could wait months before return, but officials say astronauts aren’t stranded](https://www.reddit.com/r/wallstreetbets/comments/1dscd8f/boeing_starliner_spacecraft_could_wait_months/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
