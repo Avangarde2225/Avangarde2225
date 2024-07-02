@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$NKE is near its monthly support level after a major drop. Crayons suggests a major rebound at 72 back to 82.](https://www.reddit.com/r/wallstreetbets/comments/1dsfow2/nke_is_near_its_monthly_support_level_after_a/)
-- [NIKE MUST PULL BACK](https://www.reddit.com/r/wallstreetbets/comments/1dsealv/nike_must_pull_back/)
-- [South Korea&#39;s SK Hynix to invest $75 billion by 2028 in AI, chips](https://www.reddit.com/r/wallstreetbets/comments/1dsdips/south_koreas_sk_hynix_to_invest_75_billion_by/)
-- [Exclusive-Boeing agrees deal to buy Spirit Aero for $4.3 billion - sources](https://www.reddit.com/r/wallstreetbets/comments/1dscvhs/exclusiveboeing_agrees_deal_to_buy_spirit_aero/)
-- [Boeing Starliner spacecraft could wait months before return, but officials say astronauts aren’t stranded](https://www.reddit.com/r/wallstreetbets/comments/1dscd8f/boeing_starliner_spacecraft_could_wait_months/)
+- [Am I doing this right?!](https://www.reddit.com/r/wallstreetbets/comments/1dt6ytn/am_i_doing_this_right/)
+- [Former Wendy&#39;s CEO Joins Dutch Bros coffee](https://www.reddit.com/r/wallstreetbets/comments/1dt6sfu/former_wendys_ceo_joins_dutch_bros_coffee/)
+- [Tesla $180 Upcoming . Bulls in Shambles tomorrow morning guaranteed 😂😂](https://www.reddit.com/r/wallstreetbets/comments/1dt61lc/tesla_180_upcoming_bulls_in_shambles_tomorrow/)
+- [Why did tsla go up?](https://www.reddit.com/r/wallstreetbets/comments/1dt4w79/why_did_tsla_go_up/)
+- [Only show day gains over 40K, just made it at close today. Thanks _AAPL TSLA BA AMZN](https://www.reddit.com/r/wallstreetbets/comments/1dt3ci3/only_show_day_gains_over_40k_just_made_it_at/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
