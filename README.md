@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [38k -&gt; 121k best month](https://www.reddit.com/r/wallstreetbets/comments/1dtx9tp/38k_121k_best_month/)
-- [Wonder what it looks like doubling down on 0dte puts all day during a run to all time highs?](https://www.reddit.com/r/wallstreetbets/comments/1dtwskl/wonder_what_it_looks_like_doubling_down_on_0dte/)
-- [Yearly AMZN chart +$69.69](https://www.reddit.com/r/wallstreetbets/comments/1dtvura/yearly_amzn_chart_6969/)
-- [What Are Your Moves Tomorrow, July 3, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dtv66f/what_are_your_moves_tomorrow_july_3_2024/)
-- [+$12,000 gain 📈 🚀🔥](https://www.reddit.com/r/wallstreetbets/comments/1dtuxtv/12000_gain/)
+- [Just a Reminder That Pelosi Can Be a Total Dimwit](https://www.reddit.com/r/wallstreetbets/comments/1duskcw/just_a_reminder_that_pelosi_can_be_a_total_dimwit/)
+- [Wish this was fake.](https://www.reddit.com/r/wallstreetbets/comments/1duqzhp/wish_this_was_fake/)
+- [Nancy Pelosi disclosed stock market trades made by her husband. He loaded up on AI plays like Nvidia and sold Tesla.](https://www.reddit.com/r/wallstreetbets/comments/1duq275/nancy_pelosi_disclosed_stock_market_trades_made/)
+- [Should I quit my day job?](https://www.reddit.com/r/wallstreetbets/comments/1duph5o/should_i_quit_my_day_job/)
+- [$TSLA 300% GAIN HIT 1MIL POSITION](https://www.reddit.com/r/wallstreetbets/comments/1duomz6/tsla_300_gain_hit_1mil_position/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
