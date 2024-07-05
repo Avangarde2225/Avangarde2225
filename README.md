@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Just a Reminder That Pelosi Can Be a Total Dimwit](https://www.reddit.com/r/wallstreetbets/comments/1duskcw/just_a_reminder_that_pelosi_can_be_a_total_dimwit/)
-- [Wish this was fake.](https://www.reddit.com/r/wallstreetbets/comments/1duqzhp/wish_this_was_fake/)
-- [Nancy Pelosi disclosed stock market trades made by her husband. He loaded up on AI plays like Nvidia and sold Tesla.](https://www.reddit.com/r/wallstreetbets/comments/1duq275/nancy_pelosi_disclosed_stock_market_trades_made/)
-- [Should I quit my day job?](https://www.reddit.com/r/wallstreetbets/comments/1duph5o/should_i_quit_my_day_job/)
-- [$TSLA 300% GAIN HIT 1MIL POSITION](https://www.reddit.com/r/wallstreetbets/comments/1duomz6/tsla_300_gain_hit_1mil_position/)
+- [Enovix to the MOON!!](https://www.reddit.com/r/wallstreetbets/comments/1dvkbvt/enovix_to_the_moon/)
+- [Of course you realize, this means arbitrage! $LSXMK &amp; $LSXMA](https://www.reddit.com/r/wallstreetbets/comments/1dvjzp4/of_course_you_realize_this_means_arbitrage_lsxmk/)
+- [$NANC - The Pelosi Power Play](https://www.reddit.com/r/wallstreetbets/comments/1dvi634/nanc_the_pelosi_power_play/)
+- [&quot;If it&#39;s Boeing, you ain&#39;t going.&quot;](https://www.reddit.com/r/wallstreetbets/comments/1dvhmhb/if_its_boeing_you_aint_going/)
+- [Most Anticipated Earnings Releases for the week beginning July 8th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dvh5ah/most_anticipated_earnings_releases_for_the_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
