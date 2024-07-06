@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Enovix to the MOON!!](https://www.reddit.com/r/wallstreetbets/comments/1dvkbvt/enovix_to_the_moon/)
-- [Of course you realize, this means arbitrage! $LSXMK &amp; $LSXMA](https://www.reddit.com/r/wallstreetbets/comments/1dvjzp4/of_course_you_realize_this_means_arbitrage_lsxmk/)
-- [$NANC - The Pelosi Power Play](https://www.reddit.com/r/wallstreetbets/comments/1dvi634/nanc_the_pelosi_power_play/)
-- [&quot;If it&#39;s Boeing, you ain&#39;t going.&quot;](https://www.reddit.com/r/wallstreetbets/comments/1dvhmhb/if_its_boeing_you_aint_going/)
-- [Most Anticipated Earnings Releases for the week beginning July 8th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1dvh5ah/most_anticipated_earnings_releases_for_the_week/)
+- [Loss meme](https://www.reddit.com/r/wallstreetbets/comments/1dwbue6/loss_meme/)
+- [Since this sub called out the top back on June 13, 2023, saying the market was going to drop 60% the S&amp;P 500 is up 34%](https://www.reddit.com/r/wallstreetbets/comments/1dwb8fo/since_this_sub_called_out_the_top_back_on_june_13/)
+- [Metaverse vs AI-Metaverse &lpar;and Stock Performance&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dwb060/metaverse_vs_aimetaverse_and_stock_performance/)
+- [Tesla shares wipe out loss for the year with 27% rally this week](https://www.reddit.com/r/wallstreetbets/comments/1dw9gj6/tesla_shares_wipe_out_loss_for_the_year_with_27/)
+- [wtf META - Pumped 6% in a single day just as a personal fuck you to me](https://www.reddit.com/r/wallstreetbets/comments/1dw70h0/wtf_meta_pumped_6_in_a_single_day_just_as_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
