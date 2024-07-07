@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Loss meme](https://www.reddit.com/r/wallstreetbets/comments/1dwbue6/loss_meme/)
-- [Since this sub called out the top back on June 13, 2023, saying the market was going to drop 60% the S&amp;P 500 is up 34%](https://www.reddit.com/r/wallstreetbets/comments/1dwb8fo/since_this_sub_called_out_the_top_back_on_june_13/)
-- [Metaverse vs AI-Metaverse &lpar;and Stock Performance&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dwb060/metaverse_vs_aimetaverse_and_stock_performance/)
-- [Tesla shares wipe out loss for the year with 27% rally this week](https://www.reddit.com/r/wallstreetbets/comments/1dw9gj6/tesla_shares_wipe_out_loss_for_the_year_with_27/)
-- [wtf META - Pumped 6% in a single day just as a personal fuck you to me](https://www.reddit.com/r/wallstreetbets/comments/1dw70h0/wtf_meta_pumped_6_in_a_single_day_just_as_a/)
+- [ASTS YOLO - Update](https://www.reddit.com/r/wallstreetbets/comments/1dx3x5j/asts_yolo_update/)
+- [I am cooked](https://www.reddit.com/r/wallstreetbets/comments/1dx2r6l/i_am_cooked/)
+- [$40k DayTrade Gain for June 🙈](https://www.reddit.com/r/wallstreetbets/comments/1dwyunb/40k_daytrade_gain_for_june/)
+- [JPMorgan Warns Customers: Prepare to Pay a $25 monthly fee for Checking Accounts](https://www.reddit.com/r/wallstreetbets/comments/1dwyi0n/jpmorgan_warns_customers_prepare_to_pay_a_25/)
+- [Top world economist Harry Dent predicts financial ‘crash of a lifetime’ within months, S&amp;P to tumble to $2,500](https://www.reddit.com/r/wallstreetbets/comments/1dwwtzt/top_world_economist_harry_dent_predicts_financial/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
