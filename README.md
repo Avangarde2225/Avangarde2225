@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ASTS YOLO - Update](https://www.reddit.com/r/wallstreetbets/comments/1dx3x5j/asts_yolo_update/)
-- [I am cooked](https://www.reddit.com/r/wallstreetbets/comments/1dx2r6l/i_am_cooked/)
-- [$40k DayTrade Gain for June 🙈](https://www.reddit.com/r/wallstreetbets/comments/1dwyunb/40k_daytrade_gain_for_june/)
-- [JPMorgan Warns Customers: Prepare to Pay a $25 monthly fee for Checking Accounts](https://www.reddit.com/r/wallstreetbets/comments/1dwyi0n/jpmorgan_warns_customers_prepare_to_pay_a_25/)
-- [Top world economist Harry Dent predicts financial ‘crash of a lifetime’ within months, S&amp;P to tumble to $2,500](https://www.reddit.com/r/wallstreetbets/comments/1dwwtzt/top_world_economist_harry_dent_predicts_financial/)
+- [Amazing short opportunity in POOL](https://www.reddit.com/r/wallstreetbets/comments/1dxvanp/amazing_short_opportunity_in_pool/)
+- [Paramount Agrees to Merge With Skydance](https://www.reddit.com/r/wallstreetbets/comments/1dxv1sw/paramount_agrees_to_merge_with_skydance/)
+- [Lyft](https://www.reddit.com/r/wallstreetbets/comments/1dxusmn/lyft/)
+- [Does anyone have a buy case for Monster?](https://www.reddit.com/r/wallstreetbets/comments/1dxu90d/does_anyone_have_a_buy_case_for_monster/)
+- [Up 100% on a Tesla Debit Spread for June 2026 🔥](https://www.reddit.com/r/wallstreetbets/comments/1dxtz3n/up_100_on_a_tesla_debit_spread_for_june_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
