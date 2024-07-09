@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Amazing short opportunity in POOL](https://www.reddit.com/r/wallstreetbets/comments/1dxvanp/amazing_short_opportunity_in_pool/)
-- [Paramount Agrees to Merge With Skydance](https://www.reddit.com/r/wallstreetbets/comments/1dxv1sw/paramount_agrees_to_merge_with_skydance/)
-- [Lyft](https://www.reddit.com/r/wallstreetbets/comments/1dxusmn/lyft/)
-- [Does anyone have a buy case for Monster?](https://www.reddit.com/r/wallstreetbets/comments/1dxu90d/does_anyone_have_a_buy_case_for_monster/)
-- [Up 100% on a Tesla Debit Spread for June 2026 🔥](https://www.reddit.com/r/wallstreetbets/comments/1dxtz3n/up_100_on_a_tesla_debit_spread_for_june_2026/)
+- [These couple of weeks have been insane. Can I take this to $1M by EOY?](https://www.reddit.com/r/wallstreetbets/comments/1dynqkf/these_couple_of_weeks_have_been_insane_can_i_take/)
+- [Took some questionable advice and I’m up 500%. What’s my next move to lose it all?](https://www.reddit.com/r/wallstreetbets/comments/1dykr86/took_some_questionable_advice_and_im_up_500_whats/)
+- [What just happened](https://www.reddit.com/r/wallstreetbets/comments/1dyk1ed/what_just_happened/)
+- [Guac it up &lpar;$600k chipotle&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1dyiydb/guac_it_up_600k_chipotle/)
+- [Morgan Stanley’s Wilson Says a 10% Stock Market Correction Is ‘Highly Likely’](https://www.reddit.com/r/wallstreetbets/comments/1dyisxl/morgan_stanleys_wilson_says_a_10_stock_market/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
