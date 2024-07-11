@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought 100k of $NVDA in March 2023](https://www.reddit.com/r/wallstreetbets/comments/1dzhp1d/bought_100k_of_nvda_in_march_2023/)
-- [Billionaire Sackler family members could face fresh lawsuits after Purdue Opioid settlement falls apart](https://www.reddit.com/r/wallstreetbets/comments/1dzgdlv/billionaire_sackler_family_members_could_face/)
-- [NVDA CEO DONE SELLING?](https://www.reddit.com/r/wallstreetbets/comments/1dzfqt4/nvda_ceo_done_selling/)
-- [🍔McDonalds🍔: At 52W low. How to make your easiest profits ever by holding earnings.](https://www.reddit.com/r/wallstreetbets/comments/1dzei5e/mcdonalds_at_52w_low_how_to_make_your_easiest/)
-- [We are already in a recession](https://www.reddit.com/r/wallstreetbets/comments/1dzckvv/we_are_already_in_a_recession/)
+- [After losing $40k in 2022. Tossed it all into NVDA and now worth $227k🙌🏼](https://www.reddit.com/r/wallstreetbets/comments/1e0ak58/after_losing_40k_in_2022_tossed_it_all_into_nvda/)
+- [Loss update](https://www.reddit.com/r/wallstreetbets/comments/1e09hhn/loss_update/)
+- [Costco raises membership fees for first time since 2017](https://www.reddit.com/r/wallstreetbets/comments/1e077lw/costco_raises_membership_fees_for_first_time/)
+- [Daily Discussion Thread for July 10, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e0767i/daily_discussion_thread_for_july_10_2024/)
+- [July CPI gonna be cooked](https://www.reddit.com/r/wallstreetbets/comments/1e06s2h/july_cpi_gonna_be_cooked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
