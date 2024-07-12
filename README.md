@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [After losing $40k in 2022. Tossed it all into NVDA and now worth $227k🙌🏼](https://www.reddit.com/r/wallstreetbets/comments/1e0ak58/after_losing_40k_in_2022_tossed_it_all_into_nvda/)
-- [Loss update](https://www.reddit.com/r/wallstreetbets/comments/1e09hhn/loss_update/)
-- [Costco raises membership fees for first time since 2017](https://www.reddit.com/r/wallstreetbets/comments/1e077lw/costco_raises_membership_fees_for_first_time/)
-- [Daily Discussion Thread for July 10, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e0767i/daily_discussion_thread_for_july_10_2024/)
-- [July CPI gonna be cooked](https://www.reddit.com/r/wallstreetbets/comments/1e06s2h/july_cpi_gonna_be_cooked/)
+- [And I bought calls, who else?](https://www.reddit.com/r/wallstreetbets/comments/1e11c1g/and_i_bought_calls_who_else/)
+- [Most Anticipated Earnings Releases for the week beginning July 15th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e0ztki/most_anticipated_earnings_releases_for_the_week/)
+- [Bought SPY puts at open today](https://www.reddit.com/r/wallstreetbets/comments/1e0zdfp/bought_spy_puts_at_open_today/)
+- [Mag 7 hit hard](https://www.reddit.com/r/wallstreetbets/comments/1e0ypme/mag_7_hit_hard/)
+- [Tesla shares close down 10% after report of robotaxi unveiling delay](https://www.reddit.com/r/wallstreetbets/comments/1e0ypgt/tesla_shares_close_down_10_after_report_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
