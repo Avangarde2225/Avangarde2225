@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [And I bought calls, who else?](https://www.reddit.com/r/wallstreetbets/comments/1e11c1g/and_i_bought_calls_who_else/)
-- [Most Anticipated Earnings Releases for the week beginning July 15th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e0ztki/most_anticipated_earnings_releases_for_the_week/)
-- [Bought SPY puts at open today](https://www.reddit.com/r/wallstreetbets/comments/1e0zdfp/bought_spy_puts_at_open_today/)
-- [Mag 7 hit hard](https://www.reddit.com/r/wallstreetbets/comments/1e0ypme/mag_7_hit_hard/)
-- [Tesla shares close down 10% after report of robotaxi unveiling delay](https://www.reddit.com/r/wallstreetbets/comments/1e0ypgt/tesla_shares_close_down_10_after_report_of/)
+- [AMD yolo](https://www.reddit.com/r/wallstreetbets/comments/1e1vu1r/amd_yolo/)
+- [Boomer stock FTW](https://www.reddit.com/r/wallstreetbets/comments/1e1uvz0/boomer_stock_ftw/)
+- [There was no QT. The balance sheet reduction came from money parked at the Fed. Virtually no liquidity got sucked from the stock market!](https://www.reddit.com/r/wallstreetbets/comments/1e1tmsw/there_was_no_qt_the_balance_sheet_reduction_came/)
+- [$200 &gt; $7000 &gt; $0](https://www.reddit.com/r/wallstreetbets/comments/1e1rpfb/200_7000_0/)
+- [Weekend Discussion Thread for the Weekend of July 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e1qxof/weekend_discussion_thread_for_the_weekend_of_july/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
