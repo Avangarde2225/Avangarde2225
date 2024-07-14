@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMD yolo](https://www.reddit.com/r/wallstreetbets/comments/1e1vu1r/amd_yolo/)
-- [Boomer stock FTW](https://www.reddit.com/r/wallstreetbets/comments/1e1uvz0/boomer_stock_ftw/)
-- [There was no QT. The balance sheet reduction came from money parked at the Fed. Virtually no liquidity got sucked from the stock market!](https://www.reddit.com/r/wallstreetbets/comments/1e1tmsw/there_was_no_qt_the_balance_sheet_reduction_came/)
-- [$200 &gt; $7000 &gt; $0](https://www.reddit.com/r/wallstreetbets/comments/1e1rpfb/200_7000_0/)
-- [Weekend Discussion Thread for the Weekend of July 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e1qxof/weekend_discussion_thread_for_the_weekend_of_july/)
+- [Redemption](https://www.reddit.com/r/wallstreetbets/comments/1e2ov2p/redemption/)
+- [Chances of me breaking even on $NVDA? $140 Calls 7/19](https://www.reddit.com/r/wallstreetbets/comments/1e2ou8i/chances_of_me_breaking_even_on_nvda_140_calls_719/)
+- [Any one think SPY will reach 650 by year end!](https://www.reddit.com/r/wallstreetbets/comments/1e2l6ek/any_one_think_spy_will_reach_650_by_year_end/)
+- [Closing in on 100K . 10K gain 2day](https://www.reddit.com/r/wallstreetbets/comments/1e2jsvx/closing_in_on_100k_10k_gain_2day/)
+- [Intel accused of selling ‘defective’ Raptor Lake CPUs](https://www.reddit.com/r/wallstreetbets/comments/1e2j0my/intel_accused_of_selling_defective_raptor_lake/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
