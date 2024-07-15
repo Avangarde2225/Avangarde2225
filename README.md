@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Redemption](https://www.reddit.com/r/wallstreetbets/comments/1e2ov2p/redemption/)
-- [Chances of me breaking even on $NVDA? $140 Calls 7/19](https://www.reddit.com/r/wallstreetbets/comments/1e2ou8i/chances_of_me_breaking_even_on_nvda_140_calls_719/)
-- [Any one think SPY will reach 650 by year end!](https://www.reddit.com/r/wallstreetbets/comments/1e2l6ek/any_one_think_spy_will_reach_650_by_year_end/)
-- [Closing in on 100K . 10K gain 2day](https://www.reddit.com/r/wallstreetbets/comments/1e2jsvx/closing_in_on_100k_10k_gain_2day/)
-- [Intel accused of selling ‘defective’ Raptor Lake CPUs](https://www.reddit.com/r/wallstreetbets/comments/1e2j0my/intel_accused_of_selling_defective_raptor_lake/)
+- [Where did the myth that the market won&#39;t crash during an election year come from?](https://www.reddit.com/r/wallstreetbets/comments/1e3hdks/where_did_the_myth_that_the_market_wont_crash/)
+- [AVGO YOLO on second account](https://www.reddit.com/r/wallstreetbets/comments/1e3foe9/avgo_yolo_on_second_account/)
+- [AVGO YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e3fn2i/avgo_yolo/)
+- [Why I am Buying Calls on Global Payments &lpar;GPN&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1e3fh85/why_i_am_buying_calls_on_global_payments_gpn/)
+- [If you&#39;re looking for a mid cap to invest in for rate cuts... $VFC](https://www.reddit.com/r/wallstreetbets/comments/1e3eri7/if_youre_looking_for_a_mid_cap_to_invest_in_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
