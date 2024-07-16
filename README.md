@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Where did the myth that the market won&#39;t crash during an election year come from?](https://www.reddit.com/r/wallstreetbets/comments/1e3hdks/where_did_the_myth_that_the_market_wont_crash/)
-- [AVGO YOLO on second account](https://www.reddit.com/r/wallstreetbets/comments/1e3foe9/avgo_yolo_on_second_account/)
-- [AVGO YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e3fn2i/avgo_yolo/)
-- [Why I am Buying Calls on Global Payments &lpar;GPN&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1e3fh85/why_i_am_buying_calls_on_global_payments_gpn/)
-- [If you&#39;re looking for a mid cap to invest in for rate cuts... $VFC](https://www.reddit.com/r/wallstreetbets/comments/1e3eri7/if_youre_looking_for_a_mid_cap_to_invest_in_for/)
+- [Moved a stagnant old 401k into RH - 16M later](https://www.reddit.com/r/wallstreetbets/comments/1e4acxx/moved_a_stagnant_old_401k_into_rh_16m_later/)
+- [$UPST Swings](https://www.reddit.com/r/wallstreetbets/comments/1e49j6w/upst_swings/)
+- [The Candy Crush guys are secretly building a new startup after $5.9 billion sale to Activision Blizzard](https://www.reddit.com/r/wallstreetbets/comments/1e48yop/the_candy_crush_guys_are_secretly_building_a_new/)
+- [Buy Phillip Morris before earnings](https://www.reddit.com/r/wallstreetbets/comments/1e48c6c/buy_phillip_morris_before_earnings/)
+- [Apple stock hits record high on AI iPhone anticipation — as analysts predict $5 trillion valuation](https://www.reddit.com/r/wallstreetbets/comments/1e489c5/apple_stock_hits_record_high_on_ai_iphone/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
