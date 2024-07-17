@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Moved a stagnant old 401k into RH - 16M later](https://www.reddit.com/r/wallstreetbets/comments/1e4acxx/moved_a_stagnant_old_401k_into_rh_16m_later/)
-- [$UPST Swings](https://www.reddit.com/r/wallstreetbets/comments/1e49j6w/upst_swings/)
-- [The Candy Crush guys are secretly building a new startup after $5.9 billion sale to Activision Blizzard](https://www.reddit.com/r/wallstreetbets/comments/1e48yop/the_candy_crush_guys_are_secretly_building_a_new/)
-- [Buy Phillip Morris before earnings](https://www.reddit.com/r/wallstreetbets/comments/1e48c6c/buy_phillip_morris_before_earnings/)
-- [Apple stock hits record high on AI iPhone anticipation — as analysts predict $5 trillion valuation](https://www.reddit.com/r/wallstreetbets/comments/1e489c5/apple_stock_hits_record_high_on_ai_iphone/)
+- [PayPal Billionaire Peter Thiel Plays Kingmaker yet again](https://www.reddit.com/r/wallstreetbets/comments/1e53u5o/paypal_billionaire_peter_thiel_plays_kingmaker/)
+- [Retire when?](https://www.reddit.com/r/wallstreetbets/comments/1e533ho/retire_when/)
+- [We are so back](https://www.reddit.com/r/wallstreetbets/comments/1e52k22/we_are_so_back/)
+- [NVDA&#39;s volume in the past 2 days have been at a near 2.5 year low with the exception of July 3, 2023.](https://www.reddit.com/r/wallstreetbets/comments/1e51wcl/nvdas_volume_in_the_past_2_days_have_been_at_a/)
+- [Small Caps For The Win](https://www.reddit.com/r/wallstreetbets/comments/1e51r0n/small_caps_for_the_win/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
