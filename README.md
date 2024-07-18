@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PayPal Billionaire Peter Thiel Plays Kingmaker yet again](https://www.reddit.com/r/wallstreetbets/comments/1e53u5o/paypal_billionaire_peter_thiel_plays_kingmaker/)
-- [Retire when?](https://www.reddit.com/r/wallstreetbets/comments/1e533ho/retire_when/)
-- [We are so back](https://www.reddit.com/r/wallstreetbets/comments/1e52k22/we_are_so_back/)
-- [NVDA&#39;s volume in the past 2 days have been at a near 2.5 year low with the exception of July 3, 2023.](https://www.reddit.com/r/wallstreetbets/comments/1e51wcl/nvdas_volume_in_the_past_2_days_have_been_at_a/)
-- [Small Caps For The Win](https://www.reddit.com/r/wallstreetbets/comments/1e51r0n/small_caps_for_the_win/)
+- [This is why you strangle](https://www.reddit.com/r/wallstreetbets/comments/1e5wbvy/this_is_why_you_strangle/)
+- [Every tech bull after market close July 17](https://www.reddit.com/r/wallstreetbets/comments/1e5t9yw/every_tech_bull_after_market_close_july_17/)
+- [A reminder for those who have forgotten](https://www.reddit.com/r/wallstreetbets/comments/1e5t3hw/a_reminder_for_those_who_have_forgotten/)
+- [It’s been a wild ride](https://www.reddit.com/r/wallstreetbets/comments/1e5t2zf/its_been_a_wild_ride/)
+- [INTC redux](https://www.reddit.com/r/wallstreetbets/comments/1e5sva1/intc_redux/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
