@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is why you strangle](https://www.reddit.com/r/wallstreetbets/comments/1e5wbvy/this_is_why_you_strangle/)
-- [Every tech bull after market close July 17](https://www.reddit.com/r/wallstreetbets/comments/1e5t9yw/every_tech_bull_after_market_close_july_17/)
-- [A reminder for those who have forgotten](https://www.reddit.com/r/wallstreetbets/comments/1e5t3hw/a_reminder_for_those_who_have_forgotten/)
-- [It’s been a wild ride](https://www.reddit.com/r/wallstreetbets/comments/1e5t2zf/its_been_a_wild_ride/)
-- [INTC redux](https://www.reddit.com/r/wallstreetbets/comments/1e5sva1/intc_redux/)
+- [Yolo’d my life savings in NVDA](https://www.reddit.com/r/wallstreetbets/comments/1e6nqql/yolod_my_life_savings_in_nvda/)
+- [Most Anticipated Earnings Releases for the week beginning July 22nd 2024](https://www.reddit.com/r/wallstreetbets/comments/1e6nggj/most_anticipated_earnings_releases_for_the_week/)
+- [Hawaiian Electric to the Moon!!](https://www.reddit.com/r/wallstreetbets/comments/1e6mx19/hawaiian_electric_to_the_moon/)
+- [CrowdStrike is not worth 83 Billion Dollars](https://www.reddit.com/r/wallstreetbets/comments/1e6ms9z/crowdstrike_is_not_worth_83_billion_dollars/)
+- [$125,000 $META YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e6m079/125000_meta_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
