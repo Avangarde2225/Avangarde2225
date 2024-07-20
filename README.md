@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Yolo’d my life savings in NVDA](https://www.reddit.com/r/wallstreetbets/comments/1e6nqql/yolod_my_life_savings_in_nvda/)
-- [Most Anticipated Earnings Releases for the week beginning July 22nd 2024](https://www.reddit.com/r/wallstreetbets/comments/1e6nggj/most_anticipated_earnings_releases_for_the_week/)
-- [Hawaiian Electric to the Moon!!](https://www.reddit.com/r/wallstreetbets/comments/1e6mx19/hawaiian_electric_to_the_moon/)
-- [CrowdStrike is not worth 83 Billion Dollars](https://www.reddit.com/r/wallstreetbets/comments/1e6ms9z/crowdstrike_is_not_worth_83_billion_dollars/)
-- [$125,000 $META YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e6m079/125000_meta_yolo/)
+- [CrowdStrike Insiders Sold Stock Before the Outage. How That Happened.](https://www.reddit.com/r/wallstreetbets/comments/1e7huwz/crowdstrike_insiders_sold_stock_before_the_outage/)
+- [Bitcoin is going into the biggest breakout of the cycle.](https://www.reddit.com/r/wallstreetbets/comments/1e7egj9/bitcoin_is_going_into_the_biggest_breakout_of_the/)
+- [Weekend Discussion Thread for the Weekend of July 19, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e7cuu3/weekend_discussion_thread_for_the_weekend_of_july/)
+- [No publicity is bad publicity right?](https://www.reddit.com/r/wallstreetbets/comments/1e7cewm/no_publicity_is_bad_publicity_right/)
+- [AMZN please. I’ve never felt this terrible about a position. Idk what to do.](https://www.reddit.com/r/wallstreetbets/comments/1e7bf1h/amzn_please_ive_never_felt_this_terrible_about_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
