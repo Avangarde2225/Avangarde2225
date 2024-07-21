@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CrowdStrike Insiders Sold Stock Before the Outage. How That Happened.](https://www.reddit.com/r/wallstreetbets/comments/1e7huwz/crowdstrike_insiders_sold_stock_before_the_outage/)
-- [Bitcoin is going into the biggest breakout of the cycle.](https://www.reddit.com/r/wallstreetbets/comments/1e7egj9/bitcoin_is_going_into_the_biggest_breakout_of_the/)
-- [Weekend Discussion Thread for the Weekend of July 19, 2024](https://www.reddit.com/r/wallstreetbets/comments/1e7cuu3/weekend_discussion_thread_for_the_weekend_of_july/)
-- [No publicity is bad publicity right?](https://www.reddit.com/r/wallstreetbets/comments/1e7cewm/no_publicity_is_bad_publicity_right/)
-- [AMZN please. I’ve never felt this terrible about a position. Idk what to do.](https://www.reddit.com/r/wallstreetbets/comments/1e7bf1h/amzn_please_ive_never_felt_this_terrible_about_a/)
+- [Elon Musk’s crusade against California is seeing Tesla sales in the Golden State plummet while demand for Rivian EVs soar](https://www.reddit.com/r/wallstreetbets/comments/1e86slx/elon_musks_crusade_against_california_is_seeing/)
+- [My first loss porn on TSLA PUTs](https://www.reddit.com/r/wallstreetbets/comments/1e86q1g/my_first_loss_porn_on_tsla_puts/)
+- [Only see Green, ignore Red.](https://www.reddit.com/r/wallstreetbets/comments/1e85yuh/only_see_green_ignore_red/)
+- [CRWD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e84u9s/crwd_yolo/)
+- [$MSTR 100k YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e844ot/mstr_100k_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
