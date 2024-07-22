@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Elon Musk’s crusade against California is seeing Tesla sales in the Golden State plummet while demand for Rivian EVs soar](https://www.reddit.com/r/wallstreetbets/comments/1e86slx/elon_musks_crusade_against_california_is_seeing/)
-- [My first loss porn on TSLA PUTs](https://www.reddit.com/r/wallstreetbets/comments/1e86q1g/my_first_loss_porn_on_tsla_puts/)
-- [Only see Green, ignore Red.](https://www.reddit.com/r/wallstreetbets/comments/1e85yuh/only_see_green_ignore_red/)
-- [CRWD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e84u9s/crwd_yolo/)
-- [$MSTR 100k YOLO](https://www.reddit.com/r/wallstreetbets/comments/1e844ot/mstr_100k_yolo/)
+- [&#39;In the billions of dollars&#39;: How much damage did the CrowdStrike outage really cause?](https://www.reddit.com/r/wallstreetbets/comments/1e90iqr/in_the_billions_of_dollars_how_much_damage_did/)
+- [They ain&#39;t like us](https://www.reddit.com/r/wallstreetbets/comments/1e90g4i/they_aint_like_us/)
+- [S&amp;P 500 futures tick higher Sunday night after worst week since April](https://www.reddit.com/r/wallstreetbets/comments/1e8zmob/sp_500_futures_tick_higher_sunday_night_after/)
+- [$CRWD time to buy calls ?](https://www.reddit.com/r/wallstreetbets/comments/1e8x7yl/crwd_time_to_buy_calls/)
+- [NVDA All In](https://www.reddit.com/r/wallstreetbets/comments/1e8w5f8/nvda_all_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
