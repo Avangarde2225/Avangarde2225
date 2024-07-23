@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&#39;In the billions of dollars&#39;: How much damage did the CrowdStrike outage really cause?](https://www.reddit.com/r/wallstreetbets/comments/1e90iqr/in_the_billions_of_dollars_how_much_damage_did/)
-- [They ain&#39;t like us](https://www.reddit.com/r/wallstreetbets/comments/1e90g4i/they_aint_like_us/)
-- [S&amp;P 500 futures tick higher Sunday night after worst week since April](https://www.reddit.com/r/wallstreetbets/comments/1e8zmob/sp_500_futures_tick_higher_sunday_night_after/)
-- [$CRWD time to buy calls ?](https://www.reddit.com/r/wallstreetbets/comments/1e8x7yl/crwd_time_to_buy_calls/)
-- [NVDA All In](https://www.reddit.com/r/wallstreetbets/comments/1e8w5f8/nvda_all_in/)
+- [Meta 210k Update](https://www.reddit.com/r/wallstreetbets/comments/1e9t3e2/meta_210k_update/)
+- [CrowdStrike Outage Nets Short Sellers $461 Million Windfall](https://www.reddit.com/r/wallstreetbets/comments/1e9snwo/crowdstrike_outage_nets_short_sellers_461_million/)
+- [Another 10% beating tomorrow for CRWD?](https://www.reddit.com/r/wallstreetbets/comments/1e9rl6r/another_10_beating_tomorrow_for_crwd/)
+- [Novavax &lpar;NVAX&rpar; about to skyrocket again. New and unique Malaria vaccine with 77% of efficacy !](https://www.reddit.com/r/wallstreetbets/comments/1e9pwv2/novavax_nvax_about_to_skyrocket_again_new_and/)
+- [6k Loss! All my savings](https://www.reddit.com/r/wallstreetbets/comments/1e9ptyp/6k_loss_all_my_savings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
