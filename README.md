@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Meta 210k Update](https://www.reddit.com/r/wallstreetbets/comments/1e9t3e2/meta_210k_update/)
-- [CrowdStrike Outage Nets Short Sellers $461 Million Windfall](https://www.reddit.com/r/wallstreetbets/comments/1e9snwo/crowdstrike_outage_nets_short_sellers_461_million/)
-- [Another 10% beating tomorrow for CRWD?](https://www.reddit.com/r/wallstreetbets/comments/1e9rl6r/another_10_beating_tomorrow_for_crwd/)
-- [Novavax &lpar;NVAX&rpar; about to skyrocket again. New and unique Malaria vaccine with 77% of efficacy !](https://www.reddit.com/r/wallstreetbets/comments/1e9pwv2/novavax_nvax_about_to_skyrocket_again_new_and/)
-- [6k Loss! All my savings](https://www.reddit.com/r/wallstreetbets/comments/1e9ptyp/6k_loss_all_my_savings/)
+- [Lost it on CRWD &amp; PLTR](https://www.reddit.com/r/wallstreetbets/comments/1eamv9x/lost_it_on_crwd_pltr/)
+- [TSLA 10K Weeklies YOLO](https://www.reddit.com/r/wallstreetbets/comments/1eamsge/tsla_10k_weeklies_yolo/)
+- [I buy TSLA because I am poor. I am poor because I keep buying TSLA.](https://www.reddit.com/r/wallstreetbets/comments/1eami4d/i_buy_tsla_because_i_am_poor_i_am_poor_because_i/)
+- [$TSLA puts printing in the AM](https://www.reddit.com/r/wallstreetbets/comments/1eam5ep/tsla_puts_printing_in_the_am/)
+- [Do investors actually believe that Tesla will continue to grow exponentially?](https://www.reddit.com/r/wallstreetbets/comments/1eakpc6/do_investors_actually_believe_that_tesla_will/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
