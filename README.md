@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lost it on CRWD &amp; PLTR](https://www.reddit.com/r/wallstreetbets/comments/1eamv9x/lost_it_on_crwd_pltr/)
-- [TSLA 10K Weeklies YOLO](https://www.reddit.com/r/wallstreetbets/comments/1eamsge/tsla_10k_weeklies_yolo/)
-- [I buy TSLA because I am poor. I am poor because I keep buying TSLA.](https://www.reddit.com/r/wallstreetbets/comments/1eami4d/i_buy_tsla_because_i_am_poor_i_am_poor_because_i/)
-- [$TSLA puts printing in the AM](https://www.reddit.com/r/wallstreetbets/comments/1eam5ep/tsla_puts_printing_in_the_am/)
-- [Do investors actually believe that Tesla will continue to grow exponentially?](https://www.reddit.com/r/wallstreetbets/comments/1eakpc6/do_investors_actually_believe_that_tesla_will/)
+- [$3000 in Puts Yesterday Would&#39;ve Netted $500,000 in Profit Overnight](https://www.reddit.com/r/wallstreetbets/comments/1ebdi4s/3000_in_puts_yesterday_wouldve_netted_500000_in/)
+- [20k yolo expiring tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1ebd7o4/20k_yolo_expiring_tomorrow/)
+- [I didn&#39;t hear no bell !!!](https://www.reddit.com/r/wallstreetbets/comments/1ebbimh/i_didnt_hear_no_bell/)
+- [Chipotle will save the markets](https://www.reddit.com/r/wallstreetbets/comments/1ebbe4j/chipotle_will_save_the_markets/)
+- [It was fun while it lasted](https://www.reddit.com/r/wallstreetbets/comments/1ebb8ap/it_was_fun_while_it_lasted/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
