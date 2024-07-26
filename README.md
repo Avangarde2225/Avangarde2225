@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$3000 in Puts Yesterday Would&#39;ve Netted $500,000 in Profit Overnight](https://www.reddit.com/r/wallstreetbets/comments/1ebdi4s/3000_in_puts_yesterday_wouldve_netted_500000_in/)
-- [20k yolo expiring tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1ebd7o4/20k_yolo_expiring_tomorrow/)
-- [I didn&#39;t hear no bell !!!](https://www.reddit.com/r/wallstreetbets/comments/1ebbimh/i_didnt_hear_no_bell/)
-- [Chipotle will save the markets](https://www.reddit.com/r/wallstreetbets/comments/1ebbe4j/chipotle_will_save_the_markets/)
-- [It was fun while it lasted](https://www.reddit.com/r/wallstreetbets/comments/1ebb8ap/it_was_fun_while_it_lasted/)
+- [Finally made it all back🥲](https://www.reddit.com/r/wallstreetbets/comments/1eca56r/finally_made_it_all_back/)
+- [$108k in SPY calls for tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1ec794d/108k_in_spy_calls_for_tomorrow/)
+- [$ASTS, don’t sleep](https://www.reddit.com/r/wallstreetbets/comments/1ec5yv9/asts_dont_sleep/)
+- [SPACEMOB YOLO Update](https://www.reddit.com/r/wallstreetbets/comments/1ec5ey2/spacemob_yolo_update/)
+- [20 bagger in a month](https://www.reddit.com/r/wallstreetbets/comments/1ec56qm/20_bagger_in_a_month/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
