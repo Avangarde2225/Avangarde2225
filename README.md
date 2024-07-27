@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Finally made it all back🥲](https://www.reddit.com/r/wallstreetbets/comments/1eca56r/finally_made_it_all_back/)
-- [$108k in SPY calls for tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1ec794d/108k_in_spy_calls_for_tomorrow/)
-- [$ASTS, don’t sleep](https://www.reddit.com/r/wallstreetbets/comments/1ec5yv9/asts_dont_sleep/)
-- [SPACEMOB YOLO Update](https://www.reddit.com/r/wallstreetbets/comments/1ec5ey2/spacemob_yolo_update/)
-- [20 bagger in a month](https://www.reddit.com/r/wallstreetbets/comments/1ec56qm/20_bagger_in_a_month/)
+- [Thinking to make a comeback](https://www.reddit.com/r/wallstreetbets/comments/1ed295u/thinking_to_make_a_comeback/)
+- [When buying the dip goes wrong](https://www.reddit.com/r/wallstreetbets/comments/1ed0xyx/when_buying_the_dip_goes_wrong/)
+- [ASTS the stock that you are](https://www.reddit.com/r/wallstreetbets/comments/1ed0eji/asts_the_stock_that_you_are/)
+- [SPY past 30 year drawdowns - useful for position sizing](https://www.reddit.com/r/wallstreetbets/comments/1eczn2d/spy_past_30_year_drawdowns_useful_for_position/)
+- [ASTS $150k GAIN](https://www.reddit.com/r/wallstreetbets/comments/1ecyh4s/asts_150k_gain/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
