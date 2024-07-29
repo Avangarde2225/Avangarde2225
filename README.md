@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thank you so much for your guidance and support.](https://www.reddit.com/r/wallstreetbets/comments/1edumfa/thank_you_so_much_for_your_guidance_and_support/)
-- [7K -&gt; 425K YTD gains](https://www.reddit.com/r/wallstreetbets/comments/1edt9ui/7k_425k_ytd_gains/)
-- [Middle East War could escalate this week](https://www.reddit.com/r/wallstreetbets/comments/1edsfxy/middle_east_war_could_escalate_this_week/)
-- [$MCD is going to miss earnings bigly on Monday?](https://www.reddit.com/r/wallstreetbets/comments/1edri5l/mcd_is_going_to_miss_earnings_bigly_on_monday/)
-- [Yellen says $3 trillion needed annually for climate financing, far more than current level](https://www.reddit.com/r/wallstreetbets/comments/1edqeyp/yellen_says_3_trillion_needed_annually_for/)
+- [Brutal market period coming – switching from QQQ puts to calls](https://www.reddit.com/r/wallstreetbets/comments/1eem5kb/brutal_market_period_coming_switching_from_qqq/)
+- [Uncertainty regarding the Israel war will propel the market up](https://www.reddit.com/r/wallstreetbets/comments/1eelwbg/uncertainty_regarding_the_israel_war_will_propel/)
+- [Loss Porn 2 for 1 special](https://www.reddit.com/r/wallstreetbets/comments/1eega2x/loss_porn_2_for_1_special/)
+- [What Are Your Moves Tomorrow, July 29, 2024](https://www.reddit.com/r/wallstreetbets/comments/1eeg5uy/what_are_your_moves_tomorrow_july_29_2024/)
+- [$ASTS, AssTits spreads too wide? 👅 options market liquidity](https://www.reddit.com/r/wallstreetbets/comments/1eeftlr/asts_asstits_spreads_too_wide_options_market/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
