@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Brutal market period coming – switching from QQQ puts to calls](https://www.reddit.com/r/wallstreetbets/comments/1eem5kb/brutal_market_period_coming_switching_from_qqq/)
-- [Uncertainty regarding the Israel war will propel the market up](https://www.reddit.com/r/wallstreetbets/comments/1eelwbg/uncertainty_regarding_the_israel_war_will_propel/)
-- [Loss Porn 2 for 1 special](https://www.reddit.com/r/wallstreetbets/comments/1eega2x/loss_porn_2_for_1_special/)
-- [What Are Your Moves Tomorrow, July 29, 2024](https://www.reddit.com/r/wallstreetbets/comments/1eeg5uy/what_are_your_moves_tomorrow_july_29_2024/)
-- [$ASTS, AssTits spreads too wide? 👅 options market liquidity](https://www.reddit.com/r/wallstreetbets/comments/1eeftlr/asts_asstits_spreads_too_wide_options_market/)
+- [Apple says it uses no Nvidia GPUs to train its AI models](https://www.reddit.com/r/wallstreetbets/comments/1efd90h/apple_says_it_uses_no_nvidia_gpus_to_train_its_ai/)
+- [Delta is seeking compensation from Crowdstrike and Microsoft following global outage](https://www.reddit.com/r/wallstreetbets/comments/1efbdtt/delta_is_seeking_compensation_from_crowdstrike/)
+- [Amd](https://www.reddit.com/r/wallstreetbets/comments/1efa2iw/amd/)
+- [I had brain surgery, what’s your excuse.](https://www.reddit.com/r/wallstreetbets/comments/1efa0ct/i_had_brain_surgery_whats_your_excuse/)
+- [$1000 in each ER](https://www.reddit.com/r/wallstreetbets/comments/1ef9xeg/1000_in_each_er/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
