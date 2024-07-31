@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple says it uses no Nvidia GPUs to train its AI models](https://www.reddit.com/r/wallstreetbets/comments/1efd90h/apple_says_it_uses_no_nvidia_gpus_to_train_its_ai/)
-- [Delta is seeking compensation from Crowdstrike and Microsoft following global outage](https://www.reddit.com/r/wallstreetbets/comments/1efbdtt/delta_is_seeking_compensation_from_crowdstrike/)
-- [Amd](https://www.reddit.com/r/wallstreetbets/comments/1efa2iw/amd/)
-- [I had brain surgery, what’s your excuse.](https://www.reddit.com/r/wallstreetbets/comments/1efa0ct/i_had_brain_surgery_whats_your_excuse/)
-- [$1000 in each ER](https://www.reddit.com/r/wallstreetbets/comments/1ef9xeg/1000_in_each_er/)
+- [To all the regards who bought MSFT calls](https://www.reddit.com/r/wallstreetbets/comments/1eg8d61/to_all_the_regards_who_bought_msft_calls/)
+- [1st year going perfect](https://www.reddit.com/r/wallstreetbets/comments/1eg85g5/1st_year_going_perfect/)
+- [Microsoft Earnings: Stock Tanks As AI Business Growth Worse Than Expected](https://www.reddit.com/r/wallstreetbets/comments/1eg7s6j/microsoft_earnings_stock_tanks_as_ai_business/)
+- [Dropped $60K on AMD Calls This Morning](https://www.reddit.com/r/wallstreetbets/comments/1eg7mya/dropped_60k_on_amd_calls_this_morning/)
+- [Market Recap Today 07/30/2024 + MSFT/AMD Earnings](https://www.reddit.com/r/wallstreetbets/comments/1eg6w5v/market_recap_today_07302024_msftamd_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
