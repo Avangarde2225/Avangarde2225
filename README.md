@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To all the regards who bought MSFT calls](https://www.reddit.com/r/wallstreetbets/comments/1eg8d61/to_all_the_regards_who_bought_msft_calls/)
-- [1st year going perfect](https://www.reddit.com/r/wallstreetbets/comments/1eg85g5/1st_year_going_perfect/)
-- [Microsoft Earnings: Stock Tanks As AI Business Growth Worse Than Expected](https://www.reddit.com/r/wallstreetbets/comments/1eg7s6j/microsoft_earnings_stock_tanks_as_ai_business/)
-- [Dropped $60K on AMD Calls This Morning](https://www.reddit.com/r/wallstreetbets/comments/1eg7mya/dropped_60k_on_amd_calls_this_morning/)
-- [Market Recap Today 07/30/2024 + MSFT/AMD Earnings](https://www.reddit.com/r/wallstreetbets/comments/1eg6w5v/market_recap_today_07302024_msftamd_earnings/)
+- [Buy high sell low](https://www.reddit.com/r/wallstreetbets/comments/1egzswj/buy_high_sell_low/)
+- [Learned about $asts from this sub in 2022. I’m not regarded enough for options.](https://www.reddit.com/r/wallstreetbets/comments/1egzbxr/learned_about_asts_from_this_sub_in_2022_im_not/)
+- [Meta Earnings Deliver: Stock Jumps As Profits Soar 73%](https://www.reddit.com/r/wallstreetbets/comments/1egyi0j/meta_earnings_deliver_stock_jumps_as_profits_soar/)
+- [Inverse Myself Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/1egxcvc/inverse_myself_gain_porn/)
+- [What Are Your Moves Tomorrow, August 01, 2024](https://www.reddit.com/r/wallstreetbets/comments/1egwq7x/what_are_your_moves_tomorrow_august_01_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
