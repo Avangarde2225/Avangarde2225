@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Buy high sell low](https://www.reddit.com/r/wallstreetbets/comments/1egzswj/buy_high_sell_low/)
-- [Learned about $asts from this sub in 2022. I’m not regarded enough for options.](https://www.reddit.com/r/wallstreetbets/comments/1egzbxr/learned_about_asts_from_this_sub_in_2022_im_not/)
-- [Meta Earnings Deliver: Stock Jumps As Profits Soar 73%](https://www.reddit.com/r/wallstreetbets/comments/1egyi0j/meta_earnings_deliver_stock_jumps_as_profits_soar/)
-- [Inverse Myself Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/1egxcvc/inverse_myself_gain_porn/)
-- [What Are Your Moves Tomorrow, August 01, 2024](https://www.reddit.com/r/wallstreetbets/comments/1egwq7x/what_are_your_moves_tomorrow_august_01_2024/)
+- [Most Anticipated Earnings Releases for the week beginning August 5th 2024](https://www.reddit.com/r/wallstreetbets/comments/1ehtldh/most_anticipated_earnings_releases_for_the_week/)
+- [Intel guy meets his grandma in Heaven](https://www.reddit.com/r/wallstreetbets/comments/1ehsv70/intel_guy_meets_his_grandma_in_heaven/)
+- [Intel to lay off more than 15% of its workforce, roughly 20,000 people.](https://www.reddit.com/r/wallstreetbets/comments/1ehrtty/intel_to_lay_off_more_than_15_of_its_workforce/)
+- [AMZN CFO Doubles Down on AI Saying It is Now a MultiBillion Dollar Business and will Raise CapEx to Build Out Data Centers](https://www.reddit.com/r/wallstreetbets/comments/1ehrskv/amzn_cfo_doubles_down_on_ai_saying_it_is_now_a/)
+- [Gotta start inversing myself](https://www.reddit.com/r/wallstreetbets/comments/1ehrlml/gotta_start_inversing_myself/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
