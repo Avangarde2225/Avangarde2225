@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Most Anticipated Earnings Releases for the week beginning August 5th 2024](https://www.reddit.com/r/wallstreetbets/comments/1ehtldh/most_anticipated_earnings_releases_for_the_week/)
-- [Intel guy meets his grandma in Heaven](https://www.reddit.com/r/wallstreetbets/comments/1ehsv70/intel_guy_meets_his_grandma_in_heaven/)
-- [Intel to lay off more than 15% of its workforce, roughly 20,000 people.](https://www.reddit.com/r/wallstreetbets/comments/1ehrtty/intel_to_lay_off_more_than_15_of_its_workforce/)
-- [AMZN CFO Doubles Down on AI Saying It is Now a MultiBillion Dollar Business and will Raise CapEx to Build Out Data Centers](https://www.reddit.com/r/wallstreetbets/comments/1ehrskv/amzn_cfo_doubles_down_on_ai_saying_it_is_now_a/)
-- [Gotta start inversing myself](https://www.reddit.com/r/wallstreetbets/comments/1ehrlml/gotta_start_inversing_myself/)
+- [ALL IN NVIDIA @ $107 hope i can sell this at $150 this year 🙏💚](https://www.reddit.com/r/wallstreetbets/comments/1eimhpu/all_in_nvidia_107_hope_i_can_sell_this_at_150/)
+- [Ok, I definitely picked the wrong day to buy &lpar;intel 700k yolo update&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1eiktnw/ok_i_definitely_picked_the_wrong_day_to_buy_intel/)
+- [Only $700K on $INTC ? Hold my beer!](https://www.reddit.com/r/wallstreetbets/comments/1eikmql/only_700k_on_intc_hold_my_beer/)
+- [SP500 heatmap as of today&#39;s close](https://www.reddit.com/r/wallstreetbets/comments/1eijrpp/sp500_heatmap_as_of_todays_close/)
+- [Inflation](https://www.reddit.com/r/wallstreetbets/comments/1eijq2c/inflation/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
