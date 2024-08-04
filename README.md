@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ALL IN NVIDIA @ $107 hope i can sell this at $150 this year 🙏💚](https://www.reddit.com/r/wallstreetbets/comments/1eimhpu/all_in_nvidia_107_hope_i_can_sell_this_at_150/)
-- [Ok, I definitely picked the wrong day to buy &lpar;intel 700k yolo update&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1eiktnw/ok_i_definitely_picked_the_wrong_day_to_buy_intel/)
-- [Only $700K on $INTC ? Hold my beer!](https://www.reddit.com/r/wallstreetbets/comments/1eikmql/only_700k_on_intc_hold_my_beer/)
-- [SP500 heatmap as of today&#39;s close](https://www.reddit.com/r/wallstreetbets/comments/1eijrpp/sp500_heatmap_as_of_todays_close/)
-- [Inflation](https://www.reddit.com/r/wallstreetbets/comments/1eijq2c/inflation/)
+- [The Bulls Are Delusional](https://www.reddit.com/r/wallstreetbets/comments/1ejdpmg/the_bulls_are_delusional/)
+- [Mideast instability going to enter the chat this week $LMT $RTX $MRO $OXY $HES](https://www.reddit.com/r/wallstreetbets/comments/1eja9ta/mideast_instability_going_to_enter_the_chat_this/)
+- [Not saying it will happen tomorrow, will history repeat itself?](https://www.reddit.com/r/wallstreetbets/comments/1eja4ld/not_saying_it_will_happen_tomorrow_will_history/)
+- [Nvidia’s New AI Chip Delayed Due to Design Flaws](https://www.reddit.com/r/wallstreetbets/comments/1ej89b2/nvidias_new_ai_chip_delayed_due_to_design_flaws/)
+- [To the guy who spent his 700k inheritance on Intel: this is bullish.](https://www.reddit.com/r/wallstreetbets/comments/1ej86ni/to_the_guy_who_spent_his_700k_inheritance_on/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
