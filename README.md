@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Bulls Are Delusional](https://www.reddit.com/r/wallstreetbets/comments/1ejdpmg/the_bulls_are_delusional/)
-- [Mideast instability going to enter the chat this week $LMT $RTX $MRO $OXY $HES](https://www.reddit.com/r/wallstreetbets/comments/1eja9ta/mideast_instability_going_to_enter_the_chat_this/)
-- [Not saying it will happen tomorrow, will history repeat itself?](https://www.reddit.com/r/wallstreetbets/comments/1eja4ld/not_saying_it_will_happen_tomorrow_will_history/)
-- [Nvidia’s New AI Chip Delayed Due to Design Flaws](https://www.reddit.com/r/wallstreetbets/comments/1ej89b2/nvidias_new_ai_chip_delayed_due_to_design_flaws/)
-- [To the guy who spent his 700k inheritance on Intel: this is bullish.](https://www.reddit.com/r/wallstreetbets/comments/1ej86ni/to_the_guy_who_spent_his_700k_inheritance_on/)
+- [Buy the dip?](https://www.reddit.com/r/wallstreetbets/comments/1ekacv4/buy_the_dip/)
+- [Robinhood 24 hour market just started and QQQ already almost 2% down. Tomorrow looking very red...](https://www.reddit.com/r/wallstreetbets/comments/1ekabqn/robinhood_24_hour_market_just_started_and_qqq/)
+- [No panic](https://www.reddit.com/r/wallstreetbets/comments/1eka07o/no_panic/)
+- [People calling a recession in this sub are fully regarded](https://www.reddit.com/r/wallstreetbets/comments/1ek9bwi/people_calling_a_recession_in_this_sub_are_fully/)
+- [IWM Rally similarities...](https://www.reddit.com/r/wallstreetbets/comments/1ek8udu/iwm_rally_similarities/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
