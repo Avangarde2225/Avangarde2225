@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Buy the dip?](https://www.reddit.com/r/wallstreetbets/comments/1ekacv4/buy_the_dip/)
-- [Robinhood 24 hour market just started and QQQ already almost 2% down. Tomorrow looking very red...](https://www.reddit.com/r/wallstreetbets/comments/1ekabqn/robinhood_24_hour_market_just_started_and_qqq/)
-- [No panic](https://www.reddit.com/r/wallstreetbets/comments/1eka07o/no_panic/)
-- [People calling a recession in this sub are fully regarded](https://www.reddit.com/r/wallstreetbets/comments/1ek9bwi/people_calling_a_recession_in_this_sub_are_fully/)
-- [IWM Rally similarities...](https://www.reddit.com/r/wallstreetbets/comments/1ek8udu/iwm_rally_similarities/)
+- [A video tldr version of what&#39;s been happening on the market.](https://www.reddit.com/r/wallstreetbets/comments/1el2e1p/a_video_tldr_version_of_whats_been_happening_on/)
+- [Thanks for the killer options tips friends](https://www.reddit.com/r/wallstreetbets/comments/1el23ff/thanks_for_the_killer_options_tips_friends/)
+- [Losing $225,000 on Intel in support of grandma’s fav grandson!](https://www.reddit.com/r/wallstreetbets/comments/1el0oa1/losing_225000_on_intel_in_support_of_grandmas_fav/)
+- [put at opening](https://www.reddit.com/r/wallstreetbets/comments/1el0387/put_at_opening/)
+- [Do not fear. Jerome Powell will save us.](https://www.reddit.com/r/wallstreetbets/comments/1ekyu79/do_not_fear_jerome_powell_will_save_us/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
