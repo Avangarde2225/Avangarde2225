@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A video tldr version of what&#39;s been happening on the market.](https://www.reddit.com/r/wallstreetbets/comments/1el2e1p/a_video_tldr_version_of_whats_been_happening_on/)
-- [Thanks for the killer options tips friends](https://www.reddit.com/r/wallstreetbets/comments/1el23ff/thanks_for_the_killer_options_tips_friends/)
-- [Losing $225,000 on Intel in support of grandma’s fav grandson!](https://www.reddit.com/r/wallstreetbets/comments/1el0oa1/losing_225000_on_intel_in_support_of_grandmas_fav/)
-- [put at opening](https://www.reddit.com/r/wallstreetbets/comments/1el0387/put_at_opening/)
-- [Do not fear. Jerome Powell will save us.](https://www.reddit.com/r/wallstreetbets/comments/1ekyu79/do_not_fear_jerome_powell_will_save_us/)
+- [$SMCI Earnings](https://www.reddit.com/r/wallstreetbets/comments/1elt2kr/smci_earnings/)
+- [A Tale of 2 Cities $SMCI](https://www.reddit.com/r/wallstreetbets/comments/1elsw7b/a_tale_of_2_cities_smci/)
+- [Super Micro Computer &lpar;SMCI&rpar; Q4 2024: Stock split 10:1](https://www.reddit.com/r/wallstreetbets/comments/1els6cq/super_micro_computer_smci_q4_2024_stock_split_101/)
+- [Reddit Announces Second Quarter 2024 Results](https://www.reddit.com/r/wallstreetbets/comments/1elro37/reddit_announces_second_quarter_2024_results/)
+- [What Are Your Moves Tomorrow, August 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1elrifp/what_are_your_moves_tomorrow_august_07_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
