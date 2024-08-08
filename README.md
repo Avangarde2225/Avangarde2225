@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$SMCI Earnings](https://www.reddit.com/r/wallstreetbets/comments/1elt2kr/smci_earnings/)
-- [A Tale of 2 Cities $SMCI](https://www.reddit.com/r/wallstreetbets/comments/1elsw7b/a_tale_of_2_cities_smci/)
-- [Super Micro Computer &lpar;SMCI&rpar; Q4 2024: Stock split 10:1](https://www.reddit.com/r/wallstreetbets/comments/1els6cq/super_micro_computer_smci_q4_2024_stock_split_101/)
-- [Reddit Announces Second Quarter 2024 Results](https://www.reddit.com/r/wallstreetbets/comments/1elro37/reddit_announces_second_quarter_2024_results/)
-- [What Are Your Moves Tomorrow, August 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1elrifp/what_are_your_moves_tomorrow_august_07_2024/)
+- [What do you figure happens tomorrow AM?](https://www.reddit.com/r/wallstreetbets/comments/1emq7mx/what_do_you_figure_happens_tomorrow_am/)
+- [$500-$505 on SPY still on deck and why one could have seen what was going to happen today.](https://www.reddit.com/r/wallstreetbets/comments/1emppt5/500505_on_spy_still_on_deck_and_why_one_could/)
+- [I’m back trading 0DTE options on futures in addition to SPY, went from $1K to $25K on 0DTEs. Blew it down to $1K and then made it back today](https://www.reddit.com/r/wallstreetbets/comments/1emoiua/im_back_trading_0dte_options_on_futures_in/)
+- [As confused as they want me to be](https://www.reddit.com/r/wallstreetbets/comments/1emmy3e/as_confused_as_they_want_me_to_be/)
+- [What Are Your Moves Tomorrow, August 08, 2024](https://www.reddit.com/r/wallstreetbets/comments/1emlp9e/what_are_your_moves_tomorrow_august_08_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
