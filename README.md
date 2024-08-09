@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What do you figure happens tomorrow AM?](https://www.reddit.com/r/wallstreetbets/comments/1emq7mx/what_do_you_figure_happens_tomorrow_am/)
-- [$500-$505 on SPY still on deck and why one could have seen what was going to happen today.](https://www.reddit.com/r/wallstreetbets/comments/1emppt5/500505_on_spy_still_on_deck_and_why_one_could/)
-- [I’m back trading 0DTE options on futures in addition to SPY, went from $1K to $25K on 0DTEs. Blew it down to $1K and then made it back today](https://www.reddit.com/r/wallstreetbets/comments/1emoiua/im_back_trading_0dte_options_on_futures_in/)
-- [As confused as they want me to be](https://www.reddit.com/r/wallstreetbets/comments/1emmy3e/as_confused_as_they_want_me_to_be/)
-- [What Are Your Moves Tomorrow, August 08, 2024](https://www.reddit.com/r/wallstreetbets/comments/1emlp9e/what_are_your_moves_tomorrow_august_08_2024/)
+- [3k to 19k in three months](https://www.reddit.com/r/wallstreetbets/comments/1enkus9/3k_to_19k_in_three_months/)
+- [Trading options is fun](https://www.reddit.com/r/wallstreetbets/comments/1enk5oj/trading_options_is_fun/)
+- [Update on $1.28mil QQQ YOLO &lpar;bought using margin&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1enitud/update_on_128mil_qqq_yolo_bought_using_margin/)
+- [A new report finds Boeing’s rockets are built with an unqualified work force](https://www.reddit.com/r/wallstreetbets/comments/1eni3ur/a_new_report_finds_boeings_rockets_are_built_with/)
+- [Time to leave the casino](https://www.reddit.com/r/wallstreetbets/comments/1enhen6/time_to_leave_the_casino/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
