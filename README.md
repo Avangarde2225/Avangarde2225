@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [3k to 19k in three months](https://www.reddit.com/r/wallstreetbets/comments/1enkus9/3k_to_19k_in_three_months/)
-- [Trading options is fun](https://www.reddit.com/r/wallstreetbets/comments/1enk5oj/trading_options_is_fun/)
-- [Update on $1.28mil QQQ YOLO &lpar;bought using margin&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1enitud/update_on_128mil_qqq_yolo_bought_using_margin/)
-- [A new report finds Boeing’s rockets are built with an unqualified work force](https://www.reddit.com/r/wallstreetbets/comments/1eni3ur/a_new_report_finds_boeings_rockets_are_built_with/)
-- [Time to leave the casino](https://www.reddit.com/r/wallstreetbets/comments/1enhen6/time_to_leave_the_casino/)
+- [Update: American consumer credit is tapped out part 2](https://www.reddit.com/r/wallstreetbets/comments/1eoe3g4/update_american_consumer_credit_is_tapped_out/)
+- [ASTS YOLO update with $](https://www.reddit.com/r/wallstreetbets/comments/1eodzgy/asts_yolo_update_with/)
+- [Decent week for once](https://www.reddit.com/r/wallstreetbets/comments/1eobdkt/decent_week_for_once/)
+- [Weekend Discussion Thread for the Weekend of August 09, 2024](https://www.reddit.com/r/wallstreetbets/comments/1eo9gij/weekend_discussion_thread_for_the_weekend_of/)
+- [10k gain since July 17th](https://www.reddit.com/r/wallstreetbets/comments/1eo973n/10k_gain_since_july_17th/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
