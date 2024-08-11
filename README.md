@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Update: American consumer credit is tapped out part 2](https://www.reddit.com/r/wallstreetbets/comments/1eoe3g4/update_american_consumer_credit_is_tapped_out/)
-- [ASTS YOLO update with $](https://www.reddit.com/r/wallstreetbets/comments/1eodzgy/asts_yolo_update_with/)
-- [Decent week for once](https://www.reddit.com/r/wallstreetbets/comments/1eobdkt/decent_week_for_once/)
-- [Weekend Discussion Thread for the Weekend of August 09, 2024](https://www.reddit.com/r/wallstreetbets/comments/1eo9gij/weekend_discussion_thread_for_the_weekend_of/)
-- [10k gain since July 17th](https://www.reddit.com/r/wallstreetbets/comments/1eo973n/10k_gain_since_july_17th/)
+- [WTF is going on with SIRI?](https://www.reddit.com/r/wallstreetbets/comments/1ep7fbv/wtf_is_going_on_with_siri/)
+- [The precious metals sector is in a stealth bull market - ride the inflation wave or be crushed by it - DD and internals data](https://www.reddit.com/r/wallstreetbets/comments/1ep7fbe/the_precious_metals_sector_is_in_a_stealth_bull/)
+- [Year loss](https://www.reddit.com/r/wallstreetbets/comments/1ep5ubu/year_loss/)
+- [Hindenburg research explosive report on Indian Market Regulator.](https://www.reddit.com/r/wallstreetbets/comments/1ep4c1m/hindenburg_research_explosive_report_on_indian/)
+- [SHORT TSLA](https://www.reddit.com/r/wallstreetbets/comments/1ep475v/short_tsla/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
