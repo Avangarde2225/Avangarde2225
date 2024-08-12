@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WTF is going on with SIRI?](https://www.reddit.com/r/wallstreetbets/comments/1ep7fbv/wtf_is_going_on_with_siri/)
-- [The precious metals sector is in a stealth bull market - ride the inflation wave or be crushed by it - DD and internals data](https://www.reddit.com/r/wallstreetbets/comments/1ep7fbe/the_precious_metals_sector_is_in_a_stealth_bull/)
-- [Year loss](https://www.reddit.com/r/wallstreetbets/comments/1ep5ubu/year_loss/)
-- [Hindenburg research explosive report on Indian Market Regulator.](https://www.reddit.com/r/wallstreetbets/comments/1ep4c1m/hindenburg_research_explosive_report_on_indian/)
-- [SHORT TSLA](https://www.reddit.com/r/wallstreetbets/comments/1ep475v/short_tsla/)
+- [EXTREME FEAR?](https://www.reddit.com/r/wallstreetbets/comments/1epz2lu/extreme_fear/)
+- [Thought this should belong here](https://www.reddit.com/r/wallstreetbets/comments/1epxfxx/thought_this_should_belong_here/)
+- [How to play the coming inflation &lpar;CPI and PPI&rpar; numbers this week?](https://www.reddit.com/r/wallstreetbets/comments/1epwgnu/how_to_play_the_coming_inflation_cpi_and_ppi/)
+- [NEW FROM US: Whistleblower Documents Reveal SEBI’s Chairperson Had Stake In Obscure Offshore Entities Used In Adani Money Siphoning Scandal](https://www.reddit.com/r/wallstreetbets/comments/1epw1lx/new_from_us_whistleblower_documents_reveal_sebis/)
+- [What Are Your Moves Tomorrow, August 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1eptzp4/what_are_your_moves_tomorrow_august_12_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
