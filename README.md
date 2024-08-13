@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [EXTREME FEAR?](https://www.reddit.com/r/wallstreetbets/comments/1epz2lu/extreme_fear/)
-- [Thought this should belong here](https://www.reddit.com/r/wallstreetbets/comments/1epxfxx/thought_this_should_belong_here/)
-- [How to play the coming inflation &lpar;CPI and PPI&rpar; numbers this week?](https://www.reddit.com/r/wallstreetbets/comments/1epwgnu/how_to_play_the_coming_inflation_cpi_and_ppi/)
-- [NEW FROM US: Whistleblower Documents Reveal SEBI’s Chairperson Had Stake In Obscure Offshore Entities Used In Adani Money Siphoning Scandal](https://www.reddit.com/r/wallstreetbets/comments/1epw1lx/new_from_us_whistleblower_documents_reveal_sebis/)
-- [What Are Your Moves Tomorrow, August 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1eptzp4/what_are_your_moves_tomorrow_august_12_2024/)
+- [If only, if only](https://www.reddit.com/r/wallstreetbets/comments/1eqtdca/if_only_if_only/)
+- [If you have the faith of a mustard seed](https://www.reddit.com/r/wallstreetbets/comments/1eqst5k/if_you_have_the_faith_of_a_mustard_seed/)
+- [this one’s for you grandma guy. you get back up to 700k we both get paid](https://www.reddit.com/r/wallstreetbets/comments/1eqs237/this_ones_for_you_grandma_guy_you_get_back_up_to/)
+- [uso gain](https://www.reddit.com/r/wallstreetbets/comments/1eqqhp5/uso_gain/)
+- [Turned my last $300 into $3000](https://www.reddit.com/r/wallstreetbets/comments/1eqqhjs/turned_my_last_300_into_3000/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
