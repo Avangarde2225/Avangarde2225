@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If only, if only](https://www.reddit.com/r/wallstreetbets/comments/1eqtdca/if_only_if_only/)
-- [If you have the faith of a mustard seed](https://www.reddit.com/r/wallstreetbets/comments/1eqst5k/if_you_have_the_faith_of_a_mustard_seed/)
-- [this one’s for you grandma guy. you get back up to 700k we both get paid](https://www.reddit.com/r/wallstreetbets/comments/1eqs237/this_ones_for_you_grandma_guy_you_get_back_up_to/)
-- [uso gain](https://www.reddit.com/r/wallstreetbets/comments/1eqqhp5/uso_gain/)
-- [Turned my last $300 into $3000](https://www.reddit.com/r/wallstreetbets/comments/1eqqhjs/turned_my_last_300_into_3000/)
+- [Funny how everyone is bullish and in love with Nvidia suddenly after spending the last 3 weeks saying to sell and AI/tech is over.](https://www.reddit.com/r/wallstreetbets/comments/1ermp8c/funny_how_everyone_is_bullish_and_in_love_with/)
+- [Massive Banks Are Now Accused of Cheating Customers Billions](https://www.reddit.com/r/wallstreetbets/comments/1erm7xh/massive_banks_are_now_accused_of_cheating/)
+- [Starbucks shares soar over 24% after poaching Chipotle CEO Brian Niccol. Chipotle drops 9% on news](https://www.reddit.com/r/wallstreetbets/comments/1erkcjj/starbucks_shares_soar_over_24_after_poaching/)
+- [Higher risk=higher reward. Thanks Starbucks your coffee is still trash tho](https://www.reddit.com/r/wallstreetbets/comments/1erjs70/higher_riskhigher_reward_thanks_starbucks_your/)
+- [I doubled down on 0dte spy puts all day, expecting a pullback. I broke the number one rule. Don&#39;t trade with emotion.](https://www.reddit.com/r/wallstreetbets/comments/1erjjh3/i_doubled_down_on_0dte_spy_puts_all_day_expecting/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
