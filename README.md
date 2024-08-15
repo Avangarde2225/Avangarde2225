@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Funny how everyone is bullish and in love with Nvidia suddenly after spending the last 3 weeks saying to sell and AI/tech is over.](https://www.reddit.com/r/wallstreetbets/comments/1ermp8c/funny_how_everyone_is_bullish_and_in_love_with/)
-- [Massive Banks Are Now Accused of Cheating Customers Billions](https://www.reddit.com/r/wallstreetbets/comments/1erm7xh/massive_banks_are_now_accused_of_cheating/)
-- [Starbucks shares soar over 24% after poaching Chipotle CEO Brian Niccol. Chipotle drops 9% on news](https://www.reddit.com/r/wallstreetbets/comments/1erkcjj/starbucks_shares_soar_over_24_after_poaching/)
-- [Higher risk=higher reward. Thanks Starbucks your coffee is still trash tho](https://www.reddit.com/r/wallstreetbets/comments/1erjs70/higher_riskhigher_reward_thanks_starbucks_your/)
-- [I doubled down on 0dte spy puts all day, expecting a pullback. I broke the number one rule. Don&#39;t trade with emotion.](https://www.reddit.com/r/wallstreetbets/comments/1erjjh3/i_doubled_down_on_0dte_spy_puts_all_day_expecting/)
+- [Thanks to the regard who recommended this stock before close yesterday](https://www.reddit.com/r/wallstreetbets/comments/1esgvd2/thanks_to_the_regard_who_recommended_this_stock/)
+- [What&#39;s your &#39;revenge trading&#39; story where you blew up your account? Most of us have one &lpar;or multiple&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1esg76d/whats_your_revenge_trading_story_where_you_blew/)
+- [One upping grandma part 2](https://www.reddit.com/r/wallstreetbets/comments/1esdfa9/one_upping_grandma_part_2/)
+- [Whoops](https://www.reddit.com/r/wallstreetbets/comments/1escase/whoops/)
+- [Got too cocky after reaching break even](https://www.reddit.com/r/wallstreetbets/comments/1esc70q/got_too_cocky_after_reaching_break_even/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
