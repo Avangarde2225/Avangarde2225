@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks to the regard who recommended this stock before close yesterday](https://www.reddit.com/r/wallstreetbets/comments/1esgvd2/thanks_to_the_regard_who_recommended_this_stock/)
-- [What&#39;s your &#39;revenge trading&#39; story where you blew up your account? Most of us have one &lpar;or multiple&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1esg76d/whats_your_revenge_trading_story_where_you_blew/)
-- [One upping grandma part 2](https://www.reddit.com/r/wallstreetbets/comments/1esdfa9/one_upping_grandma_part_2/)
-- [Whoops](https://www.reddit.com/r/wallstreetbets/comments/1escase/whoops/)
-- [Got too cocky after reaching break even](https://www.reddit.com/r/wallstreetbets/comments/1esc70q/got_too_cocky_after_reaching_break_even/)
+- [Where’s my fellow ASTS bag holders at](https://www.reddit.com/r/wallstreetbets/comments/1et8qbz/wheres_my_fellow_asts_bag_holders_at/)
+- [18k gain in under 30 seconds](https://www.reddit.com/r/wallstreetbets/comments/1et6wom/18k_gain_in_under_30_seconds/)
+- [Most Anticipated Earnings Releases for the week beginning August 19th 2024](https://www.reddit.com/r/wallstreetbets/comments/1et6pj9/most_anticipated_earnings_releases_for_the_week/)
+- [College student sized $ASTS gain](https://www.reddit.com/r/wallstreetbets/comments/1et60g8/college_student_sized_asts_gain/)
+- [🛰️ ASTS Yolo Update +300k &lpar;Still Holding&rpar; 🛰️](https://www.reddit.com/r/wallstreetbets/comments/1et5x2q/asts_yolo_update_300k_still_holding/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
