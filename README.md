@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Where’s my fellow ASTS bag holders at](https://www.reddit.com/r/wallstreetbets/comments/1et8qbz/wheres_my_fellow_asts_bag_holders_at/)
-- [18k gain in under 30 seconds](https://www.reddit.com/r/wallstreetbets/comments/1et6wom/18k_gain_in_under_30_seconds/)
-- [Most Anticipated Earnings Releases for the week beginning August 19th 2024](https://www.reddit.com/r/wallstreetbets/comments/1et6pj9/most_anticipated_earnings_releases_for_the_week/)
-- [College student sized $ASTS gain](https://www.reddit.com/r/wallstreetbets/comments/1et60g8/college_student_sized_asts_gain/)
-- [🛰️ ASTS Yolo Update +300k &lpar;Still Holding&rpar; 🛰️](https://www.reddit.com/r/wallstreetbets/comments/1et5x2q/asts_yolo_update_300k_still_holding/)
+- [Bought the dip](https://www.reddit.com/r/wallstreetbets/comments/1eu3glz/bought_the_dip/)
+- [I found ASTS here in 2021, thanks WSB.](https://www.reddit.com/r/wallstreetbets/comments/1eu2rq8/i_found_asts_here_in_2021_thanks_wsb/)
+- [1.8k loss where do I go from here?](https://www.reddit.com/r/wallstreetbets/comments/1eu26fx/18k_loss_where_do_i_go_from_here/)
+- [Bring on the suicide helpline numbers. -550k on $RILY](https://www.reddit.com/r/wallstreetbets/comments/1eu0tvc/bring_on_the_suicide_helpline_numbers_550k_on_rily/)
+- [$ASTS turned $20k to $200k . Exit plan is ~1M 🚀](https://www.reddit.com/r/wallstreetbets/comments/1eu0i0o/asts_turned_20k_to_200k_exit_plan_is_1m/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
