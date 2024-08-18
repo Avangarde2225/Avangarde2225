@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought the dip](https://www.reddit.com/r/wallstreetbets/comments/1eu3glz/bought_the_dip/)
-- [I found ASTS here in 2021, thanks WSB.](https://www.reddit.com/r/wallstreetbets/comments/1eu2rq8/i_found_asts_here_in_2021_thanks_wsb/)
-- [1.8k loss where do I go from here?](https://www.reddit.com/r/wallstreetbets/comments/1eu26fx/18k_loss_where_do_i_go_from_here/)
-- [Bring on the suicide helpline numbers. -550k on $RILY](https://www.reddit.com/r/wallstreetbets/comments/1eu0tvc/bring_on_the_suicide_helpline_numbers_550k_on_rily/)
-- [$ASTS turned $20k to $200k . Exit plan is ~1M 🚀](https://www.reddit.com/r/wallstreetbets/comments/1eu0i0o/asts_turned_20k_to_200k_exit_plan_is_1m/)
+- [Southwest Puts - Anyone want to check the multiples?](https://www.reddit.com/r/wallstreetbets/comments/1euuq93/southwest_puts_anyone_want_to_check_the_multiples/)
+- [$CLOV Gains 💪💪💪](https://www.reddit.com/r/wallstreetbets/comments/1eutxtt/clov_gains/)
+- [-$100k YTD and my brokerage can&#39;t even show a good chart](https://www.reddit.com/r/wallstreetbets/comments/1eure4i/100k_ytd_and_my_brokerage_cant_even_show_a_good/)
+- [$TSLA PUT YOLO](https://www.reddit.com/r/wallstreetbets/comments/1eunq7n/tsla_put_yolo/)
+- [Can’t complain, can’t complain…](https://www.reddit.com/r/wallstreetbets/comments/1eukyu6/cant_complain_cant_complain/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
