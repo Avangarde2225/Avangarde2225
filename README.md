@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Southwest Puts - Anyone want to check the multiples?](https://www.reddit.com/r/wallstreetbets/comments/1euuq93/southwest_puts_anyone_want_to_check_the_multiples/)
-- [$CLOV Gains 💪💪💪](https://www.reddit.com/r/wallstreetbets/comments/1eutxtt/clov_gains/)
-- [-$100k YTD and my brokerage can&#39;t even show a good chart](https://www.reddit.com/r/wallstreetbets/comments/1eure4i/100k_ytd_and_my_brokerage_cant_even_show_a_good/)
-- [$TSLA PUT YOLO](https://www.reddit.com/r/wallstreetbets/comments/1eunq7n/tsla_put_yolo/)
-- [Can’t complain, can’t complain…](https://www.reddit.com/r/wallstreetbets/comments/1eukyu6/cant_complain_cant_complain/)
+- [The Signs, the Signs Were Everywhere...](https://www.reddit.com/r/wallstreetbets/comments/1evodl7/the_signs_the_signs_were_everywhere/)
+- [Everything on resistance points but Iran&#39;s retaliation for Smail Haniyeh hasn&#39;t happened yet.](https://www.reddit.com/r/wallstreetbets/comments/1evo3n4/everything_on_resistance_points_but_irans/)
+- [Iovance](https://www.reddit.com/r/wallstreetbets/comments/1evnsnh/iovance/)
+- [How Do You Get Over Opportunity Cost Loss?](https://www.reddit.com/r/wallstreetbets/comments/1evljym/how_do_you_get_over_opportunity_cost_loss/)
+- [NVDA4eVr ligma](https://www.reddit.com/r/wallstreetbets/comments/1evjsq6/nvda4evr_ligma/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
