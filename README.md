@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Signs, the Signs Were Everywhere...](https://www.reddit.com/r/wallstreetbets/comments/1evodl7/the_signs_the_signs_were_everywhere/)
-- [Everything on resistance points but Iran&#39;s retaliation for Smail Haniyeh hasn&#39;t happened yet.](https://www.reddit.com/r/wallstreetbets/comments/1evo3n4/everything_on_resistance_points_but_irans/)
-- [Iovance](https://www.reddit.com/r/wallstreetbets/comments/1evnsnh/iovance/)
-- [How Do You Get Over Opportunity Cost Loss?](https://www.reddit.com/r/wallstreetbets/comments/1evljym/how_do_you_get_over_opportunity_cost_loss/)
-- [NVDA4eVr ligma](https://www.reddit.com/r/wallstreetbets/comments/1evjsq6/nvda4evr_ligma/)
+- [Someone tell Intel grandma that there&#39;s hope!](https://www.reddit.com/r/wallstreetbets/comments/1ewgi09/someone_tell_intel_grandma_that_theres_hope/)
+- [Conviction or mental illness? You decide. $ASTS](https://www.reddit.com/r/wallstreetbets/comments/1ewg3t9/conviction_or_mental_illness_you_decide_asts/)
+- [I just cant believe i made it back.](https://www.reddit.com/r/wallstreetbets/comments/1ewe697/i_just_cant_believe_i_made_it_back/)
+- [Finally broke $250k thanks NVDA](https://www.reddit.com/r/wallstreetbets/comments/1ewcn5u/finally_broke_250k_thanks_nvda/)
+- [Never give up 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ewceab/never_give_up/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
