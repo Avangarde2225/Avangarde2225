@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Someone tell Intel grandma that there&#39;s hope!](https://www.reddit.com/r/wallstreetbets/comments/1ewgi09/someone_tell_intel_grandma_that_theres_hope/)
-- [Conviction or mental illness? You decide. $ASTS](https://www.reddit.com/r/wallstreetbets/comments/1ewg3t9/conviction_or_mental_illness_you_decide_asts/)
-- [I just cant believe i made it back.](https://www.reddit.com/r/wallstreetbets/comments/1ewe697/i_just_cant_believe_i_made_it_back/)
-- [Finally broke $250k thanks NVDA](https://www.reddit.com/r/wallstreetbets/comments/1ewcn5u/finally_broke_250k_thanks_nvda/)
-- [Never give up 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ewceab/never_give_up/)
+- [First ones free](https://www.reddit.com/r/wallstreetbets/comments/1exb3ms/first_ones_free/)
+- [Leaked Documents Show Nvidia Scraping ‘A Human Lifetime’ of Videos Per Day to Train AI](https://www.reddit.com/r/wallstreetbets/comments/1ex7pp0/leaked_documents_show_nvidia_scraping_a_human/)
+- [Clov ☘️](https://www.reddit.com/r/wallstreetbets/comments/1ex7nx9/clov/)
+- [I thought I figured out the market](https://www.reddit.com/r/wallstreetbets/comments/1ex7kum/i_thought_i_figured_out_the_market/)
+- [Been holding $RKLB for 3 years](https://www.reddit.com/r/wallstreetbets/comments/1ex6shk/been_holding_rklb_for_3_years/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
