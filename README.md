@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [First ones free](https://www.reddit.com/r/wallstreetbets/comments/1exb3ms/first_ones_free/)
-- [Leaked Documents Show Nvidia Scraping ‘A Human Lifetime’ of Videos Per Day to Train AI](https://www.reddit.com/r/wallstreetbets/comments/1ex7pp0/leaked_documents_show_nvidia_scraping_a_human/)
-- [Clov ☘️](https://www.reddit.com/r/wallstreetbets/comments/1ex7nx9/clov/)
-- [I thought I figured out the market](https://www.reddit.com/r/wallstreetbets/comments/1ex7kum/i_thought_i_figured_out_the_market/)
-- [Been holding $RKLB for 3 years](https://www.reddit.com/r/wallstreetbets/comments/1ex6shk/been_holding_rklb_for_3_years/)
+- [Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/1ey4q26/wendys/)
+- [Double o nothing 0dtes &lpar;+162k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ey3ygh/double_o_nothing_0dtes_162k/)
+- [When I Found Out How Bad The Fed Fucked Up Today](https://www.reddit.com/r/wallstreetbets/comments/1ey2z0n/when_i_found_out_how_bad_the_fed_fucked_up_today/)
+- [4K with SPY calls this week as a 20YO college student.](https://www.reddit.com/r/wallstreetbets/comments/1ey2hdh/4k_with_spy_calls_this_week_as_a_20yo_college/)
+- [Boeing Is Hiring 20 Times More Engineers From India As US Aims To Cut Dependence On China: Media](https://www.reddit.com/r/wallstreetbets/comments/1ey28xe/boeing_is_hiring_20_times_more_engineers_from/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
