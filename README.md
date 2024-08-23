@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/1ey4q26/wendys/)
-- [Double o nothing 0dtes &lpar;+162k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ey3ygh/double_o_nothing_0dtes_162k/)
-- [When I Found Out How Bad The Fed Fucked Up Today](https://www.reddit.com/r/wallstreetbets/comments/1ey2z0n/when_i_found_out_how_bad_the_fed_fucked_up_today/)
-- [4K with SPY calls this week as a 20YO college student.](https://www.reddit.com/r/wallstreetbets/comments/1ey2hdh/4k_with_spy_calls_this_week_as_a_20yo_college/)
-- [Boeing Is Hiring 20 Times More Engineers From India As US Aims To Cut Dependence On China: Media](https://www.reddit.com/r/wallstreetbets/comments/1ey28xe/boeing_is_hiring_20_times_more_engineers_from/)
+- [Grandma took on water](https://www.reddit.com/r/wallstreetbets/comments/1eyy4g2/grandma_took_on_water/)
+- [Yolo&#39;d my emergency fund for calls on ZM ER, my biggest win on this account so far](https://www.reddit.com/r/wallstreetbets/comments/1eywffl/yolod_my_emergency_fund_for_calls_on_zm_er_my/)
+- [I might’ve fucked up](https://www.reddit.com/r/wallstreetbets/comments/1eyvygx/i_mightve_fucked_up/)
+- [$750 to $11616 &lpar;1500% gain&rpar; in 5 hours](https://www.reddit.com/r/wallstreetbets/comments/1eyuhk2/750_to_11616_1500_gain_in_5_hours/)
+- [Former Lockheed Martin Chief Financial Officer Joins Rocket Lab Board of Directors](https://www.reddit.com/r/wallstreetbets/comments/1eyucv6/former_lockheed_martin_chief_financial_officer/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
