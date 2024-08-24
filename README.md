@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Grandma took on water](https://www.reddit.com/r/wallstreetbets/comments/1eyy4g2/grandma_took_on_water/)
-- [Yolo&#39;d my emergency fund for calls on ZM ER, my biggest win on this account so far](https://www.reddit.com/r/wallstreetbets/comments/1eywffl/yolod_my_emergency_fund_for_calls_on_zm_er_my/)
-- [I might’ve fucked up](https://www.reddit.com/r/wallstreetbets/comments/1eyvygx/i_mightve_fucked_up/)
-- [$750 to $11616 &lpar;1500% gain&rpar; in 5 hours](https://www.reddit.com/r/wallstreetbets/comments/1eyuhk2/750_to_11616_1500_gain_in_5_hours/)
-- [Former Lockheed Martin Chief Financial Officer Joins Rocket Lab Board of Directors](https://www.reddit.com/r/wallstreetbets/comments/1eyucv6/former_lockheed_martin_chief_financial_officer/)
+- [MSFT is undervalued. Full port into weeklies. Not selling until they expire.](https://www.reddit.com/r/wallstreetbets/comments/1ezptbw/msft_is_undervalued_full_port_into_weeklies_not/)
+- [Just SPY Calls and Puts](https://www.reddit.com/r/wallstreetbets/comments/1ezp818/just_spy_calls_and_puts/)
+- [I&#39;m investing in Wendy&#39;s because my wife cheated on me.](https://www.reddit.com/r/wallstreetbets/comments/1ezouwc/im_investing_in_wendys_because_my_wife_cheated_on/)
+- [Going to a Wendy’s job fair convention. After this week. Wish me luck!!](https://www.reddit.com/r/wallstreetbets/comments/1ezm6vf/going_to_a_wendys_job_fair_convention_after_this/)
+- [Weekend Discussion Thread for the Weekend of August 23, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ezm5u7/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
