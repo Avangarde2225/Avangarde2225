@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [MSFT is undervalued. Full port into weeklies. Not selling until they expire.](https://www.reddit.com/r/wallstreetbets/comments/1ezptbw/msft_is_undervalued_full_port_into_weeklies_not/)
-- [Just SPY Calls and Puts](https://www.reddit.com/r/wallstreetbets/comments/1ezp818/just_spy_calls_and_puts/)
-- [I&#39;m investing in Wendy&#39;s because my wife cheated on me.](https://www.reddit.com/r/wallstreetbets/comments/1ezouwc/im_investing_in_wendys_because_my_wife_cheated_on/)
-- [Going to a Wendy’s job fair convention. After this week. Wish me luck!!](https://www.reddit.com/r/wallstreetbets/comments/1ezm6vf/going_to_a_wendys_job_fair_convention_after_this/)
-- [Weekend Discussion Thread for the Weekend of August 23, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ezm5u7/weekend_discussion_thread_for_the_weekend_of/)
+- [Ford gain💰💰](https://www.reddit.com/r/wallstreetbets/comments/1f0jmhh/ford_gain/)
+- [Nvidia vs Intel](https://www.reddit.com/r/wallstreetbets/comments/1f0hma4/nvidia_vs_intel/)
+- [A photo of Nvidia Blackwell GPU&#39;s being currently installed with Advanced Water Cooling and NVLink - Looks Expensive and Amazing](https://www.reddit.com/r/wallstreetbets/comments/1f0fk4t/a_photo_of_nvidia_blackwell_gpus_being_currently/)
+- [Take profits?](https://www.reddit.com/r/wallstreetbets/comments/1f0eeuh/take_profits/)
+- [Why aren’t NVDA calls free money for earnings?](https://www.reddit.com/r/wallstreetbets/comments/1f0cvtk/why_arent_nvda_calls_free_money_for_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
