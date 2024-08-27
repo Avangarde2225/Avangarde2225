@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bullish AF warstory](https://www.reddit.com/r/wallstreetbets/comments/1f1abtx/bullish_af_warstory/)
-- [The #1 strategy of wsb traders](https://www.reddit.com/r/wallstreetbets/comments/1f16x0w/the_1_strategy_of_wsb_traders/)
-- [MACD ~ Moving Average Divergence Convergence | Does it work?](https://www.reddit.com/r/wallstreetbets/comments/1f16qh3/macd_moving_average_divergence_convergence_does/)
-- [11K in Intel INTC ! I love USA chips.](https://www.reddit.com/r/wallstreetbets/comments/1f16n9v/11k_in_intel_intc_i_love_usa_chips/)
-- [Bought the dip part 2- sold half of my position](https://www.reddit.com/r/wallstreetbets/comments/1f16mf1/bought_the_dip_part_2_sold_half_of_my_position/)
+- [&lpar;Update&rpar;: I&#39;m increasing my position in Wendy&#39;s because my wife cheated on me](https://www.reddit.com/r/wallstreetbets/comments/1f231wy/update_im_increasing_my_position_in_wendys/)
+- [Spy tmrw back to 563.90 tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1f2318n/spy_tmrw_back_to_56390_tomorrow/)
+- [Nvidia’s stock surge mints new employee millionaires, but many can’t yet enjoy their wealth](https://www.reddit.com/r/wallstreetbets/comments/1f22cu0/nvidias_stock_surge_mints_new_employee/)
+- [Landbridge &lpar;Next TPL?&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1f21am8/landbridge_next_tpl/)
+- [Retiring from the casino](https://www.reddit.com/r/wallstreetbets/comments/1f1yfqm/retiring_from_the_casino/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
