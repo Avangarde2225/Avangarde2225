@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&lpar;Update&rpar;: I&#39;m increasing my position in Wendy&#39;s because my wife cheated on me](https://www.reddit.com/r/wallstreetbets/comments/1f231wy/update_im_increasing_my_position_in_wendys/)
-- [Spy tmrw back to 563.90 tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1f2318n/spy_tmrw_back_to_56390_tomorrow/)
-- [Nvidia’s stock surge mints new employee millionaires, but many can’t yet enjoy their wealth](https://www.reddit.com/r/wallstreetbets/comments/1f22cu0/nvidias_stock_surge_mints_new_employee/)
-- [Landbridge &lpar;Next TPL?&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1f21am8/landbridge_next_tpl/)
-- [Retiring from the casino](https://www.reddit.com/r/wallstreetbets/comments/1f1yfqm/retiring_from_the_casino/)
+- [I finally did it. Now I can sleep better!!](https://www.reddit.com/r/wallstreetbets/comments/1f2w7xe/i_finally_did_it_now_i_can_sleep_better/)
+- [$16k SOFI YOLO - Weeklies](https://www.reddit.com/r/wallstreetbets/comments/1f2vv42/16k_sofi_yolo_weeklies/)
+- [Not much but all I have besides my Roth. Gonna be sweating bricks tomorrow💀](https://www.reddit.com/r/wallstreetbets/comments/1f2vnyo/not_much_but_all_i_have_besides_my_roth_gonna_be/)
+- [DD - SIRI priced too low ahead of merger, probably not the arbitrage play everyone is thinking](https://www.reddit.com/r/wallstreetbets/comments/1f2us77/dd_siri_priced_too_low_ahead_of_merger_probably/)
+- [NVDA YOLO PT 2](https://www.reddit.com/r/wallstreetbets/comments/1f2uj51/nvda_yolo_pt_2/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
