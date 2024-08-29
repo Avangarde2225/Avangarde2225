@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I finally did it. Now I can sleep better!!](https://www.reddit.com/r/wallstreetbets/comments/1f2w7xe/i_finally_did_it_now_i_can_sleep_better/)
-- [$16k SOFI YOLO - Weeklies](https://www.reddit.com/r/wallstreetbets/comments/1f2vv42/16k_sofi_yolo_weeklies/)
-- [Not much but all I have besides my Roth. Gonna be sweating bricks tomorrow💀](https://www.reddit.com/r/wallstreetbets/comments/1f2vnyo/not_much_but_all_i_have_besides_my_roth_gonna_be/)
-- [DD - SIRI priced too low ahead of merger, probably not the arbitrage play everyone is thinking](https://www.reddit.com/r/wallstreetbets/comments/1f2us77/dd_siri_priced_too_low_ahead_of_merger_probably/)
-- [NVDA YOLO PT 2](https://www.reddit.com/r/wallstreetbets/comments/1f2uj51/nvda_yolo_pt_2/)
+- [‘I sold already’ face 🤓😝](https://www.reddit.com/r/wallstreetbets/comments/1f3opy5/i_sold_already_face/)
+- [No Leather jacket what does this mean?](https://www.reddit.com/r/wallstreetbets/comments/1f3n0r9/no_leather_jacket_what_does_this_mean/)
+- [NVDA earnings snapshot](https://www.reddit.com/r/wallstreetbets/comments/1f3mex5/nvda_earnings_snapshot/)
+- [Nvidia only doubled revenues. NOT GOOD ENOUGH!!!](https://www.reddit.com/r/wallstreetbets/comments/1f3ma8s/nvidia_only_doubled_revenues_not_good_enough/)
+- [$SMCI puts $25k gain overnight. TY in Hindenburg](https://www.reddit.com/r/wallstreetbets/comments/1f3m7p5/smci_puts_25k_gain_overnight_ty_in_hindenburg/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
