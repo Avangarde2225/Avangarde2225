@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [‘I sold already’ face 🤓😝](https://www.reddit.com/r/wallstreetbets/comments/1f3opy5/i_sold_already_face/)
-- [No Leather jacket what does this mean?](https://www.reddit.com/r/wallstreetbets/comments/1f3n0r9/no_leather_jacket_what_does_this_mean/)
-- [NVDA earnings snapshot](https://www.reddit.com/r/wallstreetbets/comments/1f3mex5/nvda_earnings_snapshot/)
-- [Nvidia only doubled revenues. NOT GOOD ENOUGH!!!](https://www.reddit.com/r/wallstreetbets/comments/1f3ma8s/nvidia_only_doubled_revenues_not_good_enough/)
-- [$SMCI puts $25k gain overnight. TY in Hindenburg](https://www.reddit.com/r/wallstreetbets/comments/1f3m7p5/smci_puts_25k_gain_overnight_ty_in_hindenburg/)
+- [Decided to yolo entire retirement account into woolworths before earnings release](https://www.reddit.com/r/wallstreetbets/comments/1f4h48r/decided_to_yolo_entire_retirement_account_into/)
+- [I am sad](https://www.reddit.com/r/wallstreetbets/comments/1f4f3lf/i_am_sad/)
+- [$100 puts on DG](https://www.reddit.com/r/wallstreetbets/comments/1f4emug/100_puts_on_dg/)
+- [Intel CEO Gelsinger says he respects ‘skepticism’ from investors as chipmaker’s struggles persist](https://www.reddit.com/r/wallstreetbets/comments/1f4dcxr/intel_ceo_gelsinger_says_he_respects_skepticism/)
+- [LUNR got the contract!](https://www.reddit.com/r/wallstreetbets/comments/1f4cj7u/lunr_got_the_contract/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
