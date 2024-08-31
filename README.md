@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Decided to yolo entire retirement account into woolworths before earnings release](https://www.reddit.com/r/wallstreetbets/comments/1f4h48r/decided_to_yolo_entire_retirement_account_into/)
-- [I am sad](https://www.reddit.com/r/wallstreetbets/comments/1f4f3lf/i_am_sad/)
-- [$100 puts on DG](https://www.reddit.com/r/wallstreetbets/comments/1f4emug/100_puts_on_dg/)
-- [Intel CEO Gelsinger says he respects ‘skepticism’ from investors as chipmaker’s struggles persist](https://www.reddit.com/r/wallstreetbets/comments/1f4dcxr/intel_ceo_gelsinger_says_he_respects_skepticism/)
-- [LUNR got the contract!](https://www.reddit.com/r/wallstreetbets/comments/1f4cj7u/lunr_got_the_contract/)
+- [2 weeks of beautiful trades gone in one trade](https://www.reddit.com/r/wallstreetbets/comments/1f59mha/2_weeks_of_beautiful_trades_gone_in_one_trade/)
+- [$100k YOLO into ASTS](https://www.reddit.com/r/wallstreetbets/comments/1f593pu/100k_yolo_into_asts/)
+- [UPDATE: I lost my life savings shorting copper &amp; a naked call was assigned to me + margin called](https://www.reddit.com/r/wallstreetbets/comments/1f57hs5/update_i_lost_my_life_savings_shorting_copper_a/)
+- [I humbly submit my DD on a not so well known ticker, $DCBO](https://www.reddit.com/r/wallstreetbets/comments/1f56flc/i_humbly_submit_my_dd_on_a_not_so_well_known/)
+- [Perfection](https://www.reddit.com/r/wallstreetbets/comments/1f56dmm/perfection/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
