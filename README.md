@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [2 weeks of beautiful trades gone in one trade](https://www.reddit.com/r/wallstreetbets/comments/1f59mha/2_weeks_of_beautiful_trades_gone_in_one_trade/)
-- [$100k YOLO into ASTS](https://www.reddit.com/r/wallstreetbets/comments/1f593pu/100k_yolo_into_asts/)
-- [UPDATE: I lost my life savings shorting copper &amp; a naked call was assigned to me + margin called](https://www.reddit.com/r/wallstreetbets/comments/1f57hs5/update_i_lost_my_life_savings_shorting_copper_a/)
-- [I humbly submit my DD on a not so well known ticker, $DCBO](https://www.reddit.com/r/wallstreetbets/comments/1f56flc/i_humbly_submit_my_dd_on_a_not_so_well_known/)
-- [Perfection](https://www.reddit.com/r/wallstreetbets/comments/1f56dmm/perfection/)
+- [ASTS Liftoff: Friday the 13th](https://www.reddit.com/r/wallstreetbets/comments/1f60uxr/asts_liftoff_friday_the_13th/)
+- [What Happens to Berkshire When Buffet Kicks the Bucket?](https://www.reddit.com/r/wallstreetbets/comments/1f60foz/what_happens_to_berkshire_when_buffet_kicks_the/)
+- [Sorry $ASTS bulls: Starlink is launching direct-to-cell satellites and will offer satellite-to-phone service with $TMUS this year.](https://www.reddit.com/r/wallstreetbets/comments/1f5zlgl/sorry_asts_bulls_starlink_is_launching/)
+- [INTEL SEPT 3 LAUNCH OF LUNAR LAKE!](https://www.reddit.com/r/wallstreetbets/comments/1f5xs13/intel_sept_3_launch_of_lunar_lake/)
+- [IWM 0dtes thurs/fri](https://www.reddit.com/r/wallstreetbets/comments/1f5xm7v/iwm_0dtes_thursfri/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
