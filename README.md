@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ASTS Liftoff: Friday the 13th](https://www.reddit.com/r/wallstreetbets/comments/1f60uxr/asts_liftoff_friday_the_13th/)
-- [What Happens to Berkshire When Buffet Kicks the Bucket?](https://www.reddit.com/r/wallstreetbets/comments/1f60foz/what_happens_to_berkshire_when_buffet_kicks_the/)
-- [Sorry $ASTS bulls: Starlink is launching direct-to-cell satellites and will offer satellite-to-phone service with $TMUS this year.](https://www.reddit.com/r/wallstreetbets/comments/1f5zlgl/sorry_asts_bulls_starlink_is_launching/)
-- [INTEL SEPT 3 LAUNCH OF LUNAR LAKE!](https://www.reddit.com/r/wallstreetbets/comments/1f5xs13/intel_sept_3_launch_of_lunar_lake/)
-- [IWM 0dtes thurs/fri](https://www.reddit.com/r/wallstreetbets/comments/1f5xm7v/iwm_0dtes_thursfri/)
+- [Maybe I got lucky](https://www.reddit.com/r/wallstreetbets/comments/1f6si59/maybe_i_got_lucky/)
+- [Intel&#39;s adjustments might be less drastic than the market thinks: Intel Likely To Sell Altera, Freeze German Factory Construction.](https://www.reddit.com/r/wallstreetbets/comments/1f6rqbx/intels_adjustments_might_be_less_drastic_than_the/)
+- [What makes people think AVGO ISNT going to crash on earnings?](https://www.reddit.com/r/wallstreetbets/comments/1f6qsln/what_makes_people_think_avgo_isnt_going_to_crash/)
+- [Beating the market](https://www.reddit.com/r/wallstreetbets/comments/1f6qhli/beating_the_market/)
+- [At What Point Would You Buy Intel?](https://www.reddit.com/r/wallstreetbets/comments/1f6o1cl/at_what_point_would_you_buy_intel/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
