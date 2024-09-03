@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Maybe I got lucky](https://www.reddit.com/r/wallstreetbets/comments/1f6si59/maybe_i_got_lucky/)
-- [Intel&#39;s adjustments might be less drastic than the market thinks: Intel Likely To Sell Altera, Freeze German Factory Construction.](https://www.reddit.com/r/wallstreetbets/comments/1f6rqbx/intels_adjustments_might_be_less_drastic_than_the/)
-- [What makes people think AVGO ISNT going to crash on earnings?](https://www.reddit.com/r/wallstreetbets/comments/1f6qsln/what_makes_people_think_avgo_isnt_going_to_crash/)
-- [Beating the market](https://www.reddit.com/r/wallstreetbets/comments/1f6qhli/beating_the_market/)
-- [At What Point Would You Buy Intel?](https://www.reddit.com/r/wallstreetbets/comments/1f6o1cl/at_what_point_would_you_buy_intel/)
+- [SMCI&#39;s form 12b-25 &lpar;notification of late filing&rpar; - a different outlook on the 10-K filing](https://www.reddit.com/r/wallstreetbets/comments/1f7liau/smcis_form_12b25_notification_of_late_filing_a/)
+- [Suggestions?](https://www.reddit.com/r/wallstreetbets/comments/1f7k43b/suggestions/)
+- [wallstreet rumble](https://www.reddit.com/r/wallstreetbets/comments/1f7je4n/wallstreet_rumble/)
+- [RIP Intel Guy: Intel Looks For Options To Escape The Dire Financial Situation, Foundry Business Likely To Take A Massive Hit](https://www.reddit.com/r/wallstreetbets/comments/1f7ikwy/rip_intel_guy_intel_looks_for_options_to_escape/)
+- [My Well Regarded Position - $NVDA](https://www.reddit.com/r/wallstreetbets/comments/1f7ig5a/my_well_regarded_position_nvda/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
