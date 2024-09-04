@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SMCI&#39;s form 12b-25 &lpar;notification of late filing&rpar; - a different outlook on the 10-K filing](https://www.reddit.com/r/wallstreetbets/comments/1f7liau/smcis_form_12b25_notification_of_late_filing_a/)
-- [Suggestions?](https://www.reddit.com/r/wallstreetbets/comments/1f7k43b/suggestions/)
-- [wallstreet rumble](https://www.reddit.com/r/wallstreetbets/comments/1f7je4n/wallstreet_rumble/)
-- [RIP Intel Guy: Intel Looks For Options To Escape The Dire Financial Situation, Foundry Business Likely To Take A Massive Hit](https://www.reddit.com/r/wallstreetbets/comments/1f7ikwy/rip_intel_guy_intel_looks_for_options_to_escape/)
-- [My Well Regarded Position - $NVDA](https://www.reddit.com/r/wallstreetbets/comments/1f7ig5a/my_well_regarded_position_nvda/)
+- [NVDA YOLO](https://www.reddit.com/r/wallstreetbets/comments/1f8e5wy/nvda_yolo/)
+- [Mystery Option Buyer &lpar;spent almost $9 million buying VIX&rpar; Nets Fast $12 Million Gain on Stock Slide](https://www.reddit.com/r/wallstreetbets/comments/1f8dy84/mystery_option_buyer_spent_almost_9_million/)
+- [NVDA Futures, 2$ Gap Down a Asian open.](https://www.reddit.com/r/wallstreetbets/comments/1f8czo7/nvda_futures_2_gap_down_a_asian_open/)
+- [$450 to $18000 &lpar;4000% gain&rpar; and $600 to $5500 &lpar;900% gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1f8bhad/450_to_18000_4000_gain_and_600_to_5500_900_gain/)
+- [$CLOV gets their first SaaS contract!](https://www.reddit.com/r/wallstreetbets/comments/1f8b3vo/clov_gets_their_first_saas_contract/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
