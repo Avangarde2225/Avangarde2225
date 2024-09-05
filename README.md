@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVDA YOLO](https://www.reddit.com/r/wallstreetbets/comments/1f8e5wy/nvda_yolo/)
-- [Mystery Option Buyer &lpar;spent almost $9 million buying VIX&rpar; Nets Fast $12 Million Gain on Stock Slide](https://www.reddit.com/r/wallstreetbets/comments/1f8dy84/mystery_option_buyer_spent_almost_9_million/)
-- [NVDA Futures, 2$ Gap Down a Asian open.](https://www.reddit.com/r/wallstreetbets/comments/1f8czo7/nvda_futures_2_gap_down_a_asian_open/)
-- [$450 to $18000 &lpar;4000% gain&rpar; and $600 to $5500 &lpar;900% gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1f8bhad/450_to_18000_4000_gain_and_600_to_5500_900_gain/)
-- [$CLOV gets their first SaaS contract!](https://www.reddit.com/r/wallstreetbets/comments/1f8b3vo/clov_gets_their_first_saas_contract/)
+- [Hell of a loss](https://www.reddit.com/r/wallstreetbets/comments/1f97b5r/hell_of_a_loss/)
+- [Intel announces cancellation of 20A process node for Arrow Lake, goes with &#39;external nodes,&#39; likely TSMC](https://www.reddit.com/r/wallstreetbets/comments/1f959og/intel_announces_cancellation_of_20a_process_node/)
+- [Nvidia Says It Has ‘Not Been Subpoenaed’ by the DOJ in Probe](https://www.reddit.com/r/wallstreetbets/comments/1f94kb8/nvidia_says_it_has_not_been_subpoenaed_by_the_doj/)
+- [$28.5k in 13min short $DLTR](https://www.reddit.com/r/wallstreetbets/comments/1f94d9w/285k_in_13min_short_dltr/)
+- [Nvidia did not receive a US Justice Department subpoena, spokesperson says](https://www.reddit.com/r/wallstreetbets/comments/1f93uuz/nvidia_did_not_receive_a_us_justice_department/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
