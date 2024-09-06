@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hell of a loss](https://www.reddit.com/r/wallstreetbets/comments/1f97b5r/hell_of_a_loss/)
-- [Intel announces cancellation of 20A process node for Arrow Lake, goes with &#39;external nodes,&#39; likely TSMC](https://www.reddit.com/r/wallstreetbets/comments/1f959og/intel_announces_cancellation_of_20a_process_node/)
-- [Nvidia Says It Has ‘Not Been Subpoenaed’ by the DOJ in Probe](https://www.reddit.com/r/wallstreetbets/comments/1f94kb8/nvidia_says_it_has_not_been_subpoenaed_by_the_doj/)
-- [$28.5k in 13min short $DLTR](https://www.reddit.com/r/wallstreetbets/comments/1f94d9w/285k_in_13min_short_dltr/)
-- [Nvidia did not receive a US Justice Department subpoena, spokesperson says](https://www.reddit.com/r/wallstreetbets/comments/1f93uuz/nvidia_did_not_receive_a_us_justice_department/)
+- [SNL material](https://www.reddit.com/r/wallstreetbets/comments/1fa14ug/snl_material/)
+- [Berkshire Hathaway Inc. &lpar;BRKb&rpar; - Largest Intraday Drop in Years as Technicals Hit Extreme Overbought on Nearly Every Time Frame.](https://www.reddit.com/r/wallstreetbets/comments/1fa116e/berkshire_hathaway_inc_brkb_largest_intraday_drop/)
+- [When reality meets 🚀](https://www.reddit.com/r/wallstreetbets/comments/1f9ysp9/when_reality_meets/)
+- [Most Anticipated Earnings Releases for the week beginning September 9th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1f9xzml/most_anticipated_earnings_releases_for_the_week/)
+- [China’s $100 Billion Short Against Dollar Enriches Hedge Funds](https://www.reddit.com/r/wallstreetbets/comments/1f9xvfl/chinas_100_billion_short_against_dollar_enriches/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
