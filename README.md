@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SNL material](https://www.reddit.com/r/wallstreetbets/comments/1fa14ug/snl_material/)
-- [Berkshire Hathaway Inc. &lpar;BRKb&rpar; - Largest Intraday Drop in Years as Technicals Hit Extreme Overbought on Nearly Every Time Frame.](https://www.reddit.com/r/wallstreetbets/comments/1fa116e/berkshire_hathaway_inc_brkb_largest_intraday_drop/)
-- [When reality meets 🚀](https://www.reddit.com/r/wallstreetbets/comments/1f9ysp9/when_reality_meets/)
-- [Most Anticipated Earnings Releases for the week beginning September 9th, 2024](https://www.reddit.com/r/wallstreetbets/comments/1f9xzml/most_anticipated_earnings_releases_for_the_week/)
-- [China’s $100 Billion Short Against Dollar Enriches Hedge Funds](https://www.reddit.com/r/wallstreetbets/comments/1f9xvfl/chinas_100_billion_short_against_dollar_enriches/)
+- [Palantir, Dell Among New S&amp;P 500 Members as Index Rebalances](https://www.reddit.com/r/wallstreetbets/comments/1fatgcz/palantir_dell_among_new_sp_500_members_as_index/)
+- [Wendy’s employee quits day trading before he loses it all](https://www.reddit.com/r/wallstreetbets/comments/1fassye/wendys_employee_quits_day_trading_before_he_loses/)
+- [Dell, Palantir and Erie added to S&amp;P 500](https://www.reddit.com/r/wallstreetbets/comments/1farfud/dell_palantir_and_erie_added_to_sp_500/)
+- [Hitting retirement in 10 years, to the moon or homeless, let’s find out 🚀💎🙌](https://www.reddit.com/r/wallstreetbets/comments/1far7yl/hitting_retirement_in_10_years_to_the_moon_or/)
+- [Puts paid nice. Rolled it into NVDA calls. $106 expires 9/13. Keep it rolling.](https://www.reddit.com/r/wallstreetbets/comments/1faowlk/puts_paid_nice_rolled_it_into_nvda_calls_106/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
