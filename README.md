@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Palantir, Dell Among New S&amp;P 500 Members as Index Rebalances](https://www.reddit.com/r/wallstreetbets/comments/1fatgcz/palantir_dell_among_new_sp_500_members_as_index/)
-- [Wendy’s employee quits day trading before he loses it all](https://www.reddit.com/r/wallstreetbets/comments/1fassye/wendys_employee_quits_day_trading_before_he_loses/)
-- [Dell, Palantir and Erie added to S&amp;P 500](https://www.reddit.com/r/wallstreetbets/comments/1farfud/dell_palantir_and_erie_added_to_sp_500/)
-- [Hitting retirement in 10 years, to the moon or homeless, let’s find out 🚀💎🙌](https://www.reddit.com/r/wallstreetbets/comments/1far7yl/hitting_retirement_in_10_years_to_the_moon_or/)
-- [Puts paid nice. Rolled it into NVDA calls. $106 expires 9/13. Keep it rolling.](https://www.reddit.com/r/wallstreetbets/comments/1faowlk/puts_paid_nice_rolled_it_into_nvda_calls_106/)
+- [Micro Trading Options on QQQ!](https://www.reddit.com/r/wallstreetbets/comments/1fbjdhn/micro_trading_options_on_qqq/)
+- [That’s a lot of shifts at Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/1fbj6z3/thats_a_lot_of_shifts_at_wendys/)
+- [Betting 350k on China Dip #scaredmoneydontmakemoney](https://www.reddit.com/r/wallstreetbets/comments/1fbibr7/betting_350k_on_china_dip_scaredmoneydontmakemoney/)
+- [Treasury bond futures continuing it&#39;d downwards trend](https://www.reddit.com/r/wallstreetbets/comments/1fbi031/treasury_bond_futures_continuing_itd_downwards/)
+- [Lockheed LMT](https://www.reddit.com/r/wallstreetbets/comments/1fbhsmj/lockheed_lmt/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
