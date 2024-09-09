@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Micro Trading Options on QQQ!](https://www.reddit.com/r/wallstreetbets/comments/1fbjdhn/micro_trading_options_on_qqq/)
-- [That’s a lot of shifts at Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/1fbj6z3/thats_a_lot_of_shifts_at_wendys/)
-- [Betting 350k on China Dip #scaredmoneydontmakemoney](https://www.reddit.com/r/wallstreetbets/comments/1fbibr7/betting_350k_on_china_dip_scaredmoneydontmakemoney/)
-- [Treasury bond futures continuing it&#39;d downwards trend](https://www.reddit.com/r/wallstreetbets/comments/1fbi031/treasury_bond_futures_continuing_itd_downwards/)
-- [Lockheed LMT](https://www.reddit.com/r/wallstreetbets/comments/1fbhsmj/lockheed_lmt/)
+- [Never Do Naked Calls – Learn From My Mistakes, Fellow Degenerates](https://www.reddit.com/r/wallstreetbets/comments/1fcbyin/never_do_naked_calls_learn_from_my_mistakes/)
+- [+800% in 5 days. Think I found a winning options strategy](https://www.reddit.com/r/wallstreetbets/comments/1fcam7s/800_in_5_days_think_i_found_a_winning_options/)
+- [Cotton futures - 1-2 years](https://www.reddit.com/r/wallstreetbets/comments/1fcacql/cotton_futures_12_years/)
+- [ORCL weekly puts = next millionaire opportunity?](https://www.reddit.com/r/wallstreetbets/comments/1fcabuv/orcl_weekly_puts_next_millionaire_opportunity/)
+- [Already down LMAO](https://www.reddit.com/r/wallstreetbets/comments/1fc9gsa/already_down_lmao/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
