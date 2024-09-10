@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Never Do Naked Calls – Learn From My Mistakes, Fellow Degenerates](https://www.reddit.com/r/wallstreetbets/comments/1fcbyin/never_do_naked_calls_learn_from_my_mistakes/)
-- [+800% in 5 days. Think I found a winning options strategy](https://www.reddit.com/r/wallstreetbets/comments/1fcam7s/800_in_5_days_think_i_found_a_winning_options/)
-- [Cotton futures - 1-2 years](https://www.reddit.com/r/wallstreetbets/comments/1fcacql/cotton_futures_12_years/)
-- [ORCL weekly puts = next millionaire opportunity?](https://www.reddit.com/r/wallstreetbets/comments/1fcabuv/orcl_weekly_puts_next_millionaire_opportunity/)
-- [Already down LMAO](https://www.reddit.com/r/wallstreetbets/comments/1fc9gsa/already_down_lmao/)
+- [Apple’s $3.3 Trillion Gamble on AI iPhone 16 Backfires as Stock Sinks and Investors Yawn](https://www.reddit.com/r/wallstreetbets/comments/1fd4ifu/apples_33_trillion_gamble_on_ai_iphone_16/)
+- [Goldman Sachs to post $400 million hit to third-quarter results as it unwinds consumer business](https://www.reddit.com/r/wallstreetbets/comments/1fd3x96/goldman_sachs_to_post_400_million_hit_to/)
+- [What Investors Don&#39;t Understand About Nvidia&#39;s Recurring Revenue Model Via DGX Cloud - Oracle&#39;s Bombshell ER - Acres of Nvidia GPUs and AWS](https://www.reddit.com/r/wallstreetbets/comments/1fd2g3z/what_investors_dont_understand_about_nvidias/)
+- [Building consistency!](https://www.reddit.com/r/wallstreetbets/comments/1fd2fdn/building_consistency/)
+- [The best play of the year after NVDA : OXY petroleum](https://www.reddit.com/r/wallstreetbets/comments/1fd0z1m/the_best_play_of_the_year_after_nvda_oxy_petroleum/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
