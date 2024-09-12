@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [META Gains : 625K](https://www.reddit.com/r/wallstreetbets/comments/1fdwxd1/meta_gains_625k/)
-- [NVIDIA’s Blackwell Overcomes Delays, as GB200 Reportedly Sets for December Mass Production](https://www.reddit.com/r/wallstreetbets/comments/1fdw857/nvidias_blackwell_overcomes_delays_as_gb200/)
-- [Spy puts made my account and NVDA calls will destroy it](https://www.reddit.com/r/wallstreetbets/comments/1fdulbb/spy_puts_made_my_account_and_nvda_calls_will/)
-- [I bought the dip .!!!](https://www.reddit.com/r/wallstreetbets/comments/1fdrmnn/i_bought_the_dip/)
-- [What Are Your Moves Tomorrow, September 11, 2024](https://www.reddit.com/r/wallstreetbets/comments/1fdr95q/what_are_your_moves_tomorrow_september_11_2024/)
+- [Bought the dip. $10k to $60k with SPY calls today.](https://www.reddit.com/r/wallstreetbets/comments/1feo4lb/bought_the_dip_10k_to_60k_with_spy_calls_today/)
+- [NVDA Weeklies Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/1feo20t/nvda_weeklies_gain_porn/)
+- [9/11 QQQ $457 Calls 🇺🇸 🦅](https://www.reddit.com/r/wallstreetbets/comments/1femox3/911_qqq_457_calls/)
+- [$600 to $9000 in 2h &lpar;1500%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1fem92n/600_to_9000_in_2h_1500/)
+- [Welp I fucked up](https://www.reddit.com/r/wallstreetbets/comments/1fem0z2/welp_i_fucked_up/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
