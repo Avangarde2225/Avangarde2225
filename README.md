@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dad just bought $45k worth of NVDA and said he’s holding it for 5 years](https://www.reddit.com/r/wallstreetbets/comments/1ffgnqa/dad_just_bought_45k_worth_of_nvda_and_said_hes/)
-- [Blew everything I have on 550 and 552.5 spy puts that expire tomorrow. In a horrible mental space right now](https://www.reddit.com/r/wallstreetbets/comments/1ffghbb/blew_everything_i_have_on_550_and_5525_spy_puts/)
-- [QQQ 0 DTE Calls Pt. 2 - 4k to 100k in 1 week](https://www.reddit.com/r/wallstreetbets/comments/1ffgetg/qqq_0_dte_calls_pt_2_4k_to_100k_in_1_week/)
-- [Past performance is not an indicator of future results](https://www.reddit.com/r/wallstreetbets/comments/1ffg6oz/past_performance_is_not_an_indicator_of_future/)
-- [Apple Slammed with a €13 Billion Tax Bill as Tim Cook&#39;s Worst Nightmare Comes True](https://www.reddit.com/r/wallstreetbets/comments/1fffper/apple_slammed_with_a_13_billion_tax_bill_as_tim/)
+- [Intel Shores Up $3.5 Billion Deal to Make Chips for Military](https://www.reddit.com/r/wallstreetbets/comments/1fg7hq9/intel_shores_up_35_billion_deal_to_make_chips_for/)
+- [Adobe drops over 9% on weaker than expected guidance](https://www.reddit.com/r/wallstreetbets/comments/1fg5lxk/adobe_drops_over_9_on_weaker_than_expected/)
+- [The U.S. government will spend a record $1.2 trillion on interest payments in 2024, the highest amount ever recorded.](https://www.reddit.com/r/wallstreetbets/comments/1fg59fx/the_us_government_will_spend_a_record_12_trillion/)
+- [Asts](https://www.reddit.com/r/wallstreetbets/comments/1fg4i1d/asts/)
+- [Even small winnings are worth it](https://www.reddit.com/r/wallstreetbets/comments/1fg41q4/even_small_winnings_are_worth_it/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
