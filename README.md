@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Intel Shores Up $3.5 Billion Deal to Make Chips for Military](https://www.reddit.com/r/wallstreetbets/comments/1fg7hq9/intel_shores_up_35_billion_deal_to_make_chips_for/)
-- [Adobe drops over 9% on weaker than expected guidance](https://www.reddit.com/r/wallstreetbets/comments/1fg5lxk/adobe_drops_over_9_on_weaker_than_expected/)
-- [The U.S. government will spend a record $1.2 trillion on interest payments in 2024, the highest amount ever recorded.](https://www.reddit.com/r/wallstreetbets/comments/1fg59fx/the_us_government_will_spend_a_record_12_trillion/)
-- [Asts](https://www.reddit.com/r/wallstreetbets/comments/1fg4i1d/asts/)
-- [Even small winnings are worth it](https://www.reddit.com/r/wallstreetbets/comments/1fg41q4/even_small_winnings_are_worth_it/)
+- [30k into Cava shorts](https://www.reddit.com/r/wallstreetbets/comments/1fgymfl/30k_into_cava_shorts/)
+- [Google&#39;s Breakup Is Starting to Get Priced In; Valuation has fallen as analysts are less optimistic.](https://www.reddit.com/r/wallstreetbets/comments/1fgybb3/googles_breakup_is_starting_to_get_priced_in/)
+- [The Beginning](https://www.reddit.com/r/wallstreetbets/comments/1fgxo0z/the_beginning/)
+- [Loss Porn 🥲](https://www.reddit.com/r/wallstreetbets/comments/1fgxhn4/loss_porn/)
+- [Me explaining why I&#39;m down 99.99%](https://www.reddit.com/r/wallstreetbets/comments/1fgwxlc/me_explaining_why_im_down_9999/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
