@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [30k into Cava shorts](https://www.reddit.com/r/wallstreetbets/comments/1fgymfl/30k_into_cava_shorts/)
-- [Google&#39;s Breakup Is Starting to Get Priced In; Valuation has fallen as analysts are less optimistic.](https://www.reddit.com/r/wallstreetbets/comments/1fgybb3/googles_breakup_is_starting_to_get_priced_in/)
-- [The Beginning](https://www.reddit.com/r/wallstreetbets/comments/1fgxo0z/the_beginning/)
-- [Loss Porn 🥲](https://www.reddit.com/r/wallstreetbets/comments/1fgxhn4/loss_porn/)
-- [Me explaining why I&#39;m down 99.99%](https://www.reddit.com/r/wallstreetbets/comments/1fgwxlc/me_explaining_why_im_down_9999/)
+- [For the love of god, google &quot;Kelly Criterion&quot;](https://www.reddit.com/r/wallstreetbets/comments/1fhpoih/for_the_love_of_god_google_kelly_criterion/)
+- [Mastercard spending $2.65 billion to acquire cyber security company.](https://www.reddit.com/r/wallstreetbets/comments/1fhofyx/mastercard_spending_265_billion_to_acquire_cyber/)
+- [TQQQ swing trade](https://www.reddit.com/r/wallstreetbets/comments/1fhlljz/tqqq_swing_trade/)
+- [What Are Your Moves Tomorrow, September 16, 2024](https://www.reddit.com/r/wallstreetbets/comments/1fhllhp/what_are_your_moves_tomorrow_september_16_2024/)
+- [VIX chart - 1H - During the first fed cut in 2007 - Thoughts?](https://www.reddit.com/r/wallstreetbets/comments/1fhl4hl/vix_chart_1h_during_the_first_fed_cut_in_2007/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
