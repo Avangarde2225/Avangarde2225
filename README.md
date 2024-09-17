@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [For the love of god, google &quot;Kelly Criterion&quot;](https://www.reddit.com/r/wallstreetbets/comments/1fhpoih/for_the_love_of_god_google_kelly_criterion/)
-- [Mastercard spending $2.65 billion to acquire cyber security company.](https://www.reddit.com/r/wallstreetbets/comments/1fhofyx/mastercard_spending_265_billion_to_acquire_cyber/)
-- [TQQQ swing trade](https://www.reddit.com/r/wallstreetbets/comments/1fhlljz/tqqq_swing_trade/)
-- [What Are Your Moves Tomorrow, September 16, 2024](https://www.reddit.com/r/wallstreetbets/comments/1fhllhp/what_are_your_moves_tomorrow_september_16_2024/)
-- [VIX chart - 1H - During the first fed cut in 2007 - Thoughts?](https://www.reddit.com/r/wallstreetbets/comments/1fhl4hl/vix_chart_1h_during_the_first_fed_cut_in_2007/)
+- [Intel shares jump on chip deal with Amazon](https://www.reddit.com/r/wallstreetbets/comments/1fijgvo/intel_shares_jump_on_chip_deal_with_amazon/)
+- [Apple’s $100 billion drop sends stock to 5-week low as iPhone demand questions linger](https://www.reddit.com/r/wallstreetbets/comments/1fij6ke/apples_100_billion_drop_sends_stock_to_5week_low/)
+- [I’m so back](https://www.reddit.com/r/wallstreetbets/comments/1fiifkx/im_so_back/)
+- [A costly experiment in playing weeklies](https://www.reddit.com/r/wallstreetbets/comments/1fii253/a_costly_experiment_in_playing_weeklies/)
+- [My family doesn’t know but my fellow regards have to🫡😅](https://www.reddit.com/r/wallstreetbets/comments/1fihe4x/my_family_doesnt_know_but_my_fellow_regards_have/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
