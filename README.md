@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Intel shares jump on chip deal with Amazon](https://www.reddit.com/r/wallstreetbets/comments/1fijgvo/intel_shares_jump_on_chip_deal_with_amazon/)
-- [Apple’s $100 billion drop sends stock to 5-week low as iPhone demand questions linger](https://www.reddit.com/r/wallstreetbets/comments/1fij6ke/apples_100_billion_drop_sends_stock_to_5week_low/)
-- [I’m so back](https://www.reddit.com/r/wallstreetbets/comments/1fiifkx/im_so_back/)
-- [A costly experiment in playing weeklies](https://www.reddit.com/r/wallstreetbets/comments/1fii253/a_costly_experiment_in_playing_weeklies/)
-- [My family doesn’t know but my fellow regards have to🫡😅](https://www.reddit.com/r/wallstreetbets/comments/1fihe4x/my_family_doesnt_know_but_my_fellow_regards_have/)
+- [LETS GO LUNR🚀WE GOT THE CONTRACT 🤑🤑🤑🤑](https://www.reddit.com/r/wallstreetbets/comments/1fjfjok/lets_go_lunrwe_got_the_contract/)
+- [&#39;Twas the Night Before Rate Cuts](https://www.reddit.com/r/wallstreetbets/comments/1fjet46/twas_the_night_before_rate_cuts/)
+- [What will this look like at market open tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1fjec8a/what_will_this_look_like_at_market_open_tomorrow/)
+- [LUNR to the moon?](https://www.reddit.com/r/wallstreetbets/comments/1fjdpnj/lunr_to_the_moon/)
+- [Our Father Jerome, Who art in the Fed, hallowed be Thy name](https://www.reddit.com/r/wallstreetbets/comments/1fjdee9/our_father_jerome_who_art_in_the_fed_hallowed_be/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
