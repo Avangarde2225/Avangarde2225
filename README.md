@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Checking in on these people](https://www.reddit.com/r/wallstreetbets/comments/1fk7qz9/checking_in_on_these_people/)
-- [Comeback season](https://www.reddit.com/r/wallstreetbets/comments/1fk7ptp/comeback_season/)
-- [Hmmmmmmmmmmm...FC = Federal Reserve Rate Cut](https://www.reddit.com/r/wallstreetbets/comments/1fk6kqs/hmmmmmmmmmmmfc_federal_reserve_rate_cut/)
-- [Jerome “Superman” Powell](https://www.reddit.com/r/wallstreetbets/comments/1fk2ptn/jerome_superman_powell/)
-- [Summary after FED Meeting today](https://www.reddit.com/r/wallstreetbets/comments/1fk2oae/summary_after_fed_meeting_today/)
+- [What does this mean?](https://www.reddit.com/r/wallstreetbets/comments/1fkyihz/what_does_this_mean/)
+- [Mercedes Benz cuts FY guide by 25%.. shoe dropping on China weakness..](https://www.reddit.com/r/wallstreetbets/comments/1fkxxad/mercedes_benz_cuts_fy_guide_by_25_shoe_dropping/)
+- [$V 💳](https://www.reddit.com/r/wallstreetbets/comments/1fkxfv6/v/)
+- [Nike Needs to Moon or I&#39;m Filing For Bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/1fkxfl9/nike_needs_to_moon_or_im_filing_for_bankruptcy/)
+- [How bad is this going to be?](https://www.reddit.com/r/wallstreetbets/comments/1fkx4e1/how_bad_is_this_going_to_be/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
