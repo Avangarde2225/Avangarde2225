@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What does this mean?](https://www.reddit.com/r/wallstreetbets/comments/1fkyihz/what_does_this_mean/)
-- [Mercedes Benz cuts FY guide by 25%.. shoe dropping on China weakness..](https://www.reddit.com/r/wallstreetbets/comments/1fkxxad/mercedes_benz_cuts_fy_guide_by_25_shoe_dropping/)
-- [$V 💳](https://www.reddit.com/r/wallstreetbets/comments/1fkxfv6/v/)
-- [Nike Needs to Moon or I&#39;m Filing For Bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/1fkxfl9/nike_needs_to_moon_or_im_filing_for_bankruptcy/)
-- [How bad is this going to be?](https://www.reddit.com/r/wallstreetbets/comments/1fkx4e1/how_bad_is_this_going_to_be/)
+- [Rough day](https://www.reddit.com/r/wallstreetbets/comments/1flqant/rough_day/)
+- [SEC Approves Options Trading on BlackRock’s Spot Bitcoin ETF](https://www.reddit.com/r/wallstreetbets/comments/1flovzv/sec_approves_options_trading_on_blackrocks_spot/)
+- [Intel Public Service Announcement](https://www.reddit.com/r/wallstreetbets/comments/1flonel/intel_public_service_announcement/)
+- [Weekend Discussion Thread for the Weekend of September 20, 2024](https://www.reddit.com/r/wallstreetbets/comments/1fll0u9/weekend_discussion_thread_for_the_weekend_of/)
+- [I had 25x $20 INTC calls that Fidelity liquidated for $.46 just before the spike.](https://www.reddit.com/r/wallstreetbets/comments/1flktp2/i_had_25x_20_intc_calls_that_fidelity_liquidated/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
