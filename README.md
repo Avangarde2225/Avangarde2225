@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Rough day](https://www.reddit.com/r/wallstreetbets/comments/1flqant/rough_day/)
-- [SEC Approves Options Trading on BlackRock’s Spot Bitcoin ETF](https://www.reddit.com/r/wallstreetbets/comments/1flovzv/sec_approves_options_trading_on_blackrocks_spot/)
-- [Intel Public Service Announcement](https://www.reddit.com/r/wallstreetbets/comments/1flonel/intel_public_service_announcement/)
-- [Weekend Discussion Thread for the Weekend of September 20, 2024](https://www.reddit.com/r/wallstreetbets/comments/1fll0u9/weekend_discussion_thread_for_the_weekend_of/)
-- [I had 25x $20 INTC calls that Fidelity liquidated for $.46 just before the spike.](https://www.reddit.com/r/wallstreetbets/comments/1flktp2/i_had_25x_20_intc_calls_that_fidelity_liquidated/)
+- [Who else bought $50K worth of INTC Friday morning in their Roth ?](https://www.reddit.com/r/wallstreetbets/comments/1fmfywa/who_else_bought_50k_worth_of_intc_friday_morning/)
+- [CRWD](https://www.reddit.com/r/wallstreetbets/comments/1fmc3i5/crwd/)
+- [Qualcomm has already spoken with US regulators, Intel open to buyout, and Broadcom considering bidding as well](https://www.reddit.com/r/wallstreetbets/comments/1fmb4dc/qualcomm_has_already_spoken_with_us_regulators/)
+- [Tom Lee eoy target is still 5200.](https://www.reddit.com/r/wallstreetbets/comments/1fm90la/tom_lee_eoy_target_is_still_5200/)
+- [Why I believe bond ETF $TLT is a great Invesment.](https://www.reddit.com/r/wallstreetbets/comments/1fm82gi/why_i_believe_bond_etf_tlt_is_a_great_invesment/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
