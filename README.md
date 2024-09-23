@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Who else bought $50K worth of INTC Friday morning in their Roth ?](https://www.reddit.com/r/wallstreetbets/comments/1fmfywa/who_else_bought_50k_worth_of_intc_friday_morning/)
-- [CRWD](https://www.reddit.com/r/wallstreetbets/comments/1fmc3i5/crwd/)
-- [Qualcomm has already spoken with US regulators, Intel open to buyout, and Broadcom considering bidding as well](https://www.reddit.com/r/wallstreetbets/comments/1fmb4dc/qualcomm_has_already_spoken_with_us_regulators/)
-- [Tom Lee eoy target is still 5200.](https://www.reddit.com/r/wallstreetbets/comments/1fm90la/tom_lee_eoy_target_is_still_5200/)
-- [Why I believe bond ETF $TLT is a great Invesment.](https://www.reddit.com/r/wallstreetbets/comments/1fm82gi/why_i_believe_bond_etf_tlt_is_a_great_invesment/)
+- [Qualcomm reportedly wants to buy chip giant Intel](https://www.reddit.com/r/wallstreetbets/comments/1fn6h7j/qualcomm_reportedly_wants_to_buy_chip_giant_intel/)
+- [Spending deal averts a possible federal shutdown and funds the government into December](https://www.reddit.com/r/wallstreetbets/comments/1fn47kg/spending_deal_averts_a_possible_federal_shutdown/)
+- [Apollo to Offer Multibillion-Dollar Investment in Intel](https://www.reddit.com/r/wallstreetbets/comments/1fn3pv9/apollo_to_offer_multibilliondollar_investment_in/)
+- [What’s your P/L this year so far?](https://www.reddit.com/r/wallstreetbets/comments/1fn3lmh/whats_your_pl_this_year_so_far/)
+- [SEC Approves Options Trading on BlackRock’s Spot Bitcoin ETF IBIT](https://www.reddit.com/r/wallstreetbets/comments/1fn30mr/sec_approves_options_trading_on_blackrocks_spot/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
