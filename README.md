@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Qualcomm reportedly wants to buy chip giant Intel](https://www.reddit.com/r/wallstreetbets/comments/1fn6h7j/qualcomm_reportedly_wants_to_buy_chip_giant_intel/)
-- [Spending deal averts a possible federal shutdown and funds the government into December](https://www.reddit.com/r/wallstreetbets/comments/1fn47kg/spending_deal_averts_a_possible_federal_shutdown/)
-- [Apollo to Offer Multibillion-Dollar Investment in Intel](https://www.reddit.com/r/wallstreetbets/comments/1fn3pv9/apollo_to_offer_multibilliondollar_investment_in/)
-- [What’s your P/L this year so far?](https://www.reddit.com/r/wallstreetbets/comments/1fn3lmh/whats_your_pl_this_year_so_far/)
-- [SEC Approves Options Trading on BlackRock’s Spot Bitcoin ETF IBIT](https://www.reddit.com/r/wallstreetbets/comments/1fn30mr/sec_approves_options_trading_on_blackrocks_spot/)
+- [I have GAP shares $60k](https://www.reddit.com/r/wallstreetbets/comments/1fnz2n3/i_have_gap_shares_60k/)
+- [When you have only one red day in a month. But that&#39;s an elevator.](https://www.reddit.com/r/wallstreetbets/comments/1fnysqn/when_you_have_only_one_red_day_in_a_month_but/)
+- [$ELF loss](https://www.reddit.com/r/wallstreetbets/comments/1fnwjjz/elf_loss/)
+- [Most money I&#39;ve ever made :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1fnwh8x/most_money_ive_ever_made/)
+- [4k loss, I got cooked](https://www.reddit.com/r/wallstreetbets/comments/1fnwe03/4k_loss_i_got_cooked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
