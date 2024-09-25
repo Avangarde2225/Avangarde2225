@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I have GAP shares $60k](https://www.reddit.com/r/wallstreetbets/comments/1fnz2n3/i_have_gap_shares_60k/)
-- [When you have only one red day in a month. But that&#39;s an elevator.](https://www.reddit.com/r/wallstreetbets/comments/1fnysqn/when_you_have_only_one_red_day_in_a_month_but/)
-- [$ELF loss](https://www.reddit.com/r/wallstreetbets/comments/1fnwjjz/elf_loss/)
-- [Most money I&#39;ve ever made :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1fnwh8x/most_money_ive_ever_made/)
-- [4k loss, I got cooked](https://www.reddit.com/r/wallstreetbets/comments/1fnwe03/4k_loss_i_got_cooked/)
+- [Roughly 2 years of following you Degenerates on Options trades](https://www.reddit.com/r/wallstreetbets/comments/1for8ty/roughly_2_years_of_following_you_degenerates_on/)
+- [Stealing from the poor, giving to the rich](https://www.reddit.com/r/wallstreetbets/comments/1fopblp/stealing_from_the_poor_giving_to_the_rich/)
+- [FBI Raids Carahsoft Office—What’s Going on with VMware, Broadcom, and National Security?](https://www.reddit.com/r/wallstreetbets/comments/1foof1a/fbi_raids_carahsoft_officewhats_going_on_with/)
+- [8 years -&gt; $5 dollars. And if you&#39;re lucky learning options will only take you two years, and half your salary.](https://www.reddit.com/r/wallstreetbets/comments/1foniz9/8_years_5_dollars_and_if_youre_lucky_learning/)
+- [Degeneracy prevailed](https://www.reddit.com/r/wallstreetbets/comments/1fon88f/degeneracy_prevailed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
