@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Roughly 2 years of following you Degenerates on Options trades](https://www.reddit.com/r/wallstreetbets/comments/1for8ty/roughly_2_years_of_following_you_degenerates_on/)
-- [Stealing from the poor, giving to the rich](https://www.reddit.com/r/wallstreetbets/comments/1fopblp/stealing_from_the_poor_giving_to_the_rich/)
-- [FBI Raids Carahsoft Office—What’s Going on with VMware, Broadcom, and National Security?](https://www.reddit.com/r/wallstreetbets/comments/1foof1a/fbi_raids_carahsoft_officewhats_going_on_with/)
-- [8 years -&gt; $5 dollars. And if you&#39;re lucky learning options will only take you two years, and half your salary.](https://www.reddit.com/r/wallstreetbets/comments/1foniz9/8_years_5_dollars_and_if_youre_lucky_learning/)
-- [Degeneracy prevailed](https://www.reddit.com/r/wallstreetbets/comments/1fon88f/degeneracy_prevailed/)
+- [Intel Releases New AI Chips That Beat AMD In Performance and Nvidia in Cost](https://www.reddit.com/r/wallstreetbets/comments/1fpj03m/intel_releases_new_ai_chips_that_beat_amd_in/)
+- [Intel Suddenly has market leading PC chips and server chips...Team Nana Blue&#39;s death has been greatly exaggerated.](https://www.reddit.com/r/wallstreetbets/comments/1fphi1b/intel_suddenly_has_market_leading_pc_chips_and/)
+- [$40K Micron Earnings YOLO](https://www.reddit.com/r/wallstreetbets/comments/1fpgznh/40k_micron_earnings_yolo/)
+- [Nvidia stock edges up as industry report predicts &#39;unprecedented levels&#39; of investment in AI data centers](https://www.reddit.com/r/wallstreetbets/comments/1fpgkq8/nvidia_stock_edges_up_as_industry_report_predicts/)
+- [Cerebras Systems Targets Raising Up to $1 Billion in IPO](https://www.reddit.com/r/wallstreetbets/comments/1fpfpog/cerebras_systems_targets_raising_up_to_1_billion/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
