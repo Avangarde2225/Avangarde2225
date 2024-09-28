@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump Media shareholder UAV dumped nearly 11 million shares](https://www.reddit.com/r/wallstreetbets/comments/1fq8x1d/trump_media_shareholder_uav_dumped_nearly_11/)
-- [Wendy’s takes aim at McDonald’s broken McFlurry machines with $1 Frosty.](https://www.reddit.com/r/wallstreetbets/comments/1fq7b76/wendys_takes_aim_at_mcdonalds_broken_mcflurry/)
-- [$140 to 3.6k](https://www.reddit.com/r/wallstreetbets/comments/1fq75ug/140_to_36k/)
-- [Lol](https://www.reddit.com/r/wallstreetbets/comments/1fq6s9n/lol/)
-- [Nvidia $80Put whale surfaces again 33,000 contracts](https://www.reddit.com/r/wallstreetbets/comments/1fq5xbt/nvidia_80put_whale_surfaces_again_33000_contracts/)
+- [iPhone 16 demand is so weak that employees can already buy it on discount](https://www.reddit.com/r/wallstreetbets/comments/1fr1upe/iphone_16_demand_is_so_weak_that_employees_can/)
+- [Peaked at $8k got locked out and lost everything…](https://www.reddit.com/r/wallstreetbets/comments/1fr1fwm/peaked_at_8k_got_locked_out_and_lost_everything/)
+- [Wow](https://www.reddit.com/r/wallstreetbets/comments/1fqz9at/wow/)
+- [BABA to 200 easily. 18k -&gt; 107k right now.](https://www.reddit.com/r/wallstreetbets/comments/1fqxkrb/baba_to_200_easily_18k_107k_right_now/)
+- [im juiced 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1fqxc4b/im_juiced/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
