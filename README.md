@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [iPhone 16 demand is so weak that employees can already buy it on discount](https://www.reddit.com/r/wallstreetbets/comments/1fr1upe/iphone_16_demand_is_so_weak_that_employees_can/)
-- [Peaked at $8k got locked out and lost everything…](https://www.reddit.com/r/wallstreetbets/comments/1fr1fwm/peaked_at_8k_got_locked_out_and_lost_everything/)
-- [Wow](https://www.reddit.com/r/wallstreetbets/comments/1fqz9at/wow/)
-- [BABA to 200 easily. 18k -&gt; 107k right now.](https://www.reddit.com/r/wallstreetbets/comments/1fqxkrb/baba_to_200_easily_18k_107k_right_now/)
-- [im juiced 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1fqxc4b/im_juiced/)
+- [why the economy is doomed. A samsclub paper towel perspective.](https://www.reddit.com/r/wallstreetbets/comments/1frs7js/why_the_economy_is_doomed_a_samsclub_paper_towel/)
+- [9/30 Nvidia is going to drop &lpar;repost with charting&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1frs73t/930_nvidia_is_going_to_drop_repost_with_charting/)
+- [Finally making some money](https://www.reddit.com/r/wallstreetbets/comments/1frrsgy/finally_making_some_money/)
+- [Small short on nq](https://www.reddit.com/r/wallstreetbets/comments/1frrdsq/small_short_on_nq/)
+- [Boys, we’re cooked….](https://www.reddit.com/r/wallstreetbets/comments/1frrah6/boys_were_cooked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
