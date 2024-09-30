@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [why the economy is doomed. A samsclub paper towel perspective.](https://www.reddit.com/r/wallstreetbets/comments/1frs7js/why_the_economy_is_doomed_a_samsclub_paper_towel/)
-- [9/30 Nvidia is going to drop &lpar;repost with charting&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1frs73t/930_nvidia_is_going_to_drop_repost_with_charting/)
-- [Finally making some money](https://www.reddit.com/r/wallstreetbets/comments/1frrsgy/finally_making_some_money/)
-- [Small short on nq](https://www.reddit.com/r/wallstreetbets/comments/1frrdsq/small_short_on_nq/)
-- [Boys, we’re cooked….](https://www.reddit.com/r/wallstreetbets/comments/1frrah6/boys_were_cooked/)
+- [+ $15,000 September 🚀](https://www.reddit.com/r/wallstreetbets/comments/1fsj2vv/15000_september/)
+- [Largest port strike in history and its not being blown up, should be the most talked about event!!](https://www.reddit.com/r/wallstreetbets/comments/1fshg60/largest_port_strike_in_history_and_its_not_being/)
+- [I think I bet on the wrong horse](https://www.reddit.com/r/wallstreetbets/comments/1fsh8ow/i_think_i_bet_on_the_wrong_horse/)
+- [SpaceX Launches $1.4 Billion Rescue Mission After Boeing Starliner Disaster](https://www.reddit.com/r/wallstreetbets/comments/1fsgymp/spacex_launches_14_billion_rescue_mission_after/)
+- [California Governor vetos contentious major AI safety bill](https://www.reddit.com/r/wallstreetbets/comments/1fsees6/california_governor_vetos_contentious_major_ai/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
