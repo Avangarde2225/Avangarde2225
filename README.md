@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [+ $15,000 September 🚀](https://www.reddit.com/r/wallstreetbets/comments/1fsj2vv/15000_september/)
-- [Largest port strike in history and its not being blown up, should be the most talked about event!!](https://www.reddit.com/r/wallstreetbets/comments/1fshg60/largest_port_strike_in_history_and_its_not_being/)
-- [I think I bet on the wrong horse](https://www.reddit.com/r/wallstreetbets/comments/1fsh8ow/i_think_i_bet_on_the_wrong_horse/)
-- [SpaceX Launches $1.4 Billion Rescue Mission After Boeing Starliner Disaster](https://www.reddit.com/r/wallstreetbets/comments/1fsgymp/spacex_launches_14_billion_rescue_mission_after/)
-- [California Governor vetos contentious major AI safety bill](https://www.reddit.com/r/wallstreetbets/comments/1fsees6/california_governor_vetos_contentious_major_ai/)
+- [A Graph Masterclass of How Tariffs Don&#39;t Work Illustrating China&#39;s Enusing Dominance Over US Solar Manufacturing](https://www.reddit.com/r/wallstreetbets/comments/1ft6qv0/a_graph_masterclass_of_how_tariffs_dont_work/)
+- [What Are Your Moves Tomorrow, October 01, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ft4xq8/what_are_your_moves_tomorrow_october_01_2024/)
+- [$77K META YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ft4p02/77k_meta_yolo/)
+- [&quot;Israeli special forces, tanks, enter Lebanese territory in a ground operation that has been dubbed the Third Lebanon War&quot;](https://www.reddit.com/r/wallstreetbets/comments/1ft4eh5/israeli_special_forces_tanks_enter_lebanese/)
+- [&quot;The recent half percentage point interest rate cut shouldn’t be interpreted as a sign that future moves will be as aggressive&quot;- Powell](https://www.reddit.com/r/wallstreetbets/comments/1ft2nvw/the_recent_half_percentage_point_interest_rate/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
