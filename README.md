@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A Graph Masterclass of How Tariffs Don&#39;t Work Illustrating China&#39;s Enusing Dominance Over US Solar Manufacturing](https://www.reddit.com/r/wallstreetbets/comments/1ft6qv0/a_graph_masterclass_of_how_tariffs_dont_work/)
-- [What Are Your Moves Tomorrow, October 01, 2024](https://www.reddit.com/r/wallstreetbets/comments/1ft4xq8/what_are_your_moves_tomorrow_october_01_2024/)
-- [$77K META YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ft4p02/77k_meta_yolo/)
-- [&quot;Israeli special forces, tanks, enter Lebanese territory in a ground operation that has been dubbed the Third Lebanon War&quot;](https://www.reddit.com/r/wallstreetbets/comments/1ft4eh5/israeli_special_forces_tanks_enter_lebanese/)
-- [&quot;The recent half percentage point interest rate cut shouldn’t be interpreted as a sign that future moves will be as aggressive&quot;- Powell](https://www.reddit.com/r/wallstreetbets/comments/1ft2nvw/the_recent_half_percentage_point_interest_rate/)
+- [How Boeing Lost a $13 Billion Doomsday Plane Contract to an Immigrant Billionaire](https://www.reddit.com/r/wallstreetbets/comments/1fu1si6/how_boeing_lost_a_13_billion_doomsday_plane/)
+- [Today we’re all Chinese](https://www.reddit.com/r/wallstreetbets/comments/1fu10aw/today_were_all_chinese/)
+- [Crude oil rises more than 2% after Iran fires missiles at Israel](https://www.reddit.com/r/wallstreetbets/comments/1fu04qy/crude_oil_rises_more_than_2_after_iran_fires/)
+- [Intuitive Machines has been selected by Nasa for Lunar comms Studies](https://www.reddit.com/r/wallstreetbets/comments/1fty5xe/intuitive_machines_has_been_selected_by_nasa_for/)
+- [NASA Announces Selections for Lunar Comms, Network Studies](https://www.reddit.com/r/wallstreetbets/comments/1fty0vy/nasa_announces_selections_for_lunar_comms_network/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
