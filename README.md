@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How Boeing Lost a $13 Billion Doomsday Plane Contract to an Immigrant Billionaire](https://www.reddit.com/r/wallstreetbets/comments/1fu1si6/how_boeing_lost_a_13_billion_doomsday_plane/)
-- [Today we’re all Chinese](https://www.reddit.com/r/wallstreetbets/comments/1fu10aw/today_were_all_chinese/)
-- [Crude oil rises more than 2% after Iran fires missiles at Israel](https://www.reddit.com/r/wallstreetbets/comments/1fu04qy/crude_oil_rises_more_than_2_after_iran_fires/)
-- [Intuitive Machines has been selected by Nasa for Lunar comms Studies](https://www.reddit.com/r/wallstreetbets/comments/1fty5xe/intuitive_machines_has_been_selected_by_nasa_for/)
-- [NASA Announces Selections for Lunar Comms, Network Studies](https://www.reddit.com/r/wallstreetbets/comments/1fty0vy/nasa_announces_selections_for_lunar_comms_network/)
+- [Yeah I’m a fcnkin idiot. Spx puts I hate my self.](https://www.reddit.com/r/wallstreetbets/comments/1fuup7q/yeah_im_a_fcnkin_idiot_spx_puts_i_hate_my_self/)
+- [I ded it](https://www.reddit.com/r/wallstreetbets/comments/1futnk4/i_ded_it/)
+- [Nvidia just dropped a bombshell: Its new AI model is open, massive, and ready to rival GPT-4](https://www.reddit.com/r/wallstreetbets/comments/1furppm/nvidia_just_dropped_a_bombshell_its_new_ai_model/)
+- [Use all my margin on china](https://www.reddit.com/r/wallstreetbets/comments/1furoeb/use_all_my_margin_on_china/)
+- [Wendy&#39;s to release SpongeBob &quot;Krabby Patty Kollab&quot; Oct. 8](https://www.reddit.com/r/wallstreetbets/comments/1fuphu9/wendys_to_release_spongebob_krabby_patty_kollab/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
