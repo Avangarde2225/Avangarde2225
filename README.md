@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Yeah I’m a fcnkin idiot. Spx puts I hate my self.](https://www.reddit.com/r/wallstreetbets/comments/1fuup7q/yeah_im_a_fcnkin_idiot_spx_puts_i_hate_my_self/)
-- [I ded it](https://www.reddit.com/r/wallstreetbets/comments/1futnk4/i_ded_it/)
-- [Nvidia just dropped a bombshell: Its new AI model is open, massive, and ready to rival GPT-4](https://www.reddit.com/r/wallstreetbets/comments/1furppm/nvidia_just_dropped_a_bombshell_its_new_ai_model/)
-- [Use all my margin on china](https://www.reddit.com/r/wallstreetbets/comments/1furoeb/use_all_my_margin_on_china/)
-- [Wendy&#39;s to release SpongeBob &quot;Krabby Patty Kollab&quot; Oct. 8](https://www.reddit.com/r/wallstreetbets/comments/1fuphu9/wendys_to_release_spongebob_krabby_patty_kollab/)
+- [Who was the regard who wrote on Sunday that the Port Strike would be the end of the economy?](https://www.reddit.com/r/wallstreetbets/comments/1fvm6u9/who_was_the_regard_who_wrote_on_sunday_that_the/)
+- [US port workers and operators reach deal to end strike with a 62% raise](https://www.reddit.com/r/wallstreetbets/comments/1fvkkdm/us_port_workers_and_operators_reach_deal_to_end/)
+- [The Port Strike is over](https://www.reddit.com/r/wallstreetbets/comments/1fvkhyk/the_port_strike_is_over/)
+- [Strike is reportedly over.](https://www.reddit.com/r/wallstreetbets/comments/1fvkbjj/strike_is_reportedly_over/)
+- [Spirit Airlines in talks with bondholders over terms of potential bankruptcy filing, WSJ reports](https://www.reddit.com/r/wallstreetbets/comments/1fvjkw5/spirit_airlines_in_talks_with_bondholders_over/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
