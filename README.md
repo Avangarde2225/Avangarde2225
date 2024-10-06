@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Day Trader Says He Made $306 Million on Tesla, Then Lost It All](https://www.reddit.com/r/wallstreetbets/comments/1fwdc6u/day_trader_says_he_made_306_million_on_tesla_then/)
-- [VST 2,500 gain. 20 yrs old and broke so a lot for me](https://www.reddit.com/r/wallstreetbets/comments/1fwbm0v/vst_2500_gain_20_yrs_old_and_broke_so_a_lot_for_me/)
-- [you can see exactly when I enabled options trading](https://www.reddit.com/r/wallstreetbets/comments/1fwaqo4/you_can_see_exactly_when_i_enabled_options_trading/)
-- [Being called out for dumping Nvidia right before it’s massive run](https://www.reddit.com/r/wallstreetbets/comments/1fwac09/being_called_out_for_dumping_nvidia_right_before/)
-- [Boom 🚀🌕 we have reached the moon landing.](https://www.reddit.com/r/wallstreetbets/comments/1fwa7rx/boom_we_have_reached_the_moon_landing/)
+- [23 years of a 401k, 46 years old, 16% returns this year.](https://www.reddit.com/r/wallstreetbets/comments/1fx3f0h/23_years_of_a_401k_46_years_old_16_returns_this/)
+- [Tried making 1% a day resulted in this](https://www.reddit.com/r/wallstreetbets/comments/1fx2bd0/tried_making_1_a_day_resulted_in_this/)
+- [YOLO I guess](https://www.reddit.com/r/wallstreetbets/comments/1fx2643/yolo_i_guess/)
+- [Nvidia CEO&#39;s bombshell raises the bar for the stock](https://www.reddit.com/r/wallstreetbets/comments/1fx1mf4/nvidia_ceos_bombshell_raises_the_bar_for_the_stock/)
+- [WSJ mentions Ghey Bears by name](https://www.reddit.com/r/wallstreetbets/comments/1fwy08b/wsj_mentions_ghey_bears_by_name/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
