@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [23 years of a 401k, 46 years old, 16% returns this year.](https://www.reddit.com/r/wallstreetbets/comments/1fx3f0h/23_years_of_a_401k_46_years_old_16_returns_this/)
-- [Tried making 1% a day resulted in this](https://www.reddit.com/r/wallstreetbets/comments/1fx2bd0/tried_making_1_a_day_resulted_in_this/)
-- [YOLO I guess](https://www.reddit.com/r/wallstreetbets/comments/1fx2643/yolo_i_guess/)
-- [Nvidia CEO&#39;s bombshell raises the bar for the stock](https://www.reddit.com/r/wallstreetbets/comments/1fx1mf4/nvidia_ceos_bombshell_raises_the_bar_for_the_stock/)
-- [WSJ mentions Ghey Bears by name](https://www.reddit.com/r/wallstreetbets/comments/1fwy08b/wsj_mentions_ghey_bears_by_name/)
+- [Slowly working my way into the green after VGFCQ flop left me in the red.](https://www.reddit.com/r/wallstreetbets/comments/1fxv01o/slowly_working_my_way_into_the_green_after_vgfcq/)
+- [AMD Yolo | Put](https://www.reddit.com/r/wallstreetbets/comments/1fxqwtp/amd_yolo_put/)
+- [Caleres &lpar;CAL&rpar; is about to plummet](https://www.reddit.com/r/wallstreetbets/comments/1fxqc0y/caleres_cal_is_about_to_plummet/)
+- [NIO YOLO 10/18](https://www.reddit.com/r/wallstreetbets/comments/1fxqaj8/nio_yolo_1018/)
+- [What Are Your Moves Tomorrow, October 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1fxpayd/what_are_your_moves_tomorrow_october_07_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
