@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Slowly working my way into the green after VGFCQ flop left me in the red.](https://www.reddit.com/r/wallstreetbets/comments/1fxv01o/slowly_working_my_way_into_the_green_after_vgfcq/)
-- [AMD Yolo | Put](https://www.reddit.com/r/wallstreetbets/comments/1fxqwtp/amd_yolo_put/)
-- [Caleres &lpar;CAL&rpar; is about to plummet](https://www.reddit.com/r/wallstreetbets/comments/1fxqc0y/caleres_cal_is_about_to_plummet/)
-- [NIO YOLO 10/18](https://www.reddit.com/r/wallstreetbets/comments/1fxqaj8/nio_yolo_1018/)
-- [What Are Your Moves Tomorrow, October 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1fxpayd/what_are_your_moves_tomorrow_october_07_2024/)
+- [It&#39;s about patience](https://www.reddit.com/r/wallstreetbets/comments/1fyjx4q/its_about_patience/)
+- [Qqq 0DTE](https://www.reddit.com/r/wallstreetbets/comments/1fyjgoe/qqq_0dte/)
+- [Trading on Shrooms Pt. 2](https://www.reddit.com/r/wallstreetbets/comments/1fyiemo/trading_on_shrooms_pt_2/)
+- [Good start on the week!! &lpar;Spy&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1fyic45/good_start_on_the_week_spy/)
+- [FAA U.S. Government Official Confirms eVTOL Commercialization in 2025 - Good Morning America ACHR JOBY](https://www.reddit.com/r/wallstreetbets/comments/1fyi65i/faa_us_government_official_confirms_evtol/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
