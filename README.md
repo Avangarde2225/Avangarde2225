@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It&#39;s about patience](https://www.reddit.com/r/wallstreetbets/comments/1fyjx4q/its_about_patience/)
-- [Qqq 0DTE](https://www.reddit.com/r/wallstreetbets/comments/1fyjgoe/qqq_0dte/)
-- [Trading on Shrooms Pt. 2](https://www.reddit.com/r/wallstreetbets/comments/1fyiemo/trading_on_shrooms_pt_2/)
-- [Good start on the week!! &lpar;Spy&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1fyic45/good_start_on_the_week_spy/)
-- [FAA U.S. Government Official Confirms eVTOL Commercialization in 2025 - Good Morning America ACHR JOBY](https://www.reddit.com/r/wallstreetbets/comments/1fyi65i/faa_us_government_official_confirms_evtol/)
+- [When I buy calls and it actually goes up.](https://www.reddit.com/r/wallstreetbets/comments/1fze3l7/when_i_buy_calls_and_it_actually_goes_up/)
+- [Maybe now I can afford a phone charger](https://www.reddit.com/r/wallstreetbets/comments/1fzbwkg/maybe_now_i_can_afford_a_phone_charger/)
+- [x420 $140 NVDA 10/11 calls](https://www.reddit.com/r/wallstreetbets/comments/1fzb4fu/x420_140_nvda_1011_calls/)
+- [Not selling till lambo](https://www.reddit.com/r/wallstreetbets/comments/1fz9u01/not_selling_till_lambo/)
+- [Saw an ad for “new Robinhood features” in the app so I bought calls.](https://www.reddit.com/r/wallstreetbets/comments/1fz9i2v/saw_an_ad_for_new_robinhood_features_in_the_app/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
