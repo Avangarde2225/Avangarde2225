@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When I buy calls and it actually goes up.](https://www.reddit.com/r/wallstreetbets/comments/1fze3l7/when_i_buy_calls_and_it_actually_goes_up/)
-- [Maybe now I can afford a phone charger](https://www.reddit.com/r/wallstreetbets/comments/1fzbwkg/maybe_now_i_can_afford_a_phone_charger/)
-- [x420 $140 NVDA 10/11 calls](https://www.reddit.com/r/wallstreetbets/comments/1fzb4fu/x420_140_nvda_1011_calls/)
-- [Not selling till lambo](https://www.reddit.com/r/wallstreetbets/comments/1fz9u01/not_selling_till_lambo/)
-- [Saw an ad for “new Robinhood features” in the app so I bought calls.](https://www.reddit.com/r/wallstreetbets/comments/1fz9i2v/saw_an_ad_for_new_robinhood_features_in_the_app/)
+- [Apple sells privacy to consumers. But it’s quietly helping police use iPhones for surveillance.](https://www.reddit.com/r/wallstreetbets/comments/1g05unm/apple_sells_privacy_to_consumers_but_its_quietly/)
+- [YOLO’d My Roth IRA into $HOOD, 137% Gain](https://www.reddit.com/r/wallstreetbets/comments/1g04ykt/yolod_my_roth_ira_into_hood_137_gain/)
+- [Placed my bet.](https://www.reddit.com/r/wallstreetbets/comments/1g04pjx/placed_my_bet/)
+- [Worst decisions of my life, so far](https://www.reddit.com/r/wallstreetbets/comments/1g04kul/worst_decisions_of_my_life_so_far/)
+- [lost my account](https://www.reddit.com/r/wallstreetbets/comments/1g02bll/lost_my_account/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
