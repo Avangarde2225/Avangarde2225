@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple sells privacy to consumers. But it’s quietly helping police use iPhones for surveillance.](https://www.reddit.com/r/wallstreetbets/comments/1g05unm/apple_sells_privacy_to_consumers_but_its_quietly/)
-- [YOLO’d My Roth IRA into $HOOD, 137% Gain](https://www.reddit.com/r/wallstreetbets/comments/1g04ykt/yolod_my_roth_ira_into_hood_137_gain/)
-- [Placed my bet.](https://www.reddit.com/r/wallstreetbets/comments/1g04pjx/placed_my_bet/)
-- [Worst decisions of my life, so far](https://www.reddit.com/r/wallstreetbets/comments/1g04kul/worst_decisions_of_my_life_so_far/)
-- [lost my account](https://www.reddit.com/r/wallstreetbets/comments/1g02bll/lost_my_account/)
+- [Closing in on $2 million- Thank you Nvidia &lpar;$1897k/2000k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1g0wye8/closing_in_on_2_million_thank_you_nvidia/)
+- [$SQ $22,000 Gain!](https://www.reddit.com/r/wallstreetbets/comments/1g0w145/sq_22000_gain/)
+- [I’ll keep drinking Celsius…. forever !](https://www.reddit.com/r/wallstreetbets/comments/1g0vpig/ill_keep_drinking_celsius_forever/)
+- [Tesla Robotaxi car just leaked](https://www.reddit.com/r/wallstreetbets/comments/1g0vjv8/tesla_robotaxi_car_just_leaked/)
+- [In only five months. It was fun while it lasted](https://www.reddit.com/r/wallstreetbets/comments/1g0uxfl/in_only_five_months_it_was_fun_while_it_lasted/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
