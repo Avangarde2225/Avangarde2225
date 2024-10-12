@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Closing in on $2 million- Thank you Nvidia &lpar;$1897k/2000k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1g0wye8/closing_in_on_2_million_thank_you_nvidia/)
-- [$SQ $22,000 Gain!](https://www.reddit.com/r/wallstreetbets/comments/1g0w145/sq_22000_gain/)
-- [I’ll keep drinking Celsius…. forever !](https://www.reddit.com/r/wallstreetbets/comments/1g0vpig/ill_keep_drinking_celsius_forever/)
-- [Tesla Robotaxi car just leaked](https://www.reddit.com/r/wallstreetbets/comments/1g0vjv8/tesla_robotaxi_car_just_leaked/)
-- [In only five months. It was fun while it lasted](https://www.reddit.com/r/wallstreetbets/comments/1g0uxfl/in_only_five_months_it_was_fun_while_it_lasted/)
+- [I’m living the dream.](https://www.reddit.com/r/wallstreetbets/comments/1g1n8h8/im_living_the_dream/)
+- [Hedge funds will have setups like this just to underperform the S&amp;P by 10%](https://www.reddit.com/r/wallstreetbets/comments/1g1m1bj/hedge_funds_will_have_setups_like_this_just_to/)
+- [Elon Musk’s Beer-Pouring Optimus Robots Are Not Autonomous](https://www.reddit.com/r/wallstreetbets/comments/1g1lkn6/elon_musks_beerpouring_optimus_robots_are_not/)
+- [I lost $30K in one day &amp; I&#39;m not leaving until I get it back](https://www.reddit.com/r/wallstreetbets/comments/1g1kylg/i_lost_30k_in_one_day_im_not_leaving_until_i_get/)
+- [My money is cyber-gone](https://www.reddit.com/r/wallstreetbets/comments/1g1khfw/my_money_is_cybergone/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
