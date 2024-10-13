@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I’m living the dream.](https://www.reddit.com/r/wallstreetbets/comments/1g1n8h8/im_living_the_dream/)
-- [Hedge funds will have setups like this just to underperform the S&amp;P by 10%](https://www.reddit.com/r/wallstreetbets/comments/1g1m1bj/hedge_funds_will_have_setups_like_this_just_to/)
-- [Elon Musk’s Beer-Pouring Optimus Robots Are Not Autonomous](https://www.reddit.com/r/wallstreetbets/comments/1g1lkn6/elon_musks_beerpouring_optimus_robots_are_not/)
-- [I lost $30K in one day &amp; I&#39;m not leaving until I get it back](https://www.reddit.com/r/wallstreetbets/comments/1g1kylg/i_lost_30k_in_one_day_im_not_leaving_until_i_get/)
-- [My money is cyber-gone](https://www.reddit.com/r/wallstreetbets/comments/1g1khfw/my_money_is_cybergone/)
+- [Robotaxis coming, Robotaxis coming, oh yes Robotaxis still coming!](https://www.reddit.com/r/wallstreetbets/comments/1g2d63z/robotaxis_coming_robotaxis_coming_oh_yes/)
+- [NVIDIA 🚀](https://www.reddit.com/r/wallstreetbets/comments/1g2aw2j/nvidia/)
+- [buying $HOOD puts at open because their new icon is the ugliest thing i’ve ever seen](https://www.reddit.com/r/wallstreetbets/comments/1g26u3l/buying_hood_puts_at_open_because_their_new_icon/)
+- [Got these QQQ’s and some individual names &lpar;All Puts&rpar; in in](https://www.reddit.com/r/wallstreetbets/comments/1g261tj/got_these_qqqs_and_some_individual_names_all_puts/)
+- [How’s that Long BTC/Short $MSTR trade working KG?](https://www.reddit.com/r/wallstreetbets/comments/1g24ilu/hows_that_long_btcshort_mstr_trade_working_kg/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
