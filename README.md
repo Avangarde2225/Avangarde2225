@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Robotaxis coming, Robotaxis coming, oh yes Robotaxis still coming!](https://www.reddit.com/r/wallstreetbets/comments/1g2d63z/robotaxis_coming_robotaxis_coming_oh_yes/)
-- [NVIDIA 🚀](https://www.reddit.com/r/wallstreetbets/comments/1g2aw2j/nvidia/)
-- [buying $HOOD puts at open because their new icon is the ugliest thing i’ve ever seen](https://www.reddit.com/r/wallstreetbets/comments/1g26u3l/buying_hood_puts_at_open_because_their_new_icon/)
-- [Got these QQQ’s and some individual names &lpar;All Puts&rpar; in in](https://www.reddit.com/r/wallstreetbets/comments/1g261tj/got_these_qqqs_and_some_individual_names_all_puts/)
-- [How’s that Long BTC/Short $MSTR trade working KG?](https://www.reddit.com/r/wallstreetbets/comments/1g24ilu/hows_that_long_btcshort_mstr_trade_working_kg/)
+- [Robinhood color?](https://www.reddit.com/r/wallstreetbets/comments/1g33wi6/robinhood_color/)
+- [Never give up](https://www.reddit.com/r/wallstreetbets/comments/1g31brg/never_give_up/)
+- [Strong AI and Semiconductor weeks ahead](https://www.reddit.com/r/wallstreetbets/comments/1g30ztz/strong_ai_and_semiconductor_weeks_ahead/)
+- [What Are Your Moves Tomorrow, October 14, 2024](https://www.reddit.com/r/wallstreetbets/comments/1g2ybao/what_are_your_moves_tomorrow_october_14_2024/)
+- [For Canadian Thanksgiving I&#39;m grateful for PLTR 🚀](https://www.reddit.com/r/wallstreetbets/comments/1g2x6k0/for_canadian_thanksgiving_im_grateful_for_pltr/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
