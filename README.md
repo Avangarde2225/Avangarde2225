@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Robinhood color?](https://www.reddit.com/r/wallstreetbets/comments/1g33wi6/robinhood_color/)
-- [Never give up](https://www.reddit.com/r/wallstreetbets/comments/1g31brg/never_give_up/)
-- [Strong AI and Semiconductor weeks ahead](https://www.reddit.com/r/wallstreetbets/comments/1g30ztz/strong_ai_and_semiconductor_weeks_ahead/)
-- [What Are Your Moves Tomorrow, October 14, 2024](https://www.reddit.com/r/wallstreetbets/comments/1g2ybao/what_are_your_moves_tomorrow_october_14_2024/)
-- [For Canadian Thanksgiving I&#39;m grateful for PLTR 🚀](https://www.reddit.com/r/wallstreetbets/comments/1g2x6k0/for_canadian_thanksgiving_im_grateful_for_pltr/)
+- [Rklb market cap versus space X](https://www.reddit.com/r/wallstreetbets/comments/1g3u3lb/rklb_market_cap_versus_space_x/)
+- [Google signs deal with nuclear company as data center power demand surges](https://www.reddit.com/r/wallstreetbets/comments/1g3ssgj/google_signs_deal_with_nuclear_company_as_data/)
+- [IonQ will experience a massive rally and has multiple catalysts on the horizon.](https://www.reddit.com/r/wallstreetbets/comments/1g3rx6h/ionq_will_experience_a_massive_rally_and_has/)
+- [Tesla&#39;s $30,000 Robotaxi Hits Major Speed Bump: No Self-Driving Permits, No Profits in Sight](https://www.reddit.com/r/wallstreetbets/comments/1g3rnc9/teslas_30000_robotaxi_hits_major_speed_bump_no/)
+- [It has been a good day!](https://www.reddit.com/r/wallstreetbets/comments/1g3q2zf/it_has_been_a_good_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
