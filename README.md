@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Rklb market cap versus space X](https://www.reddit.com/r/wallstreetbets/comments/1g3u3lb/rklb_market_cap_versus_space_x/)
-- [Google signs deal with nuclear company as data center power demand surges](https://www.reddit.com/r/wallstreetbets/comments/1g3ssgj/google_signs_deal_with_nuclear_company_as_data/)
-- [IonQ will experience a massive rally and has multiple catalysts on the horizon.](https://www.reddit.com/r/wallstreetbets/comments/1g3rx6h/ionq_will_experience_a_massive_rally_and_has/)
-- [Tesla&#39;s $30,000 Robotaxi Hits Major Speed Bump: No Self-Driving Permits, No Profits in Sight](https://www.reddit.com/r/wallstreetbets/comments/1g3rnc9/teslas_30000_robotaxi_hits_major_speed_bump_no/)
-- [It has been a good day!](https://www.reddit.com/r/wallstreetbets/comments/1g3q2zf/it_has_been_a_good_day/)
+- [Today I was a 🐻 and it felt goooddd..](https://www.reddit.com/r/wallstreetbets/comments/1g4lx7p/today_i_was_a_and_it_felt_goooddd/)
+- [Korea implements a new law banning shorting stocks, punishable by prison up to life sentence](https://www.reddit.com/r/wallstreetbets/comments/1g4k94c/korea_implements_a_new_law_banning_shorting/)
+- [The Entire Stock Market vs Hoarding some Shiny Rocks - 20 years.](https://www.reddit.com/r/wallstreetbets/comments/1g4jvf7/the_entire_stock_market_vs_hoarding_some_shiny/)
+- [Played QQQ puts, sold for $700 profit..missed out on 55k. Smh](https://www.reddit.com/r/wallstreetbets/comments/1g4hyzm/played_qqq_puts_sold_for_700_profitmissed_out_on/)
+- [1,000+% on $QQQ 0DTE PUTS ... thanks to crayons](https://www.reddit.com/r/wallstreetbets/comments/1g4h74n/1000_on_qqq_0dte_puts_thanks_to_crayons/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
