@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Today I was a 🐻 and it felt goooddd..](https://www.reddit.com/r/wallstreetbets/comments/1g4lx7p/today_i_was_a_and_it_felt_goooddd/)
-- [Korea implements a new law banning shorting stocks, punishable by prison up to life sentence](https://www.reddit.com/r/wallstreetbets/comments/1g4k94c/korea_implements_a_new_law_banning_shorting/)
-- [The Entire Stock Market vs Hoarding some Shiny Rocks - 20 years.](https://www.reddit.com/r/wallstreetbets/comments/1g4jvf7/the_entire_stock_market_vs_hoarding_some_shiny/)
-- [Played QQQ puts, sold for $700 profit..missed out on 55k. Smh](https://www.reddit.com/r/wallstreetbets/comments/1g4hyzm/played_qqq_puts_sold_for_700_profitmissed_out_on/)
-- [1,000+% on $QQQ 0DTE PUTS ... thanks to crayons](https://www.reddit.com/r/wallstreetbets/comments/1g4h74n/1000_on_qqq_0dte_puts_thanks_to_crayons/)
+- [Enlightened trading strategy](https://www.reddit.com/r/wallstreetbets/comments/1g5d5f7/enlightened_trading_strategy/)
+- [Robinhood announces desktop trading, futures, index options](https://www.reddit.com/r/wallstreetbets/comments/1g5d4vs/robinhood_announces_desktop_trading_futures_index/)
+- [Robinhood launches index options and futures trading](https://www.reddit.com/r/wallstreetbets/comments/1g5cbf4/robinhood_launches_index_options_and_futures/)
+- [Robinhood to offer index options and futures trading](https://www.reddit.com/r/wallstreetbets/comments/1g5c8mt/robinhood_to_offer_index_options_and_futures/)
+- [Energy Fuels &lpar;$UUUU&rpar;, the next Rio Tinto &lpar;$RIO&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1g5c4ap/energy_fuels_uuuu_the_next_rio_tinto_rio/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
