@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A Banking Crisis Is Looming in China. It’s Not Just Property.](https://www.reddit.com/r/wallstreetbets/comments/1g63vis/a_banking_crisis_is_looming_in_china_its_not_just/)
-- [I think i fucked up . Any hope ?](https://www.reddit.com/r/wallstreetbets/comments/1g62kve/i_think_i_fucked_up_any_hope/)
-- [Netflix&#39;s Price Hikes Pay Off: 35M New Subs Despite Cracking Down on Password Sharing](https://www.reddit.com/r/wallstreetbets/comments/1g62gey/netflixs_price_hikes_pay_off_35m_new_subs_despite/)
-- [~100k loss to CHINA](https://www.reddit.com/r/wallstreetbets/comments/1g604q2/100k_loss_to_china/)
-- [Netflix EPS EXPECTED $5.12 Reported $5.40 Expected Rev $9.77B Reported $9.82B Up 14% for subscribers YoY](https://www.reddit.com/r/wallstreetbets/comments/1g603pw/netflix_eps_expected_512_reported_540_expected/)
+- [It’s All About Perspective](https://www.reddit.com/r/wallstreetbets/comments/1g6wg66/its_all_about_perspective/)
+- [Again!!!](https://www.reddit.com/r/wallstreetbets/comments/1g6vv1g/again/)
+- [Michael Saylor is now actively encouraging traders who hate Bitcoin to short $MSTR by promising he won’t sell the Bitcoin ever.](https://www.reddit.com/r/wallstreetbets/comments/1g6tusl/michael_saylor_is_now_actively_encouraging/)
+- [Netflix Earnings and Subscriber Growth Beat Expectations, Shares Hit New Highs](https://www.reddit.com/r/wallstreetbets/comments/1g6slaz/netflix_earnings_and_subscriber_growth_beat/)
+- [I MADE MY MONEY BACK!!!](https://www.reddit.com/r/wallstreetbets/comments/1g6s371/i_made_my_money_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
