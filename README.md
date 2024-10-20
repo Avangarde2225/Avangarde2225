@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It’s All About Perspective](https://www.reddit.com/r/wallstreetbets/comments/1g6wg66/its_all_about_perspective/)
-- [Again!!!](https://www.reddit.com/r/wallstreetbets/comments/1g6vv1g/again/)
-- [Michael Saylor is now actively encouraging traders who hate Bitcoin to short $MSTR by promising he won’t sell the Bitcoin ever.](https://www.reddit.com/r/wallstreetbets/comments/1g6tusl/michael_saylor_is_now_actively_encouraging/)
-- [Netflix Earnings and Subscriber Growth Beat Expectations, Shares Hit New Highs](https://www.reddit.com/r/wallstreetbets/comments/1g6slaz/netflix_earnings_and_subscriber_growth_beat/)
-- [I MADE MY MONEY BACK!!!](https://www.reddit.com/r/wallstreetbets/comments/1g6s371/i_made_my_money_back/)
+- [NVDA PUTS](https://www.reddit.com/r/wallstreetbets/comments/1g7mrpc/nvda_puts/)
+- [GS estimate sp500 3% annualized 10y returns](https://www.reddit.com/r/wallstreetbets/comments/1g7mfq2/gs_estimate_sp500_3_annualized_10y_returns/)
+- [Not me! Not you! All in!](https://www.reddit.com/r/wallstreetbets/comments/1g7mewr/not_me_not_you_all_in/)
+- [The Future is Now! What are your top 3 companies to watch by 2035?](https://www.reddit.com/r/wallstreetbets/comments/1g7m3k9/the_future_is_now_what_are_your_top_3_companies/)
+- [Patrick Bateman: American Degenerate](https://www.reddit.com/r/wallstreetbets/comments/1g7m2wh/patrick_bateman_american_degenerate/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
