@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [News trading](https://www.reddit.com/r/wallstreetbets/comments/1g8d7vo/news_trading/)
-- [$1Mil here I come!](https://www.reddit.com/r/wallstreetbets/comments/1g8cddk/1mil_here_i_come/)
-- [Netflix Cashes In on Password Crackdown, but Subscriber Exodus Looms – Bubble About to Burst?](https://www.reddit.com/r/wallstreetbets/comments/1g8c6rl/netflix_cashes_in_on_password_crackdown_but/)
-- [A Bull Case and DD for $CLOV - 4.94 HEDIS Rating and 4-Star CMS Rating](https://www.reddit.com/r/wallstreetbets/comments/1g89tk3/a_bull_case_and_dd_for_clov_494_hedis_rating_and/)
-- [Oil Companies and Q3 Earnings](https://www.reddit.com/r/wallstreetbets/comments/1g89klp/oil_companies_and_q3_earnings/)
+- [The Big Climate Short](https://www.reddit.com/r/wallstreetbets/comments/1g93h1d/the_big_climate_short/)
+- [$WULF 16.5k yolo 750 otm calls](https://www.reddit.com/r/wallstreetbets/comments/1g936dy/wulf_165k_yolo_750_otm_calls/)
+- [LEAPS are supreme](https://www.reddit.com/r/wallstreetbets/comments/1g92vx8/leaps_are_supreme/)
+- [looks me years to understand what I was doing](https://www.reddit.com/r/wallstreetbets/comments/1g91324/looks_me_years_to_understand_what_i_was_doing/)
+- [NVDA I will cheer for you](https://www.reddit.com/r/wallstreetbets/comments/1g90siv/nvda_i_will_cheer_for_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
