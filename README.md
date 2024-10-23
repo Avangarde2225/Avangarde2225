@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Big Climate Short](https://www.reddit.com/r/wallstreetbets/comments/1g93h1d/the_big_climate_short/)
-- [$WULF 16.5k yolo 750 otm calls](https://www.reddit.com/r/wallstreetbets/comments/1g936dy/wulf_165k_yolo_750_otm_calls/)
-- [LEAPS are supreme](https://www.reddit.com/r/wallstreetbets/comments/1g92vx8/leaps_are_supreme/)
-- [looks me years to understand what I was doing](https://www.reddit.com/r/wallstreetbets/comments/1g91324/looks_me_years_to_understand_what_i_was_doing/)
-- [NVDA I will cheer for you](https://www.reddit.com/r/wallstreetbets/comments/1g90siv/nvda_i_will_cheer_for_you/)
+- [Former Abercrombie &amp; Fitch CEO Mike Jeffries charged with running international sex trafficking ring](https://www.reddit.com/r/wallstreetbets/comments/1g9w4go/former_abercrombie_fitch_ceo_mike_jeffries/)
+- [Starbucks Suspends 2025 Guidance, Reports Same-Store Sales Drop](https://www.reddit.com/r/wallstreetbets/comments/1g9shg6/starbucks_suspends_2025_guidance_reports/)
+- [E-Coli outbreak to McDonald&#39;s quarter pounders](https://www.reddit.com/r/wallstreetbets/comments/1g9s4oy/ecoli_outbreak_to_mcdonalds_quarter_pounders/)
+- [My highest percentage P&amp;L trade yet](https://www.reddit.com/r/wallstreetbets/comments/1g9rpsx/my_highest_percentage_pl_trade_yet/)
+- [What Are Your Moves Tomorrow, October 23, 2024](https://www.reddit.com/r/wallstreetbets/comments/1g9rfqf/what_are_your_moves_tomorrow_october_23_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
