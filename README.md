@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Former Abercrombie &amp; Fitch CEO Mike Jeffries charged with running international sex trafficking ring](https://www.reddit.com/r/wallstreetbets/comments/1g9w4go/former_abercrombie_fitch_ceo_mike_jeffries/)
-- [Starbucks Suspends 2025 Guidance, Reports Same-Store Sales Drop](https://www.reddit.com/r/wallstreetbets/comments/1g9shg6/starbucks_suspends_2025_guidance_reports/)
-- [E-Coli outbreak to McDonald&#39;s quarter pounders](https://www.reddit.com/r/wallstreetbets/comments/1g9s4oy/ecoli_outbreak_to_mcdonalds_quarter_pounders/)
-- [My highest percentage P&amp;L trade yet](https://www.reddit.com/r/wallstreetbets/comments/1g9rpsx/my_highest_percentage_pl_trade_yet/)
-- [What Are Your Moves Tomorrow, October 23, 2024](https://www.reddit.com/r/wallstreetbets/comments/1g9rfqf/what_are_your_moves_tomorrow_october_23_2024/)
+- [How to become a millionaire overnight（ TSLA）](https://www.reddit.com/r/wallstreetbets/comments/1gaoxrj/how_to_become_a_millionaire_overnight_tsla/)
+- [Ha, good one Tesla 🫠](https://www.reddit.com/r/wallstreetbets/comments/1gany67/ha_good_one_tesla/)
+- [I’m fucked lost $10K+ in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1gam0ns/im_fucked_lost_10k_in_2_days/)
+- [Las Vegas Sands misses third-quarter estimates](https://www.reddit.com/r/wallstreetbets/comments/1gal1wv/las_vegas_sands_misses_thirdquarter_estimates/)
+- [Tsla yolo, my final play](https://www.reddit.com/r/wallstreetbets/comments/1gakvo0/tsla_yolo_my_final_play/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
