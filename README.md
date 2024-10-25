@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How to become a millionaire overnight（ TSLA）](https://www.reddit.com/r/wallstreetbets/comments/1gaoxrj/how_to_become_a_millionaire_overnight_tsla/)
-- [Ha, good one Tesla 🫠](https://www.reddit.com/r/wallstreetbets/comments/1gany67/ha_good_one_tesla/)
-- [I’m fucked lost $10K+ in 2 days](https://www.reddit.com/r/wallstreetbets/comments/1gam0ns/im_fucked_lost_10k_in_2_days/)
-- [Las Vegas Sands misses third-quarter estimates](https://www.reddit.com/r/wallstreetbets/comments/1gal1wv/las_vegas_sands_misses_thirdquarter_estimates/)
-- [Tsla yolo, my final play](https://www.reddit.com/r/wallstreetbets/comments/1gakvo0/tsla_yolo_my_final_play/)
+- [How can I buy call on one of the party winning?](https://www.reddit.com/r/wallstreetbets/comments/1gbgosa/how_can_i_buy_call_on_one_of_the_party_winning/)
+- [Thanks TSLA](https://www.reddit.com/r/wallstreetbets/comments/1gbf27a/thanks_tsla/)
+- [Turned $10k into $141k by inversing WSB &lpar;again&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gbcgva/turned_10k_into_141k_by_inversing_wsb_again/)
+- [Sold at a loss yesterday right before close 💀](https://www.reddit.com/r/wallstreetbets/comments/1gbbvz8/sold_at_a_loss_yesterday_right_before_close/)
+- [What Are Your Moves Tomorrow, October 25, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gbbs0c/what_are_your_moves_tomorrow_october_25_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
