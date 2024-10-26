@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How can I buy call on one of the party winning?](https://www.reddit.com/r/wallstreetbets/comments/1gbgosa/how_can_i_buy_call_on_one_of_the_party_winning/)
-- [Thanks TSLA](https://www.reddit.com/r/wallstreetbets/comments/1gbf27a/thanks_tsla/)
-- [Turned $10k into $141k by inversing WSB &lpar;again&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gbcgva/turned_10k_into_141k_by_inversing_wsb_again/)
-- [Sold at a loss yesterday right before close 💀](https://www.reddit.com/r/wallstreetbets/comments/1gbbvz8/sold_at_a_loss_yesterday_right_before_close/)
-- [What Are Your Moves Tomorrow, October 25, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gbbs0c/what_are_your_moves_tomorrow_october_25_2024/)
+- [McDonald’s ice cream machines can now be fixed. 🚀🍦](https://www.reddit.com/r/wallstreetbets/comments/1gc8ktx/mcdonalds_ice_cream_machines_can_now_be_fixed/)
+- [Israel Strikes Military Targets in Iran](https://www.reddit.com/r/wallstreetbets/comments/1gc8ctw/israel_strikes_military_targets_in_iran/)
+- [Leaps](https://www.reddit.com/r/wallstreetbets/comments/1gc6jlx/leaps/)
+- [It ain’t much but it’s honest work](https://www.reddit.com/r/wallstreetbets/comments/1gc4t7r/it_aint_much_but_its_honest_work/)
+- [Turned $10k into $172k in one trade. You guys told me to sell, so I held](https://www.reddit.com/r/wallstreetbets/comments/1gc45oi/turned_10k_into_172k_in_one_trade_you_guys_told/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
