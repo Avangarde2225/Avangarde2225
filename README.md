@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [McDonald’s ice cream machines can now be fixed. 🚀🍦](https://www.reddit.com/r/wallstreetbets/comments/1gc8ktx/mcdonalds_ice_cream_machines_can_now_be_fixed/)
-- [Israel Strikes Military Targets in Iran](https://www.reddit.com/r/wallstreetbets/comments/1gc8ctw/israel_strikes_military_targets_in_iran/)
-- [Leaps](https://www.reddit.com/r/wallstreetbets/comments/1gc6jlx/leaps/)
-- [It ain’t much but it’s honest work](https://www.reddit.com/r/wallstreetbets/comments/1gc4t7r/it_aint_much_but_its_honest_work/)
-- [Turned $10k into $172k in one trade. You guys told me to sell, so I held](https://www.reddit.com/r/wallstreetbets/comments/1gc45oi/turned_10k_into_172k_in_one_trade_you_guys_told/)
+- [My 100x companies 🤜📈](https://www.reddit.com/r/wallstreetbets/comments/1gcyo9q/my_100x_companies/)
+- [Tesla Stock : The competitive risks remain even after good Q3 earnings](https://www.reddit.com/r/wallstreetbets/comments/1gcykfz/tesla_stock_the_competitive_risks_remain_even/)
+- [If options are “priced in” why not take advantage?](https://www.reddit.com/r/wallstreetbets/comments/1gcydic/if_options_are_priced_in_why_not_take_advantage/)
+- [Want to start a thread for discussion on tickers that you see having huge potential in the upcoming decade and why?](https://www.reddit.com/r/wallstreetbets/comments/1gcvsn1/want_to_start_a_thread_for_discussion_on_tickers/)
+- [How’s it going, guys?](https://www.reddit.com/r/wallstreetbets/comments/1gcut77/hows_it_going_guys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
