@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My 100x companies 🤜📈](https://www.reddit.com/r/wallstreetbets/comments/1gcyo9q/my_100x_companies/)
-- [Tesla Stock : The competitive risks remain even after good Q3 earnings](https://www.reddit.com/r/wallstreetbets/comments/1gcykfz/tesla_stock_the_competitive_risks_remain_even/)
-- [If options are “priced in” why not take advantage?](https://www.reddit.com/r/wallstreetbets/comments/1gcydic/if_options_are_priced_in_why_not_take_advantage/)
-- [Want to start a thread for discussion on tickers that you see having huge potential in the upcoming decade and why?](https://www.reddit.com/r/wallstreetbets/comments/1gcvsn1/want_to_start_a_thread_for_discussion_on_tickers/)
-- [How’s it going, guys?](https://www.reddit.com/r/wallstreetbets/comments/1gcut77/hows_it_going_guys/)
+- [Earnings plays &lpar;Part 1&rpar; - 10/28-11/01](https://www.reddit.com/r/wallstreetbets/comments/1gdnojx/earnings_plays_part_1_10281101/)
+- [Reuters- Oil slips nearly $4 a barrel after Israel shows restraint in strikes on Iran](https://www.reddit.com/r/wallstreetbets/comments/1gdmyfd/reuters_oil_slips_nearly_4_a_barrel_after_israel/)
+- [Full Ported 30k of ATM SPY Calls at Friday Close](https://www.reddit.com/r/wallstreetbets/comments/1gdmxlb/full_ported_30k_of_atm_spy_calls_at_friday_close/)
+- [Thoughts $MCD earnings](https://www.reddit.com/r/wallstreetbets/comments/1gdmgp1/thoughts_mcd_earnings/)
+- [90% in just over 4 years…. Thought I was doing well, until I looked at the S&amp;P 500](https://www.reddit.com/r/wallstreetbets/comments/1gdm89x/90_in_just_over_4_years_thought_i_was_doing_well/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
