@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Earnings plays &lpar;Part 1&rpar; - 10/28-11/01](https://www.reddit.com/r/wallstreetbets/comments/1gdnojx/earnings_plays_part_1_10281101/)
-- [Reuters- Oil slips nearly $4 a barrel after Israel shows restraint in strikes on Iran](https://www.reddit.com/r/wallstreetbets/comments/1gdmyfd/reuters_oil_slips_nearly_4_a_barrel_after_israel/)
-- [Full Ported 30k of ATM SPY Calls at Friday Close](https://www.reddit.com/r/wallstreetbets/comments/1gdmxlb/full_ported_30k_of_atm_spy_calls_at_friday_close/)
-- [Thoughts $MCD earnings](https://www.reddit.com/r/wallstreetbets/comments/1gdmgp1/thoughts_mcd_earnings/)
-- [90% in just over 4 years…. Thought I was doing well, until I looked at the S&amp;P 500](https://www.reddit.com/r/wallstreetbets/comments/1gdm89x/90_in_just_over_4_years_thought_i_was_doing_well/)
+- [Up 95K in a day. Feeling smug.](https://www.reddit.com/r/wallstreetbets/comments/1gegx1q/up_95k_in_a_day_feeling_smug/)
+- [Guess where my option trading journey began](https://www.reddit.com/r/wallstreetbets/comments/1gefnys/guess_where_my_option_trading_journey_began/)
+- [Lurker who lost their life savings](https://www.reddit.com/r/wallstreetbets/comments/1gef8bh/lurker_who_lost_their_life_savings/)
+- [Earnings call](https://www.reddit.com/r/wallstreetbets/comments/1gef287/earnings_call/)
+- [Up $36k in a day and yet i feel nothing. Is that a problem](https://www.reddit.com/r/wallstreetbets/comments/1geemmu/up_36k_in_a_day_and_yet_i_feel_nothing_is_that_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
