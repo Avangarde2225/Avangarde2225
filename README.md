@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Up 95K in a day. Feeling smug.](https://www.reddit.com/r/wallstreetbets/comments/1gegx1q/up_95k_in_a_day_feeling_smug/)
-- [Guess where my option trading journey began](https://www.reddit.com/r/wallstreetbets/comments/1gefnys/guess_where_my_option_trading_journey_began/)
-- [Lurker who lost their life savings](https://www.reddit.com/r/wallstreetbets/comments/1gef8bh/lurker_who_lost_their_life_savings/)
-- [Earnings call](https://www.reddit.com/r/wallstreetbets/comments/1gef287/earnings_call/)
-- [Up $36k in a day and yet i feel nothing. Is that a problem](https://www.reddit.com/r/wallstreetbets/comments/1geemmu/up_36k_in_a_day_and_yet_i_feel_nothing_is_that_a/)
+- [First year full time trading. Going well so far 🤞](https://www.reddit.com/r/wallstreetbets/comments/1gf8xzl/first_year_full_time_trading_going_well_so_far/)
+- [Roaring Kitty&#39; Keith Gill dissolves entire stake in Chewy, filing shows](https://www.reddit.com/r/wallstreetbets/comments/1gf8wnn/roaring_kitty_keith_gill_dissolves_entire_stake/)
+- [I dunno](https://www.reddit.com/r/wallstreetbets/comments/1gf8tn9/i_dunno/)
+- [Russian court fines Google $20,000,000,000,000,000,000,000,000,000,000,000](https://www.reddit.com/r/wallstreetbets/comments/1gf6x94/russian_court_fines_google/)
+- [U.S. Banks Sitting on $750 billion In Losses On Real Estate Debt Related Securities - Here We Go Again…](https://www.reddit.com/r/wallstreetbets/comments/1gf674u/us_banks_sitting_on_750_billion_in_losses_on_real/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
