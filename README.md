@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [First year full time trading. Going well so far 🤞](https://www.reddit.com/r/wallstreetbets/comments/1gf8xzl/first_year_full_time_trading_going_well_so_far/)
-- [Roaring Kitty&#39; Keith Gill dissolves entire stake in Chewy, filing shows](https://www.reddit.com/r/wallstreetbets/comments/1gf8wnn/roaring_kitty_keith_gill_dissolves_entire_stake/)
-- [I dunno](https://www.reddit.com/r/wallstreetbets/comments/1gf8tn9/i_dunno/)
-- [Russian court fines Google $20,000,000,000,000,000,000,000,000,000,000,000](https://www.reddit.com/r/wallstreetbets/comments/1gf6x94/russian_court_fines_google/)
-- [U.S. Banks Sitting on $750 billion In Losses On Real Estate Debt Related Securities - Here We Go Again…](https://www.reddit.com/r/wallstreetbets/comments/1gf674u/us_banks_sitting_on_750_billion_in_losses_on_real/)
+- [MicroStrategy, MSTR raising $42B to buy Bitcoin](https://www.reddit.com/r/wallstreetbets/comments/1gfyu45/microstrategy_mstr_raising_42b_to_buy_bitcoin/)
+- [Cooked](https://www.reddit.com/r/wallstreetbets/comments/1gfxoui/cooked/)
+- [Remember: on red days your face won’t be recognized if you’re crying](https://www.reddit.com/r/wallstreetbets/comments/1gfxagf/remember_on_red_days_your_face_wont_be_recognized/)
+- [CVNA up 20% on earnings beat! &lpar;WTF&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gfx18r/cvna_up_20_on_earnings_beat_wtf/)
+- [Someone bought 400k shares of Starbucks despite earnings miss on every front..](https://www.reddit.com/r/wallstreetbets/comments/1gfw9af/someone_bought_400k_shares_of_starbucks_despite/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
