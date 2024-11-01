@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [MicroStrategy, MSTR raising $42B to buy Bitcoin](https://www.reddit.com/r/wallstreetbets/comments/1gfyu45/microstrategy_mstr_raising_42b_to_buy_bitcoin/)
-- [Cooked](https://www.reddit.com/r/wallstreetbets/comments/1gfxoui/cooked/)
-- [Remember: on red days your face won’t be recognized if you’re crying](https://www.reddit.com/r/wallstreetbets/comments/1gfxagf/remember_on_red_days_your_face_wont_be_recognized/)
-- [CVNA up 20% on earnings beat! &lpar;WTF&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gfx18r/cvna_up_20_on_earnings_beat_wtf/)
-- [Someone bought 400k shares of Starbucks despite earnings miss on every front..](https://www.reddit.com/r/wallstreetbets/comments/1gfw9af/someone_bought_400k_shares_of_starbucks_despite/)
+- [You’ll never guess who is the most profitable company per employee in the world](https://www.reddit.com/r/wallstreetbets/comments/1ggrxzm/youll_never_guess_who_is_the_most_profitable/)
+- [Come on folks, this was such an obvious outcome](https://www.reddit.com/r/wallstreetbets/comments/1ggrnsa/come_on_folks_this_was_such_an_obvious_outcome/)
+- [Art the clown rings the closing bell at NASDAQ](https://www.reddit.com/r/wallstreetbets/comments/1ggqd5g/art_the_clown_rings_the_closing_bell_at_nasdaq/)
+- [Normal and rational](https://www.reddit.com/r/wallstreetbets/comments/1ggpjxl/normal_and_rational/)
+- [Today is the 5th Anniversary of the &quot;Guh!&quot; Heard Round the World](https://www.reddit.com/r/wallstreetbets/comments/1ggp583/today_is_the_5th_anniversary_of_the_guh_heard/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
