@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cvna is the next smci](https://www.reddit.com/r/wallstreetbets/comments/1ghiud7/cvna_is_the_next_smci/)
-- [Just Days Until Economic Data Reflects a Weaker Outlook](https://www.reddit.com/r/wallstreetbets/comments/1ghi7hy/just_days_until_economic_data_reflects_a_weaker/)
-- [Loss porn for you cucks](https://www.reddit.com/r/wallstreetbets/comments/1ghi08u/loss_porn_for_you_cucks/)
-- [Am I cooked, accidentally excited 300 shares of DJT on a Margin , I only have 2k in my acc](https://www.reddit.com/r/wallstreetbets/comments/1ghhi7b/am_i_cooked_accidentally_excited_300_shares_of/)
-- [100k Inheritance in $HOOD](https://www.reddit.com/r/wallstreetbets/comments/1ghh6ns/100k_inheritance_in_hood/)
+- [How the Market Will Go Next Week: Diamond-Handed Degenerate Edition](https://www.reddit.com/r/wallstreetbets/comments/1gi9zso/how_the_market_will_go_next_week_diamondhanded/)
+- [How the market will go next week](https://www.reddit.com/r/wallstreetbets/comments/1gi8pkg/how_the_market_will_go_next_week/)
+- [Why i think the market is going to crash after the election no matter who wins.](https://www.reddit.com/r/wallstreetbets/comments/1gi70gs/why_i_think_the_market_is_going_to_crash_after/)
+- [CELH position](https://www.reddit.com/r/wallstreetbets/comments/1gi6sy8/celh_position/)
+- [Pov](https://www.reddit.com/r/wallstreetbets/comments/1gi63m2/pov/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
