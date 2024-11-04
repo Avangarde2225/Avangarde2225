@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How the Market Will Go Next Week: Diamond-Handed Degenerate Edition](https://www.reddit.com/r/wallstreetbets/comments/1gi9zso/how_the_market_will_go_next_week_diamondhanded/)
-- [How the market will go next week](https://www.reddit.com/r/wallstreetbets/comments/1gi8pkg/how_the_market_will_go_next_week/)
-- [Why i think the market is going to crash after the election no matter who wins.](https://www.reddit.com/r/wallstreetbets/comments/1gi70gs/why_i_think_the_market_is_going_to_crash_after/)
-- [CELH position](https://www.reddit.com/r/wallstreetbets/comments/1gi6sy8/celh_position/)
-- [Pov](https://www.reddit.com/r/wallstreetbets/comments/1gi63m2/pov/)
+- [Guy is maxing personal credit cards to buy MSTR options. Bullish?](https://www.reddit.com/r/wallstreetbets/comments/1gj1x0l/guy_is_maxing_personal_credit_cards_to_buy_mstr/)
+- [NVDA x xAI](https://www.reddit.com/r/wallstreetbets/comments/1gj1lx4/nvda_x_xai/)
+- [$MSFT](https://www.reddit.com/r/wallstreetbets/comments/1gj17fp/msft/)
+- [trust me. i know](https://www.reddit.com/r/wallstreetbets/comments/1gj0o6y/trust_me_i_know/)
+- [Nvda $200 November 22 - how regarded I&#39;m part 2](https://www.reddit.com/r/wallstreetbets/comments/1giz8hu/nvda_200_november_22_how_regarded_im_part_2/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
