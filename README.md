@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Guy is maxing personal credit cards to buy MSTR options. Bullish?](https://www.reddit.com/r/wallstreetbets/comments/1gj1x0l/guy_is_maxing_personal_credit_cards_to_buy_mstr/)
-- [NVDA x xAI](https://www.reddit.com/r/wallstreetbets/comments/1gj1lx4/nvda_x_xai/)
-- [$MSFT](https://www.reddit.com/r/wallstreetbets/comments/1gj17fp/msft/)
-- [trust me. i know](https://www.reddit.com/r/wallstreetbets/comments/1gj0o6y/trust_me_i_know/)
-- [Nvda $200 November 22 - how regarded I&#39;m part 2](https://www.reddit.com/r/wallstreetbets/comments/1giz8hu/nvda_200_november_22_how_regarded_im_part_2/)
+- [Just inherited my custodial account at 21 yo, any obvious plays to make?](https://www.reddit.com/r/wallstreetbets/comments/1gjtld2/just_inherited_my_custodial_account_at_21_yo_any/)
+- [$INTC Preparing to Receive Initial Multi Billion Dollar Bids for a Stake in its Altera Unit - Silver Lake and Bain Capital Among Bidders](https://www.reddit.com/r/wallstreetbets/comments/1gjsmo6/intc_preparing_to_receive_initial_multi_billion/)
+- [$3.39 trillion: AI titan Nvidia overtakes Apple as world’s most valuable company](https://www.reddit.com/r/wallstreetbets/comments/1gjqhnh/339_trillion_ai_titan_nvidia_overtakes_apple_as/)
+- [SMCI](https://www.reddit.com/r/wallstreetbets/comments/1gjqdox/smci/)
+- [Facebook, Nvidia ask US Supreme Court to spare them from securities fraud suits](https://www.reddit.com/r/wallstreetbets/comments/1gjpm0t/facebook_nvidia_ask_us_supreme_court_to_spare/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
