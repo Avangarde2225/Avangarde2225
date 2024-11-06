@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Just inherited my custodial account at 21 yo, any obvious plays to make?](https://www.reddit.com/r/wallstreetbets/comments/1gjtld2/just_inherited_my_custodial_account_at_21_yo_any/)
-- [$INTC Preparing to Receive Initial Multi Billion Dollar Bids for a Stake in its Altera Unit - Silver Lake and Bain Capital Among Bidders](https://www.reddit.com/r/wallstreetbets/comments/1gjsmo6/intc_preparing_to_receive_initial_multi_billion/)
-- [$3.39 trillion: AI titan Nvidia overtakes Apple as world’s most valuable company](https://www.reddit.com/r/wallstreetbets/comments/1gjqhnh/339_trillion_ai_titan_nvidia_overtakes_apple_as/)
-- [SMCI](https://www.reddit.com/r/wallstreetbets/comments/1gjqdox/smci/)
-- [Facebook, Nvidia ask US Supreme Court to spare them from securities fraud suits](https://www.reddit.com/r/wallstreetbets/comments/1gjpm0t/facebook_nvidia_ask_us_supreme_court_to_spare/)
+- [For the first time ever, AMD outsells Intel in the datacenter space](https://www.reddit.com/r/wallstreetbets/comments/1gklmy6/for_the_first_time_ever_amd_outsells_intel_in_the/)
+- [Full send](https://www.reddit.com/r/wallstreetbets/comments/1gkkk1q/full_send/)
+- [Came up with this in the shower](https://www.reddit.com/r/wallstreetbets/comments/1gkkgat/came_up_with_this_in_the_shower/)
+- [Hims and Hers stock](https://www.reddit.com/r/wallstreetbets/comments/1gkjyes/hims_and_hers_stock/)
+- [DJT surprise filing reveals $19.2m loss with reduced revenue. Are they really using the election to hide their shitty numbers?](https://www.reddit.com/r/wallstreetbets/comments/1gkj99w/djt_surprise_filing_reveals_192m_loss_with/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
