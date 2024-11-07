@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [For the first time ever, AMD outsells Intel in the datacenter space](https://www.reddit.com/r/wallstreetbets/comments/1gklmy6/for_the_first_time_ever_amd_outsells_intel_in_the/)
-- [Full send](https://www.reddit.com/r/wallstreetbets/comments/1gkkk1q/full_send/)
-- [Came up with this in the shower](https://www.reddit.com/r/wallstreetbets/comments/1gkkgat/came_up_with_this_in_the_shower/)
-- [Hims and Hers stock](https://www.reddit.com/r/wallstreetbets/comments/1gkjyes/hims_and_hers_stock/)
-- [DJT surprise filing reveals $19.2m loss with reduced revenue. Are they really using the election to hide their shitty numbers?](https://www.reddit.com/r/wallstreetbets/comments/1gkj99w/djt_surprise_filing_reveals_192m_loss_with/)
+- [$450 ---&gt; $6,150 in two days](https://www.reddit.com/r/wallstreetbets/comments/1gl9pae/450_6150_in_two_days/)
+- [Market Close November 6, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gl96c6/market_close_november_6_2024/)
+- [What Are Your Moves Tomorrow, November 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gl8x2t/what_are_your_moves_tomorrow_november_07_2024/)
+- [5,868% Gains](https://www.reddit.com/r/wallstreetbets/comments/1gl8upu/5868_gains/)
+- [PLTR golden number](https://www.reddit.com/r/wallstreetbets/comments/1gl8app/pltr_golden_number/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
