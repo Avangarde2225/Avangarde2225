@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$450 ---&gt; $6,150 in two days](https://www.reddit.com/r/wallstreetbets/comments/1gl9pae/450_6150_in_two_days/)
-- [Market Close November 6, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gl96c6/market_close_november_6_2024/)
-- [What Are Your Moves Tomorrow, November 07, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gl8x2t/what_are_your_moves_tomorrow_november_07_2024/)
-- [5,868% Gains](https://www.reddit.com/r/wallstreetbets/comments/1gl8upu/5868_gains/)
-- [PLTR golden number](https://www.reddit.com/r/wallstreetbets/comments/1gl8app/pltr_golden_number/)
+- [YOLO $35k into 1.1MM to save the family farm.](https://www.reddit.com/r/wallstreetbets/comments/1gm4gzv/yolo_35k_into_11mm_to_save_the_family_farm/)
+- [S&amp;P Dec. 2024 closes at Boobs](https://www.reddit.com/r/wallstreetbets/comments/1gm3mxq/sp_dec_2024_closes_at_boobs/)
+- [Guh, there goes another grandma. No lessons learned.](https://www.reddit.com/r/wallstreetbets/comments/1gm3hc4/guh_there_goes_another_grandma_no_lessons_learned/)
+- [Private prisons stocks soaring as investors anticipate hard crackdown on migration](https://www.reddit.com/r/wallstreetbets/comments/1gm2ma1/private_prisons_stocks_soaring_as_investors/)
+- [Globalstar Smashes Earnings with a 19.5% Revenue Beat! $GSAT 🚀](https://www.reddit.com/r/wallstreetbets/comments/1gm1t2c/globalstar_smashes_earnings_with_a_195_revenue/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
