@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [YOLO $35k into 1.1MM to save the family farm.](https://www.reddit.com/r/wallstreetbets/comments/1gm4gzv/yolo_35k_into_11mm_to_save_the_family_farm/)
-- [S&amp;P Dec. 2024 closes at Boobs](https://www.reddit.com/r/wallstreetbets/comments/1gm3mxq/sp_dec_2024_closes_at_boobs/)
-- [Guh, there goes another grandma. No lessons learned.](https://www.reddit.com/r/wallstreetbets/comments/1gm3hc4/guh_there_goes_another_grandma_no_lessons_learned/)
-- [Private prisons stocks soaring as investors anticipate hard crackdown on migration](https://www.reddit.com/r/wallstreetbets/comments/1gm2ma1/private_prisons_stocks_soaring_as_investors/)
-- [Globalstar Smashes Earnings with a 19.5% Revenue Beat! $GSAT 🚀](https://www.reddit.com/r/wallstreetbets/comments/1gm1t2c/globalstar_smashes_earnings_with_a_195_revenue/)
+- [Sir Isaac Newton was the first regard](https://www.reddit.com/r/wallstreetbets/comments/1gmxc3z/sir_isaac_newton_was_the_first_regard/)
+- [70k gain thanks to the Trump Trade no one talked about](https://www.reddit.com/r/wallstreetbets/comments/1gmx7z7/70k_gain_thanks_to_the_trump_trade_no_one_talked/)
+- [VIBES ARE BACK](https://www.reddit.com/r/wallstreetbets/comments/1gmvum2/vibes_are_back/)
+- [Biden Admin Rushing to Distribute CHIPS Act Funds Before Trump Enters Office](https://www.reddit.com/r/wallstreetbets/comments/1gmvo4c/biden_admin_rushing_to_distribute_chips_act_funds/)
+- [TSLA Calls $1.1k -&gt; $12.5K](https://www.reddit.com/r/wallstreetbets/comments/1gmu48h/tsla_calls_11k_125k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
