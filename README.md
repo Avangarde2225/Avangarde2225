@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sir Isaac Newton was the first regard](https://www.reddit.com/r/wallstreetbets/comments/1gmxc3z/sir_isaac_newton_was_the_first_regard/)
-- [70k gain thanks to the Trump Trade no one talked about](https://www.reddit.com/r/wallstreetbets/comments/1gmx7z7/70k_gain_thanks_to_the_trump_trade_no_one_talked/)
-- [VIBES ARE BACK](https://www.reddit.com/r/wallstreetbets/comments/1gmvum2/vibes_are_back/)
-- [Biden Admin Rushing to Distribute CHIPS Act Funds Before Trump Enters Office](https://www.reddit.com/r/wallstreetbets/comments/1gmvo4c/biden_admin_rushing_to_distribute_chips_act_funds/)
-- [TSLA Calls $1.1k -&gt; $12.5K](https://www.reddit.com/r/wallstreetbets/comments/1gmu48h/tsla_calls_11k_125k/)
+- [Taking Down a Hedge Fund: Hindenburg Research](https://www.reddit.com/r/wallstreetbets/comments/1gnnodo/taking_down_a_hedge_fund_hindenburg_research/)
+- [Might Quit my half ass job if I can snag 20k more by years end. Yay or nahh?](https://www.reddit.com/r/wallstreetbets/comments/1gnlz2g/might_quit_my_half_ass_job_if_i_can_snag_20k_more/)
+- [Caught some of the $COST move Friday 🤑](https://www.reddit.com/r/wallstreetbets/comments/1gnlme2/caught_some_of_the_cost_move_friday/)
+- [AppLovin To Join Nasdaq 100, Replacing Dollar Tree](https://www.reddit.com/r/wallstreetbets/comments/1gnktb3/applovin_to_join_nasdaq_100_replacing_dollar_tree/)
+- [Breaking news](https://www.reddit.com/r/wallstreetbets/comments/1gnksft/breaking_news/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
