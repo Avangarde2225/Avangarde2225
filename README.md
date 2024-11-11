@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Taking Down a Hedge Fund: Hindenburg Research](https://www.reddit.com/r/wallstreetbets/comments/1gnnodo/taking_down_a_hedge_fund_hindenburg_research/)
-- [Might Quit my half ass job if I can snag 20k more by years end. Yay or nahh?](https://www.reddit.com/r/wallstreetbets/comments/1gnlz2g/might_quit_my_half_ass_job_if_i_can_snag_20k_more/)
-- [Caught some of the $COST move Friday 🤑](https://www.reddit.com/r/wallstreetbets/comments/1gnlme2/caught_some_of_the_cost_move_friday/)
-- [AppLovin To Join Nasdaq 100, Replacing Dollar Tree](https://www.reddit.com/r/wallstreetbets/comments/1gnktb3/applovin_to_join_nasdaq_100_replacing_dollar_tree/)
-- [Breaking news](https://www.reddit.com/r/wallstreetbets/comments/1gnksft/breaking_news/)
+- [Looking for recommendations for lithium plays](https://www.reddit.com/r/wallstreetbets/comments/1gofjrr/looking_for_recommendations_for_lithium_plays/)
+- [Gainzz](https://www.reddit.com/r/wallstreetbets/comments/1gofha8/gainzz/)
+- [Relapsed on options after 3 months](https://www.reddit.com/r/wallstreetbets/comments/1gof5vx/relapsed_on_options_after_3_months/)
+- [Relapsed on options after 3 months](https://www.reddit.com/r/wallstreetbets/comments/1gof5rz/relapsed_on_options_after_3_months/)
+- [66.99 - nice](https://www.reddit.com/r/wallstreetbets/comments/1goews3/6699_nice/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
