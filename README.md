@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Looking for recommendations for lithium plays](https://www.reddit.com/r/wallstreetbets/comments/1gofjrr/looking_for_recommendations_for_lithium_plays/)
-- [Gainzz](https://www.reddit.com/r/wallstreetbets/comments/1gofha8/gainzz/)
-- [Relapsed on options after 3 months](https://www.reddit.com/r/wallstreetbets/comments/1gof5vx/relapsed_on_options_after_3_months/)
-- [Relapsed on options after 3 months](https://www.reddit.com/r/wallstreetbets/comments/1gof5rz/relapsed_on_options_after_3_months/)
-- [66.99 - nice](https://www.reddit.com/r/wallstreetbets/comments/1goews3/6699_nice/)
+- [$TSLA Calls Closed +$400k](https://www.reddit.com/r/wallstreetbets/comments/1gp6tf7/tsla_calls_closed_400k/)
+- [Thank you Elon! $TSLA $10k to $149k in under a week](https://www.reddit.com/r/wallstreetbets/comments/1gp6l38/thank_you_elon_tsla_10k_to_149k_in_under_a_week/)
+- [Robinhood #HOOD $HOOD Full Port](https://www.reddit.com/r/wallstreetbets/comments/1gp47ng/robinhood_hood_hood_full_port/)
+- [Today’s Gain 🚀](https://www.reddit.com/r/wallstreetbets/comments/1gp33mu/todays_gain/)
+- [What Are Your Moves Tomorrow, November 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gp2yyb/what_are_your_moves_tomorrow_november_12_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
