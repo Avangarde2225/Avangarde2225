@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$TSLA Calls Closed +$400k](https://www.reddit.com/r/wallstreetbets/comments/1gp6tf7/tsla_calls_closed_400k/)
-- [Thank you Elon! $TSLA $10k to $149k in under a week](https://www.reddit.com/r/wallstreetbets/comments/1gp6l38/thank_you_elon_tsla_10k_to_149k_in_under_a_week/)
-- [Robinhood #HOOD $HOOD Full Port](https://www.reddit.com/r/wallstreetbets/comments/1gp47ng/robinhood_hood_hood_full_port/)
-- [Today’s Gain 🚀](https://www.reddit.com/r/wallstreetbets/comments/1gp33mu/todays_gain/)
-- [What Are Your Moves Tomorrow, November 12, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gp2yyb/what_are_your_moves_tomorrow_november_12_2024/)
+- [Spirit airlines file for bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/1gpxzkb/spirit_airlines_file_for_bankruptcy/)
+- [295k cava play](https://www.reddit.com/r/wallstreetbets/comments/1gpwg7k/295k_cava_play/)
+- [We done saved the farm boys](https://www.reddit.com/r/wallstreetbets/comments/1gpwda8/we_done_saved_the_farm_boys/)
+- [It&#39;s been nearly 2 months and no one has posted an overlay chart of similarity with 2008](https://www.reddit.com/r/wallstreetbets/comments/1gpwbmj/its_been_nearly_2_months_and_no_one_has_posted_an/)
+- [What Are Your Moves Tomorrow, November 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gpvbnp/what_are_your_moves_tomorrow_november_13_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
