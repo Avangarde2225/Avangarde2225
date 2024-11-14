@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Spirit airlines file for bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/1gpxzkb/spirit_airlines_file_for_bankruptcy/)
-- [295k cava play](https://www.reddit.com/r/wallstreetbets/comments/1gpwg7k/295k_cava_play/)
-- [We done saved the farm boys](https://www.reddit.com/r/wallstreetbets/comments/1gpwda8/we_done_saved_the_farm_boys/)
-- [It&#39;s been nearly 2 months and no one has posted an overlay chart of similarity with 2008](https://www.reddit.com/r/wallstreetbets/comments/1gpwbmj/its_been_nearly_2_months_and_no_one_has_posted_an/)
-- [What Are Your Moves Tomorrow, November 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gpvbnp/what_are_your_moves_tomorrow_november_13_2024/)
+- [NVDA porn … 4,364% Roth IRA gains!](https://www.reddit.com/r/wallstreetbets/comments/1gqqddi/nvda_porn_4364_roth_ira_gains/)
+- [My earnings from AMZN](https://www.reddit.com/r/wallstreetbets/comments/1gqorvo/my_earnings_from_amzn/)
+- [Just Eat Takeway sells Grubhub to Wonder for $650 million &lpar;bought in 2021 for $7 billion&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gqob0e/just_eat_takeway_sells_grubhub_to_wonder_for_650/)
+- [What Are Your Moves Tomorrow, November 14, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gqncsa/what_are_your_moves_tomorrow_november_14_2024/)
+- [For the first time I was able to make a 3190% profit trading options. $RKLB this is crazy](https://www.reddit.com/r/wallstreetbets/comments/1gqm7tp/for_the_first_time_i_was_able_to_make_a_3190/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
