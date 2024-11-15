@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVDA porn … 4,364% Roth IRA gains!](https://www.reddit.com/r/wallstreetbets/comments/1gqqddi/nvda_porn_4364_roth_ira_gains/)
-- [My earnings from AMZN](https://www.reddit.com/r/wallstreetbets/comments/1gqorvo/my_earnings_from_amzn/)
-- [Just Eat Takeway sells Grubhub to Wonder for $650 million &lpar;bought in 2021 for $7 billion&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gqob0e/just_eat_takeway_sells_grubhub_to_wonder_for_650/)
-- [What Are Your Moves Tomorrow, November 14, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gqncsa/what_are_your_moves_tomorrow_november_14_2024/)
-- [For the first time I was able to make a 3190% profit trading options. $RKLB this is crazy](https://www.reddit.com/r/wallstreetbets/comments/1gqm7tp/for_the_first_time_i_was_able_to_make_a_3190/)
+- [DIS Profit gained in 10 days](https://www.reddit.com/r/wallstreetbets/comments/1grhfbo/dis_profit_gained_in_10_days/)
+- [Am I cooked? $LUNR](https://www.reddit.com/r/wallstreetbets/comments/1grfxul/am_i_cooked_lunr/)
+- [PLTR to Move from NYSE to NASDAQ: Could QQQ Addition Spark a Rally?](https://www.reddit.com/r/wallstreetbets/comments/1grfucj/pltr_to_move_from_nyse_to_nasdaq_could_qqq/)
+- [When a 122% daily gain feels like a kick in the nuts...](https://www.reddit.com/r/wallstreetbets/comments/1grfpw7/when_a_122_daily_gain_feels_like_a_kick_in_the/)
+- [PLTR announces move to NASDAQ from NYSE](https://www.reddit.com/r/wallstreetbets/comments/1grfnjj/pltr_announces_move_to_nasdaq_from_nyse/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
