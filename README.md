@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DIS Profit gained in 10 days](https://www.reddit.com/r/wallstreetbets/comments/1grhfbo/dis_profit_gained_in_10_days/)
-- [Am I cooked? $LUNR](https://www.reddit.com/r/wallstreetbets/comments/1grfxul/am_i_cooked_lunr/)
-- [PLTR to Move from NYSE to NASDAQ: Could QQQ Addition Spark a Rally?](https://www.reddit.com/r/wallstreetbets/comments/1grfucj/pltr_to_move_from_nyse_to_nasdaq_could_qqq/)
-- [When a 122% daily gain feels like a kick in the nuts...](https://www.reddit.com/r/wallstreetbets/comments/1grfpw7/when_a_122_daily_gain_feels_like_a_kick_in_the/)
-- [PLTR announces move to NASDAQ from NYSE](https://www.reddit.com/r/wallstreetbets/comments/1grfnjj/pltr_announces_move_to_nasdaq_from_nyse/)
+- [Meow](https://www.reddit.com/r/wallstreetbets/comments/1gsat4h/meow/)
+- [$MSTR announced a raise of $42B to buy more Bitcoin, which is equivalent as buying at $85k/BTC every Bitcoin mined for the next 3 years!](https://www.reddit.com/r/wallstreetbets/comments/1gsa6sd/mstr_announced_a_raise_of_42b_to_buy_more_bitcoin/)
+- [There goes a semester&#39;s worth of tuition.](https://www.reddit.com/r/wallstreetbets/comments/1gs82sz/there_goes_a_semesters_worth_of_tuition/)
+- [Weekend Discussion Thread for the Weekend of November 15, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gs6ij1/weekend_discussion_thread_for_the_weekend_of/)
+- [Well I think I’m done with trying to make it as a day trader](https://www.reddit.com/r/wallstreetbets/comments/1gs5t1d/well_i_think_im_done_with_trying_to_make_it_as_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
