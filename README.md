@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Meow](https://www.reddit.com/r/wallstreetbets/comments/1gsat4h/meow/)
-- [$MSTR announced a raise of $42B to buy more Bitcoin, which is equivalent as buying at $85k/BTC every Bitcoin mined for the next 3 years!](https://www.reddit.com/r/wallstreetbets/comments/1gsa6sd/mstr_announced_a_raise_of_42b_to_buy_more_bitcoin/)
-- [There goes a semester&#39;s worth of tuition.](https://www.reddit.com/r/wallstreetbets/comments/1gs82sz/there_goes_a_semesters_worth_of_tuition/)
-- [Weekend Discussion Thread for the Weekend of November 15, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gs6ij1/weekend_discussion_thread_for_the_weekend_of/)
-- [Well I think I’m done with trying to make it as a day trader](https://www.reddit.com/r/wallstreetbets/comments/1gs5t1d/well_i_think_im_done_with_trying_to_make_it_as_a/)
+- [Five Years of Retail Trading...](https://www.reddit.com/r/wallstreetbets/comments/1gt0x6g/five_years_of_retail_trading/)
+- [Boeing issues layoff notices to 400-plus workers as it begins drastic cuts](https://www.reddit.com/r/wallstreetbets/comments/1gt02vu/boeing_issues_layoff_notices_to_400plus_workers/)
+- [Anyone else seeing these SPY commercials?](https://www.reddit.com/r/wallstreetbets/comments/1gszzqk/anyone_else_seeing_these_spy_commercials/)
+- [AI Effect Elon Musk’s xAI raising up to $6 billion to purchase 100,000 Nvidia chips](https://www.reddit.com/r/wallstreetbets/comments/1gsyufm/ai_effect_elon_musks_xai_raising_up_to_6_billion/)
+- [OKLO Board Member nominated for Energy Secretary](https://www.reddit.com/r/wallstreetbets/comments/1gsytqj/oklo_board_member_nominated_for_energy_secretary/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
