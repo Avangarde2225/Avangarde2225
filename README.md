@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Five Years of Retail Trading...](https://www.reddit.com/r/wallstreetbets/comments/1gt0x6g/five_years_of_retail_trading/)
-- [Boeing issues layoff notices to 400-plus workers as it begins drastic cuts](https://www.reddit.com/r/wallstreetbets/comments/1gt02vu/boeing_issues_layoff_notices_to_400plus_workers/)
-- [Anyone else seeing these SPY commercials?](https://www.reddit.com/r/wallstreetbets/comments/1gszzqk/anyone_else_seeing_these_spy_commercials/)
-- [AI Effect Elon Musk’s xAI raising up to $6 billion to purchase 100,000 Nvidia chips](https://www.reddit.com/r/wallstreetbets/comments/1gsyufm/ai_effect_elon_musks_xai_raising_up_to_6_billion/)
-- [OKLO Board Member nominated for Energy Secretary](https://www.reddit.com/r/wallstreetbets/comments/1gsytqj/oklo_board_member_nominated_for_energy_secretary/)
+- [$OKLO shares and options YOLO](https://www.reddit.com/r/wallstreetbets/comments/1gtquma/oklo_shares_and_options_yolo/)
+- [Guys, what are your rate cut expectations? Do you think Powell will be even more conservative after Trump wins?](https://www.reddit.com/r/wallstreetbets/comments/1gto0aq/guys_what_are_your_rate_cut_expectations_do_you/)
+- [What Are Your Moves Tomorrow, November 18, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gtngje/what_are_your_moves_tomorrow_november_18_2024/)
+- [CGC and ACRHF losing license in NYS](https://www.reddit.com/r/wallstreetbets/comments/1gtlqwk/cgc_and_acrhf_losing_license_in_nys/)
+- [Last week was one of my craziest weeks](https://www.reddit.com/r/wallstreetbets/comments/1gtlodf/last_week_was_one_of_my_craziest_weeks/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
