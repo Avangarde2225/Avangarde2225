@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$OKLO shares and options YOLO](https://www.reddit.com/r/wallstreetbets/comments/1gtquma/oklo_shares_and_options_yolo/)
-- [Guys, what are your rate cut expectations? Do you think Powell will be even more conservative after Trump wins?](https://www.reddit.com/r/wallstreetbets/comments/1gto0aq/guys_what_are_your_rate_cut_expectations_do_you/)
-- [What Are Your Moves Tomorrow, November 18, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gtngje/what_are_your_moves_tomorrow_november_18_2024/)
-- [CGC and ACRHF losing license in NYS](https://www.reddit.com/r/wallstreetbets/comments/1gtlqwk/cgc_and_acrhf_losing_license_in_nys/)
-- [Last week was one of my craziest weeks](https://www.reddit.com/r/wallstreetbets/comments/1gtlodf/last_week_was_one_of_my_craziest_weeks/)
+- [DOJ forcing google to sell chrome](https://www.reddit.com/r/wallstreetbets/comments/1guj4hf/doj_forcing_google_to_sell_chrome/)
+- [Super Micro $SMCI submits Compliance Plan to Nasdaq and has engaged an auditor.](https://www.reddit.com/r/wallstreetbets/comments/1guh3jn/super_micro_smci_submits_compliance_plan_to/)
+- [Can you find the moment that I discovered options?](https://www.reddit.com/r/wallstreetbets/comments/1gugekn/can_you_find_the_moment_that_i_discovered_options/)
+- [&lpar;50k YOLO&rpar; The Walmart Tariff Gambit](https://www.reddit.com/r/wallstreetbets/comments/1gug9dp/50k_yolo_the_walmart_tariff_gambit/)
+- [MicroStrategy Announces Proposed Private Offering of $1.75B of Convertible Senior Notes](https://www.reddit.com/r/wallstreetbets/comments/1gufmfa/microstrategy_announces_proposed_private_offering/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
