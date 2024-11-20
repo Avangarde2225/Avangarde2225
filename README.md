@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DOJ forcing google to sell chrome](https://www.reddit.com/r/wallstreetbets/comments/1guj4hf/doj_forcing_google_to_sell_chrome/)
-- [Super Micro $SMCI submits Compliance Plan to Nasdaq and has engaged an auditor.](https://www.reddit.com/r/wallstreetbets/comments/1guh3jn/super_micro_smci_submits_compliance_plan_to/)
-- [Can you find the moment that I discovered options?](https://www.reddit.com/r/wallstreetbets/comments/1gugekn/can_you_find_the_moment_that_i_discovered_options/)
-- [&lpar;50k YOLO&rpar; The Walmart Tariff Gambit](https://www.reddit.com/r/wallstreetbets/comments/1gug9dp/50k_yolo_the_walmart_tariff_gambit/)
-- [MicroStrategy Announces Proposed Private Offering of $1.75B of Convertible Senior Notes](https://www.reddit.com/r/wallstreetbets/comments/1gufmfa/microstrategy_announces_proposed_private_offering/)
+- [RXRX $44k position](https://www.reddit.com/r/wallstreetbets/comments/1gvau4j/rxrx_44k_position/)
+- [Former senior manager of Federal Reserve Bank of Richmond pleads guilty to insider trading and making false statements](https://www.reddit.com/r/wallstreetbets/comments/1gva5k5/former_senior_manager_of_federal_reserve_bank_of/)
+- [Yolo 270k mstr](https://www.reddit.com/r/wallstreetbets/comments/1gv9wnj/yolo_270k_mstr/)
+- [What Are Your Moves Tomorrow, November 20, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gv7qs3/what_are_your_moves_tomorrow_november_20_2024/)
+- [Let it $SNOW](https://www.reddit.com/r/wallstreetbets/comments/1gv77n8/let_it_snow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
