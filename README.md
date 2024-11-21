@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RXRX $44k position](https://www.reddit.com/r/wallstreetbets/comments/1gvau4j/rxrx_44k_position/)
-- [Former senior manager of Federal Reserve Bank of Richmond pleads guilty to insider trading and making false statements](https://www.reddit.com/r/wallstreetbets/comments/1gva5k5/former_senior_manager_of_federal_reserve_bank_of/)
-- [Yolo 270k mstr](https://www.reddit.com/r/wallstreetbets/comments/1gv9wnj/yolo_270k_mstr/)
-- [What Are Your Moves Tomorrow, November 20, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gv7qs3/what_are_your_moves_tomorrow_november_20_2024/)
-- [Let it $SNOW](https://www.reddit.com/r/wallstreetbets/comments/1gv77n8/let_it_snow/)
+- [What Are Your Moves Tomorrow, November 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gw0r4t/what_are_your_moves_tomorrow_november_21_2024/)
+- [Snowflake Q3 Earnings: Revenue Beat, EPS Beat, Guidance Raise, AI Acquisition, Anthropic Partnership And More](https://www.reddit.com/r/wallstreetbets/comments/1gw0ouj/snowflake_q3_earnings_revenue_beat_eps_beat/)
+- [oops](https://www.reddit.com/r/wallstreetbets/comments/1gw0ho0/oops/)
+- [Nvidia nearly doubles revenue on strong AI demand](https://www.reddit.com/r/wallstreetbets/comments/1gw06be/nvidia_nearly_doubles_revenue_on_strong_ai_demand/)
+- [Nvidia Forecast Fails to Meet the Loftiest Estimates for AI Star](https://www.reddit.com/r/wallstreetbets/comments/1gvzztd/nvidia_forecast_fails_to_meet_the_loftiest/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
