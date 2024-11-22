@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What Are Your Moves Tomorrow, November 21, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gw0r4t/what_are_your_moves_tomorrow_november_21_2024/)
-- [Snowflake Q3 Earnings: Revenue Beat, EPS Beat, Guidance Raise, AI Acquisition, Anthropic Partnership And More](https://www.reddit.com/r/wallstreetbets/comments/1gw0ouj/snowflake_q3_earnings_revenue_beat_eps_beat/)
-- [oops](https://www.reddit.com/r/wallstreetbets/comments/1gw0ho0/oops/)
-- [Nvidia nearly doubles revenue on strong AI demand](https://www.reddit.com/r/wallstreetbets/comments/1gw06be/nvidia_nearly_doubles_revenue_on_strong_ai_demand/)
-- [Nvidia Forecast Fails to Meet the Loftiest Estimates for AI Star](https://www.reddit.com/r/wallstreetbets/comments/1gvzztd/nvidia_forecast_fails_to_meet_the_loftiest/)
+- [20M Donated my life savings to citron tonight](https://www.reddit.com/r/wallstreetbets/comments/1gwsvdd/20m_donated_my_life_savings_to_citron_tonight/)
+- [Citron short an equity that’s up 500% this year? YOLO $MSTR](https://www.reddit.com/r/wallstreetbets/comments/1gwsukq/citron_short_an_equity_thats_up_500_this_year/)
+- [What Are Your Moves Tomorrow, November 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gwqv58/what_are_your_moves_tomorrow_november_22_2024/)
+- [My first 70x bagger](https://www.reddit.com/r/wallstreetbets/comments/1gwqhp8/my_first_70x_bagger/)
+- [MSTR completed $3 BILLION Offering of Convertible Senior Notes at 0.0% interest to buy Bitcoin](https://www.reddit.com/r/wallstreetbets/comments/1gwqb0m/mstr_completed_3_billion_offering_of_convertible/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
