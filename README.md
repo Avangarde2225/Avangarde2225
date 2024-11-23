@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [20M Donated my life savings to citron tonight](https://www.reddit.com/r/wallstreetbets/comments/1gwsvdd/20m_donated_my_life_savings_to_citron_tonight/)
-- [Citron short an equity that’s up 500% this year? YOLO $MSTR](https://www.reddit.com/r/wallstreetbets/comments/1gwsukq/citron_short_an_equity_thats_up_500_this_year/)
-- [What Are Your Moves Tomorrow, November 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gwqv58/what_are_your_moves_tomorrow_november_22_2024/)
-- [My first 70x bagger](https://www.reddit.com/r/wallstreetbets/comments/1gwqhp8/my_first_70x_bagger/)
-- [MSTR completed $3 BILLION Offering of Convertible Senior Notes at 0.0% interest to buy Bitcoin](https://www.reddit.com/r/wallstreetbets/comments/1gwqb0m/mstr_completed_3_billion_offering_of_convertible/)
+- [ty LUNR 🫶](https://www.reddit.com/r/wallstreetbets/comments/1gxkngm/ty_lunr/)
+- [Time to delete the RH app 😂](https://www.reddit.com/r/wallstreetbets/comments/1gxijdw/time_to_delete_the_rh_app/)
+- [Weekend Discussion Thread for the Weekend of November 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gxi63t/weekend_discussion_thread_for_the_weekend_of/)
+- [Google is going nowhere . Time to get this to 200](https://www.reddit.com/r/wallstreetbets/comments/1gxgrru/google_is_going_nowhere_time_to_get_this_to_200/)
+- [MSTR options chump change gain porn](https://www.reddit.com/r/wallstreetbets/comments/1gxgref/mstr_options_chump_change_gain_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
