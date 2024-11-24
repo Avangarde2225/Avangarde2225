@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ty LUNR 🫶](https://www.reddit.com/r/wallstreetbets/comments/1gxkngm/ty_lunr/)
-- [Time to delete the RH app 😂](https://www.reddit.com/r/wallstreetbets/comments/1gxijdw/time_to_delete_the_rh_app/)
-- [Weekend Discussion Thread for the Weekend of November 22, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gxi63t/weekend_discussion_thread_for_the_weekend_of/)
-- [Google is going nowhere . Time to get this to 200](https://www.reddit.com/r/wallstreetbets/comments/1gxgrru/google_is_going_nowhere_time_to_get_this_to_200/)
-- [MSTR options chump change gain porn](https://www.reddit.com/r/wallstreetbets/comments/1gxgref/mstr_options_chump_change_gain_porn/)
+- [PALANTIR Short](https://www.reddit.com/r/wallstreetbets/comments/1gycz7p/palantir_short/)
+- [$OSCR - Kushner small cap trade &lpar;$23M in market buys&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gy8ymy/oscr_kushner_small_cap_trade_23m_in_market_buys/)
+- [MARA Holdings is about to ride the MSTR hype, and I am jacked to the tits with calls.](https://www.reddit.com/r/wallstreetbets/comments/1gy7zi8/mara_holdings_is_about_to_ride_the_mstr_hype_and/)
+- [Don&#39;t sleep on CFDs - £3.5k -&gt; £26k](https://www.reddit.com/r/wallstreetbets/comments/1gy71cf/dont_sleep_on_cfds_35k_26k/)
+- [I started this year with $15k, lost it all mid-year during the great bull run, and eventually built it back up to $60k through LEAPS.](https://www.reddit.com/r/wallstreetbets/comments/1gy4hyx/i_started_this_year_with_15k_lost_it_all_midyear/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
