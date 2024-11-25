@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [PALANTIR Short](https://www.reddit.com/r/wallstreetbets/comments/1gycz7p/palantir_short/)
-- [$OSCR - Kushner small cap trade &lpar;$23M in market buys&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1gy8ymy/oscr_kushner_small_cap_trade_23m_in_market_buys/)
-- [MARA Holdings is about to ride the MSTR hype, and I am jacked to the tits with calls.](https://www.reddit.com/r/wallstreetbets/comments/1gy7zi8/mara_holdings_is_about_to_ride_the_mstr_hype_and/)
-- [Don&#39;t sleep on CFDs - £3.5k -&gt; £26k](https://www.reddit.com/r/wallstreetbets/comments/1gy71cf/dont_sleep_on_cfds_35k_26k/)
-- [I started this year with $15k, lost it all mid-year during the great bull run, and eventually built it back up to $60k through LEAPS.](https://www.reddit.com/r/wallstreetbets/comments/1gy4hyx/i_started_this_year_with_15k_lost_it_all_midyear/)
+- [12 day return on $RKLB in one of my accounts. Only wish I had more to put in](https://www.reddit.com/r/wallstreetbets/comments/1gz61u8/12_day_return_on_rklb_in_one_of_my_accounts_only/)
+- [5 Thousand short MSTR](https://www.reddit.com/r/wallstreetbets/comments/1gz4q3t/5_thousand_short_mstr/)
+- [Bought the dip](https://www.reddit.com/r/wallstreetbets/comments/1gz4mh8/bought_the_dip/)
+- [Dont sleep on $toast](https://www.reddit.com/r/wallstreetbets/comments/1gz4h8x/dont_sleep_on_toast/)
+- [LUNR Gains](https://www.reddit.com/r/wallstreetbets/comments/1gz3jlq/lunr_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
