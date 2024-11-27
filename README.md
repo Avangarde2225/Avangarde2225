@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Jensen Huang Me Out To Dry](https://www.reddit.com/r/wallstreetbets/comments/1gzxl2q/jensen_huang_me_out_to_dry/)
-- [I don&#39;t even know what quantum computing is.](https://www.reddit.com/r/wallstreetbets/comments/1gzur1n/i_dont_even_know_what_quantum_computing_is/)
-- [Not Selling Either](https://www.reddit.com/r/wallstreetbets/comments/1gzu0rw/not_selling_either/)
-- [What Are Your Moves Tomorrow, November 26, 2024](https://www.reddit.com/r/wallstreetbets/comments/1gztnvq/what_are_your_moves_tomorrow_november_26_2024/)
-- [ACHR gains](https://www.reddit.com/r/wallstreetbets/comments/1gzskts/achr_gains/)
+- [Watch this. You can actually pinpoint the second his heart rips in half.](https://www.reddit.com/r/wallstreetbets/comments/1h0pqun/watch_this_you_can_actually_pinpoint_the_second/)
+- [US Navy Awards Rolls Royce $700 million dollar contract $RYCEY](https://www.reddit.com/r/wallstreetbets/comments/1h0omms/us_navy_awards_rolls_royce_700_million_dollar/)
+- [Turned 1k to 1M to now 350k. I will get back to the top. Setback for the Comeback](https://www.reddit.com/r/wallstreetbets/comments/1h0ms07/turned_1k_to_1m_to_now_350k_i_will_get_back_to/)
+- [What Are Your Moves Tomorrow, November 27, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h0mlev/what_are_your_moves_tomorrow_november_27_2024/)
+- [MSTR update for those who keep dming me laughing requesting an update](https://www.reddit.com/r/wallstreetbets/comments/1h0m9bi/mstr_update_for_those_who_keep_dming_me_laughing/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
