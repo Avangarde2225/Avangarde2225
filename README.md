@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Should’ve closed these when I posted last..](https://www.reddit.com/r/wallstreetbets/comments/1h1hjo4/shouldve_closed_these_when_i_posted_last/)
-- [Samsung Adjusts Leadership Position Amidst AI Chip Woes, NVIDIA Corporation &lpar;NVDA&rpar; Targets AI Memory Chip Certification](https://www.reddit.com/r/wallstreetbets/comments/1h1fqs2/samsung_adjusts_leadership_position_amidst_ai/)
-- [Am I dreaming $ARCH](https://www.reddit.com/r/wallstreetbets/comments/1h1f1gf/am_i_dreaming_arch/)
-- [Absolutely Hilarious and we all experience it.](https://www.reddit.com/r/wallstreetbets/comments/1h1ess9/absolutely_hilarious_and_we_all_experience_it/)
-- [What Are Your Moves Tomorrow, November 28, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h1eqpz/what_are_your_moves_tomorrow_november_28_2024/)
+- [Enron is back, where do I invest?](https://www.reddit.com/r/wallstreetbets/comments/1h2960y/enron_is_back_where_do_i_invest/)
+- [hope you have a nice day](https://www.reddit.com/r/wallstreetbets/comments/1h29299/hope_you_have_a_nice_day/)
+- [First Around-the-Clock US Stock Exchange Wins SEC Approval](https://www.reddit.com/r/wallstreetbets/comments/1h288n3/first_aroundtheclock_us_stock_exchange_wins_sec/)
+- [Since the market is closed here are my daily step gains](https://www.reddit.com/r/wallstreetbets/comments/1h25l3n/since_the_market_is_closed_here_are_my_daily_step/)
+- [What Are Your Moves Tomorrow, November 29, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h25k0u/what_are_your_moves_tomorrow_november_29_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
