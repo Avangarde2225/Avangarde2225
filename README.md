@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Finally Hit $100k in Robinhood After Years of Grind](https://www.reddit.com/r/wallstreetbets/comments/1h2y4dg/finally_hit_100k_in_robinhood_after_years_of_grind/)
-- [I love all of you.](https://www.reddit.com/r/wallstreetbets/comments/1h2x47z/i_love_all_of_you/)
-- [Wish I screen capped the call.. ya’ll just saved my Christmas. thanks regards](https://www.reddit.com/r/wallstreetbets/comments/1h2wltx/wish_i_screen_capped_the_call_yall_just_saved_my/)
-- [SEC Approves America&#39;s First 23-Hour Stock Exchange Backed By Steve Cohen For 2025 Launch](https://www.reddit.com/r/wallstreetbets/comments/1h2w1iu/sec_approves_americas_first_23hour_stock_exchange/)
-- [Weekend Discussion Thread for the Weekend of November 29, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h2vnjf/weekend_discussion_thread_for_the_weekend_of/)
+- [All In on SMCI: $6,000,000 Bet Across Interactive Brokers and My Swiss Bank – Am I Crazy or a Genius?](https://www.reddit.com/r/wallstreetbets/comments/1h3pr42/all_in_on_smci_6000000_bet_across_interactive/)
+- [It’s been a week](https://www.reddit.com/r/wallstreetbets/comments/1h3mpvv/its_been_a_week/)
+- [Who Shorted Regional Banks Due to CRE Exposure? How Did It Work Out &amp; Outlook for 2025?](https://www.reddit.com/r/wallstreetbets/comments/1h3lkjx/who_shorted_regional_banks_due_to_cre_exposure/)
+- [Made $21,000 on ACHR shares, when do I sell?](https://www.reddit.com/r/wallstreetbets/comments/1h3kbq4/made_21000_on_achr_shares_when_do_i_sell/)
+- [ACHR Gain Train](https://www.reddit.com/r/wallstreetbets/comments/1h3i7fq/achr_gain_train/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
