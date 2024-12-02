@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [All In on SMCI: $6,000,000 Bet Across Interactive Brokers and My Swiss Bank – Am I Crazy or a Genius?](https://www.reddit.com/r/wallstreetbets/comments/1h3pr42/all_in_on_smci_6000000_bet_across_interactive/)
-- [It’s been a week](https://www.reddit.com/r/wallstreetbets/comments/1h3mpvv/its_been_a_week/)
-- [Who Shorted Regional Banks Due to CRE Exposure? How Did It Work Out &amp; Outlook for 2025?](https://www.reddit.com/r/wallstreetbets/comments/1h3lkjx/who_shorted_regional_banks_due_to_cre_exposure/)
-- [Made $21,000 on ACHR shares, when do I sell?](https://www.reddit.com/r/wallstreetbets/comments/1h3kbq4/made_21000_on_achr_shares_when_do_i_sell/)
-- [ACHR Gain Train](https://www.reddit.com/r/wallstreetbets/comments/1h3i7fq/achr_gain_train/)
+- [Im almost green from my last post!](https://www.reddit.com/r/wallstreetbets/comments/1h4i9uo/im_almost_green_from_my_last_post/)
+- [How do physicians manage conflicts of interest when investing in pharma/biotech?](https://www.reddit.com/r/wallstreetbets/comments/1h4i78r/how_do_physicians_manage_conflicts_of_interest/)
+- [Jacked to the tits on puts - If NASDAQ is red tomorrow I&#39;m 100% booking a porn star](https://www.reddit.com/r/wallstreetbets/comments/1h4gjwj/jacked_to_the_tits_on_puts_if_nasdaq_is_red/)
+- [What Are Your Moves Tomorrow, December 02, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h4dbjj/what_are_your_moves_tomorrow_december_02_2024/)
+- [Started trading in August](https://www.reddit.com/r/wallstreetbets/comments/1h4cop4/started_trading_in_august/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
