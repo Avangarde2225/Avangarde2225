@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Im almost green from my last post!](https://www.reddit.com/r/wallstreetbets/comments/1h4i9uo/im_almost_green_from_my_last_post/)
-- [How do physicians manage conflicts of interest when investing in pharma/biotech?](https://www.reddit.com/r/wallstreetbets/comments/1h4i78r/how_do_physicians_manage_conflicts_of_interest/)
-- [Jacked to the tits on puts - If NASDAQ is red tomorrow I&#39;m 100% booking a porn star](https://www.reddit.com/r/wallstreetbets/comments/1h4gjwj/jacked_to_the_tits_on_puts_if_nasdaq_is_red/)
-- [What Are Your Moves Tomorrow, December 02, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h4dbjj/what_are_your_moves_tomorrow_december_02_2024/)
-- [Started trading in August](https://www.reddit.com/r/wallstreetbets/comments/1h4cop4/started_trading_in_august/)
+- [$PL - Earth Data to Become Increasingly Valuable Under Trump Administration](https://www.reddit.com/r/wallstreetbets/comments/1h59vbt/pl_earth_data_to_become_increasingly_valuable/)
+- [Delaware judge rejects Musk&#39;s record-breaking Tesla pay plan](https://www.reddit.com/r/wallstreetbets/comments/1h5896z/delaware_judge_rejects_musks_recordbreaking_tesla/)
+- [4 Years of Failure](https://www.reddit.com/r/wallstreetbets/comments/1h5878k/4_years_of_failure/)
+- [Musk Record Tesla Pay Package Rejected Again by Delaware Judge](https://www.reddit.com/r/wallstreetbets/comments/1h571ec/musk_record_tesla_pay_package_rejected_again_by/)
+- [What Are Your Moves Tomorrow, December 03, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h55k84/what_are_your_moves_tomorrow_december_03_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
