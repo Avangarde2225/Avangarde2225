@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$PL - Earth Data to Become Increasingly Valuable Under Trump Administration](https://www.reddit.com/r/wallstreetbets/comments/1h59vbt/pl_earth_data_to_become_increasingly_valuable/)
-- [Delaware judge rejects Musk&#39;s record-breaking Tesla pay plan](https://www.reddit.com/r/wallstreetbets/comments/1h5896z/delaware_judge_rejects_musks_recordbreaking_tesla/)
-- [4 Years of Failure](https://www.reddit.com/r/wallstreetbets/comments/1h5878k/4_years_of_failure/)
-- [Musk Record Tesla Pay Package Rejected Again by Delaware Judge](https://www.reddit.com/r/wallstreetbets/comments/1h571ec/musk_record_tesla_pay_package_rejected_again_by/)
-- [What Are Your Moves Tomorrow, December 03, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h55k84/what_are_your_moves_tomorrow_december_03_2024/)
+- [Market in ATH... Again!](https://www.reddit.com/r/wallstreetbets/comments/1h61tfo/market_in_ath_again/)
+- [Tesla Cybertruck workers begin 3-day furlough, signaling demand slowdown](https://www.reddit.com/r/wallstreetbets/comments/1h61srx/tesla_cybertruck_workers_begin_3day_furlough/)
+- [We could be rich](https://www.reddit.com/r/wallstreetbets/comments/1h61s0r/we_could_be_rich/)
+- [Remember to donate this holiday season](https://www.reddit.com/r/wallstreetbets/comments/1h61lyr/remember_to_donate_this_holiday_season/)
+- [Collecting unemployment, sitting here between my girlfriend&#39;s two cats while she&#39;s at work. Fuckin&#39; worthless](https://www.reddit.com/r/wallstreetbets/comments/1h61jyt/collecting_unemployment_sitting_here_between_my/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
