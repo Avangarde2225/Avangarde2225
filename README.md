@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market in ATH... Again!](https://www.reddit.com/r/wallstreetbets/comments/1h61tfo/market_in_ath_again/)
-- [Tesla Cybertruck workers begin 3-day furlough, signaling demand slowdown](https://www.reddit.com/r/wallstreetbets/comments/1h61srx/tesla_cybertruck_workers_begin_3day_furlough/)
-- [We could be rich](https://www.reddit.com/r/wallstreetbets/comments/1h61s0r/we_could_be_rich/)
-- [Remember to donate this holiday season](https://www.reddit.com/r/wallstreetbets/comments/1h61lyr/remember_to_donate_this_holiday_season/)
-- [Collecting unemployment, sitting here between my girlfriend&#39;s two cats while she&#39;s at work. Fuckin&#39; worthless](https://www.reddit.com/r/wallstreetbets/comments/1h61jyt/collecting_unemployment_sitting_here_between_my/)
+- [SOFI and MSTR gains! More upside to go from here!!](https://www.reddit.com/r/wallstreetbets/comments/1h6ue1w/sofi_and_mstr_gains_more_upside_to_go_from_here/)
+- [My Uber driver just checked his portfolio, should I leave?](https://www.reddit.com/r/wallstreetbets/comments/1h6to8b/my_uber_driver_just_checked_his_portfolio_should/)
+- [$CVNA - Carvana and its close relationship with DriveTime](https://www.reddit.com/r/wallstreetbets/comments/1h6tljc/cvna_carvana_and_its_close_relationship_with/)
+- [Mara closes $850 million convertible note offering](https://www.reddit.com/r/wallstreetbets/comments/1h6sya2/mara_closes_850_million_convertible_note_offering/)
+- [NVDA thank you for my 14K profit](https://www.reddit.com/r/wallstreetbets/comments/1h6r68w/nvda_thank_you_for_my_14k_profit/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
