@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SOFI and MSTR gains! More upside to go from here!!](https://www.reddit.com/r/wallstreetbets/comments/1h6ue1w/sofi_and_mstr_gains_more_upside_to_go_from_here/)
-- [My Uber driver just checked his portfolio, should I leave?](https://www.reddit.com/r/wallstreetbets/comments/1h6to8b/my_uber_driver_just_checked_his_portfolio_should/)
-- [$CVNA - Carvana and its close relationship with DriveTime](https://www.reddit.com/r/wallstreetbets/comments/1h6tljc/cvna_carvana_and_its_close_relationship_with/)
-- [Mara closes $850 million convertible note offering](https://www.reddit.com/r/wallstreetbets/comments/1h6sya2/mara_closes_850_million_convertible_note_offering/)
-- [NVDA thank you for my 14K profit](https://www.reddit.com/r/wallstreetbets/comments/1h6r68w/nvda_thank_you_for_my_14k_profit/)
+- [I HATE THE STOCK - MSTR](https://www.reddit.com/r/wallstreetbets/comments/1h7m3zs/i_hate_the_stock_mstr/)
+- [$TSLA $29.4K 400call 12/13 YOLO](https://www.reddit.com/r/wallstreetbets/comments/1h7lka7/tsla_294k_400call_1213_yolo/)
+- [211,000$ Profit in 10 Minutes!](https://www.reddit.com/r/wallstreetbets/comments/1h7l5qs/211000_profit_in_10_minutes/)
+- [80k to 888k in about 1.5 years, leveraging with margin](https://www.reddit.com/r/wallstreetbets/comments/1h7kn77/80k_to_888k_in_about_15_years_leveraging_with/)
+- [Tesla stock pops as Giga Austin visit has BofA bullish](https://www.reddit.com/r/wallstreetbets/comments/1h7jthu/tesla_stock_pops_as_giga_austin_visit_has_bofa/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
