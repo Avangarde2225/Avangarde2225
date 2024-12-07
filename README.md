@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I HATE THE STOCK - MSTR](https://www.reddit.com/r/wallstreetbets/comments/1h7m3zs/i_hate_the_stock_mstr/)
-- [$TSLA $29.4K 400call 12/13 YOLO](https://www.reddit.com/r/wallstreetbets/comments/1h7lka7/tsla_294k_400call_1213_yolo/)
-- [211,000$ Profit in 10 Minutes!](https://www.reddit.com/r/wallstreetbets/comments/1h7l5qs/211000_profit_in_10_minutes/)
-- [80k to 888k in about 1.5 years, leveraging with margin](https://www.reddit.com/r/wallstreetbets/comments/1h7kn77/80k_to_888k_in_about_15_years_leveraging_with/)
-- [Tesla stock pops as Giga Austin visit has BofA bullish](https://www.reddit.com/r/wallstreetbets/comments/1h7jthu/tesla_stock_pops_as_giga_austin_visit_has_bofa/)
+- [$952 to $20k - PLTR](https://www.reddit.com/r/wallstreetbets/comments/1h8eq7i/952_to_20k_pltr/)
+- [$TSLA gain 51.6k](https://www.reddit.com/r/wallstreetbets/comments/1h8d8ux/tsla_gain_516k/)
+- [What are your top picks for 2025](https://www.reddit.com/r/wallstreetbets/comments/1h8c8i2/what_are_your_top_picks_for_2025/)
+- [Weekend Discussion Thread for the Weekend of December 06, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h8bjlp/weekend_discussion_thread_for_the_weekend_of/)
+- [All I needed was cold blooded MURDER in order to get a big win. I love options.](https://www.reddit.com/r/wallstreetbets/comments/1h8awec/all_i_needed_was_cold_blooded_murder_in_order_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
