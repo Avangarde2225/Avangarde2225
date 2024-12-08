@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$952 to $20k - PLTR](https://www.reddit.com/r/wallstreetbets/comments/1h8eq7i/952_to_20k_pltr/)
-- [$TSLA gain 51.6k](https://www.reddit.com/r/wallstreetbets/comments/1h8d8ux/tsla_gain_516k/)
-- [What are your top picks for 2025](https://www.reddit.com/r/wallstreetbets/comments/1h8c8i2/what_are_your_top_picks_for_2025/)
-- [Weekend Discussion Thread for the Weekend of December 06, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h8bjlp/weekend_discussion_thread_for_the_weekend_of/)
-- [All I needed was cold blooded MURDER in order to get a big win. I love options.](https://www.reddit.com/r/wallstreetbets/comments/1h8awec/all_i_needed_was_cold_blooded_murder_in_order_to/)
+- [My portfolio, opened June 2020](https://www.reddit.com/r/wallstreetbets/comments/1h96orq/my_portfolio_opened_june_2020/)
+- [&quot;China’s MicroStrategy&quot; Meitu sells all its Bitcoin and Ethereum: Asia Express](https://www.reddit.com/r/wallstreetbets/comments/1h960xe/chinas_microstrategy_meitu_sells_all_its_bitcoin/)
+- [Quantum Calls - It’s been a good month](https://www.reddit.com/r/wallstreetbets/comments/1h95olv/quantum_calls_its_been_a_good_month/)
+- [College Student with $18 in their checking account. All in.](https://www.reddit.com/r/wallstreetbets/comments/1h92v0w/college_student_with_18_in_their_checking_account/)
+- [Is China banning the export of rare minerals to US that big of a deal?](https://www.reddit.com/r/wallstreetbets/comments/1h90j3m/is_china_banning_the_export_of_rare_minerals_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
