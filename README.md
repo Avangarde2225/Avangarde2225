@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My portfolio, opened June 2020](https://www.reddit.com/r/wallstreetbets/comments/1h96orq/my_portfolio_opened_june_2020/)
-- [&quot;China’s MicroStrategy&quot; Meitu sells all its Bitcoin and Ethereum: Asia Express](https://www.reddit.com/r/wallstreetbets/comments/1h960xe/chinas_microstrategy_meitu_sells_all_its_bitcoin/)
-- [Quantum Calls - It’s been a good month](https://www.reddit.com/r/wallstreetbets/comments/1h95olv/quantum_calls_its_been_a_good_month/)
-- [College Student with $18 in their checking account. All in.](https://www.reddit.com/r/wallstreetbets/comments/1h92v0w/college_student_with_18_in_their_checking_account/)
-- [Is China banning the export of rare minerals to US that big of a deal?](https://www.reddit.com/r/wallstreetbets/comments/1h90j3m/is_china_banning_the_export_of_rare_minerals_to/)
+- [I finally got the hang of it.](https://www.reddit.com/r/wallstreetbets/comments/1h9x3js/i_finally_got_the_hang_of_it/)
+- [China&#39;s domination playbook. How China dominates industry after industry.](https://www.reddit.com/r/wallstreetbets/comments/1h9uc3a/chinas_domination_playbook_how_china_dominates/)
+- [ALL IN 279K BET ON SOUNDHOUND AI IF IT DIPS TO $9](https://www.reddit.com/r/wallstreetbets/comments/1h9sz7u/all_in_279k_bet_on_soundhound_ai_if_it_dips_to_9/)
+- [What Are Your Moves Tomorrow, December 09, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h9smjp/what_are_your_moves_tomorrow_december_09_2024/)
+- [CD Projekt shares rose 20% just this week before of The Witcher 4 trailer at Games Awards 12.12.2024](https://www.reddit.com/r/wallstreetbets/comments/1h9rx9f/cd_projekt_shares_rose_20_just_this_week_before/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
