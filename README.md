@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I finally got the hang of it.](https://www.reddit.com/r/wallstreetbets/comments/1h9x3js/i_finally_got_the_hang_of_it/)
-- [China&#39;s domination playbook. How China dominates industry after industry.](https://www.reddit.com/r/wallstreetbets/comments/1h9uc3a/chinas_domination_playbook_how_china_dominates/)
-- [ALL IN 279K BET ON SOUNDHOUND AI IF IT DIPS TO $9](https://www.reddit.com/r/wallstreetbets/comments/1h9sz7u/all_in_279k_bet_on_soundhound_ai_if_it_dips_to_9/)
-- [What Are Your Moves Tomorrow, December 09, 2024](https://www.reddit.com/r/wallstreetbets/comments/1h9smjp/what_are_your_moves_tomorrow_december_09_2024/)
-- [CD Projekt shares rose 20% just this week before of The Witcher 4 trailer at Games Awards 12.12.2024](https://www.reddit.com/r/wallstreetbets/comments/1h9rx9f/cd_projekt_shares_rose_20_just_this_week_before/)
+- [I’m stupid and bought TSLA puts](https://www.reddit.com/r/wallstreetbets/comments/1hao7rb/im_stupid_and_bought_tsla_puts/)
+- [This is just the beginning… HODL RIVN](https://www.reddit.com/r/wallstreetbets/comments/1han4hf/this_is_just_the_beginning_hodl_rivn/)
+- [100K+ SWINGS DAILY WITH MILLION DOLLAR ACCOUNT ON MARGIN](https://www.reddit.com/r/wallstreetbets/comments/1hamdxf/100k_swings_daily_with_million_dollar_account_on/)
+- [MRNA is simmering](https://www.reddit.com/r/wallstreetbets/comments/1hamdso/mrna_is_simmering/)
+- [UnitedHealth Stock Plunges as Company Faces New Scrutiny After CEO Shooting](https://www.reddit.com/r/wallstreetbets/comments/1hal706/unitedhealth_stock_plunges_as_company_faces_new/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
