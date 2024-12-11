@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I’m stupid and bought TSLA puts](https://www.reddit.com/r/wallstreetbets/comments/1hao7rb/im_stupid_and_bought_tsla_puts/)
-- [This is just the beginning… HODL RIVN](https://www.reddit.com/r/wallstreetbets/comments/1han4hf/this_is_just_the_beginning_hodl_rivn/)
-- [100K+ SWINGS DAILY WITH MILLION DOLLAR ACCOUNT ON MARGIN](https://www.reddit.com/r/wallstreetbets/comments/1hamdxf/100k_swings_daily_with_million_dollar_account_on/)
-- [MRNA is simmering](https://www.reddit.com/r/wallstreetbets/comments/1hamdso/mrna_is_simmering/)
-- [UnitedHealth Stock Plunges as Company Faces New Scrutiny After CEO Shooting](https://www.reddit.com/r/wallstreetbets/comments/1hal706/unitedhealth_stock_plunges_as_company_faces_new/)
+- [90 bucks to 3300. Trade was active less than 40 minutes. GOOGL calls](https://www.reddit.com/r/wallstreetbets/comments/1hbfqdh/90_bucks_to_3300_trade_was_active_less_than_40/)
+- [Reddit to launch AI powered Chat bot, too bad Reddit is already filled with bots](https://www.reddit.com/r/wallstreetbets/comments/1hbfciu/reddit_to_launch_ai_powered_chat_bot_too_bad/)
+- [$1700 -&gt; $7700 | Amazon Calls](https://www.reddit.com/r/wallstreetbets/comments/1hbeytu/1700_7700_amazon_calls/)
+- [Another one bites the dust, GM Cruise is dead](https://www.reddit.com/r/wallstreetbets/comments/1hbebsn/another_one_bites_the_dust_gm_cruise_is_dead/)
+- [SPY opens at 609 tomorrow 🚀 💥](https://www.reddit.com/r/wallstreetbets/comments/1hbcnvc/spy_opens_at_609_tomorrow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
