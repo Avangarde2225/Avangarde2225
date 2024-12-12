@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [90 bucks to 3300. Trade was active less than 40 minutes. GOOGL calls](https://www.reddit.com/r/wallstreetbets/comments/1hbfqdh/90_bucks_to_3300_trade_was_active_less_than_40/)
-- [Reddit to launch AI powered Chat bot, too bad Reddit is already filled with bots](https://www.reddit.com/r/wallstreetbets/comments/1hbfciu/reddit_to_launch_ai_powered_chat_bot_too_bad/)
-- [$1700 -&gt; $7700 | Amazon Calls](https://www.reddit.com/r/wallstreetbets/comments/1hbeytu/1700_7700_amazon_calls/)
-- [Another one bites the dust, GM Cruise is dead](https://www.reddit.com/r/wallstreetbets/comments/1hbebsn/another_one_bites_the_dust_gm_cruise_is_dead/)
-- [SPY opens at 609 tomorrow 🚀 💥](https://www.reddit.com/r/wallstreetbets/comments/1hbcnvc/spy_opens_at_609_tomorrow/)
+- [Took 7 years to get my money back and some.](https://www.reddit.com/r/wallstreetbets/comments/1hc7nko/took_7_years_to_get_my_money_back_and_some/)
+- [Tesla hits the magical number...again](https://www.reddit.com/r/wallstreetbets/comments/1hc6t3o/tesla_hits_the_magical_numberagain/)
+- [Why is Rolls Royce up 700% in 2 years?](https://www.reddit.com/r/wallstreetbets/comments/1hc6kke/why_is_rolls_royce_up_700_in_2_years/)
+- [RIP 🥲](https://www.reddit.com/r/wallstreetbets/comments/1hc680e/rip/)
+- [AMD -6.08% YTD](https://www.reddit.com/r/wallstreetbets/comments/1hc5qa9/amd_608_ytd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
