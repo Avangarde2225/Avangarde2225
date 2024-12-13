@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Took 7 years to get my money back and some.](https://www.reddit.com/r/wallstreetbets/comments/1hc7nko/took_7_years_to_get_my_money_back_and_some/)
-- [Tesla hits the magical number...again](https://www.reddit.com/r/wallstreetbets/comments/1hc6t3o/tesla_hits_the_magical_numberagain/)
-- [Why is Rolls Royce up 700% in 2 years?](https://www.reddit.com/r/wallstreetbets/comments/1hc6kke/why_is_rolls_royce_up_700_in_2_years/)
-- [RIP 🥲](https://www.reddit.com/r/wallstreetbets/comments/1hc680e/rip/)
-- [AMD -6.08% YTD](https://www.reddit.com/r/wallstreetbets/comments/1hc5qa9/amd_608_ytd/)
+- [When will they learn](https://www.reddit.com/r/wallstreetbets/comments/1hczmly/when_will_they_learn/)
+- [When bitcoin hit $100: CNBC 2013 REPORT](https://www.reddit.com/r/wallstreetbets/comments/1hcz01m/when_bitcoin_hit_100_cnbc_2013_report/)
+- [Call me a regard if you want . I’m just Doing it for NANA. INTC](https://www.reddit.com/r/wallstreetbets/comments/1hcyeam/call_me_a_regard_if_you_want_im_just_doing_it_for/)
+- [AVGO 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1hcy0k4/avgo/)
+- [Since 2021, SP500 has consistently performed inversely to investment bank forecasts. Since banks optimistic about 2025, SP500 will 6000 EOY](https://www.reddit.com/r/wallstreetbets/comments/1hcxcvq/since_2021_sp500_has_consistently_performed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
