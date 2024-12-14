@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When will they learn](https://www.reddit.com/r/wallstreetbets/comments/1hczmly/when_will_they_learn/)
-- [When bitcoin hit $100: CNBC 2013 REPORT](https://www.reddit.com/r/wallstreetbets/comments/1hcz01m/when_bitcoin_hit_100_cnbc_2013_report/)
-- [Call me a regard if you want . I’m just Doing it for NANA. INTC](https://www.reddit.com/r/wallstreetbets/comments/1hcyeam/call_me_a_regard_if_you_want_im_just_doing_it_for/)
-- [AVGO 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1hcy0k4/avgo/)
-- [Since 2021, SP500 has consistently performed inversely to investment bank forecasts. Since banks optimistic about 2025, SP500 will 6000 EOY](https://www.reddit.com/r/wallstreetbets/comments/1hcxcvq/since_2021_sp500_has_consistently_performed/)
+- [AMD is ruining my life. Lost 25k](https://www.reddit.com/r/wallstreetbets/comments/1hdoaxu/amd_is_ruining_my_life_lost_25k/)
+- [Palantir Does it Again - Two Air Force Wins!](https://www.reddit.com/r/wallstreetbets/comments/1hdnoo2/palantir_does_it_again_two_air_force_wins/)
+- [4yrs later, we profit. We are so back boyz 😈 😂](https://www.reddit.com/r/wallstreetbets/comments/1hdmnrd/4yrs_later_we_profit_we_are_so_back_boyz/)
+- [Weekend Discussion Thread for the Weekend of December 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hdm40s/weekend_discussion_thread_for_the_weekend_of/)
+- [$9,500 in ACHR CALLS](https://www.reddit.com/r/wallstreetbets/comments/1hdm00h/9500_in_achr_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
