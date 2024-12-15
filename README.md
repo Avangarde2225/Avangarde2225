@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMD is ruining my life. Lost 25k](https://www.reddit.com/r/wallstreetbets/comments/1hdoaxu/amd_is_ruining_my_life_lost_25k/)
-- [Palantir Does it Again - Two Air Force Wins!](https://www.reddit.com/r/wallstreetbets/comments/1hdnoo2/palantir_does_it_again_two_air_force_wins/)
-- [4yrs later, we profit. We are so back boyz 😈 😂](https://www.reddit.com/r/wallstreetbets/comments/1hdmnrd/4yrs_later_we_profit_we_are_so_back_boyz/)
-- [Weekend Discussion Thread for the Weekend of December 13, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hdm40s/weekend_discussion_thread_for_the_weekend_of/)
-- [$9,500 in ACHR CALLS](https://www.reddit.com/r/wallstreetbets/comments/1hdm00h/9500_in_achr_calls/)
+- [AVGO 133$-1620$](https://www.reddit.com/r/wallstreetbets/comments/1heg6zo/avgo_1331620/)
+- [$350 to $2300 AVGO Call](https://www.reddit.com/r/wallstreetbets/comments/1heevu1/350_to_2300_avgo_call/)
+- [We can corner the Nasdaq 100](https://www.reddit.com/r/wallstreetbets/comments/1heelcy/we_can_corner_the_nasdaq_100/)
+- [Betting Against the Buck: Why Shorting USD/JPY Could Be the Play of the Year 🐻💰🚀](https://www.reddit.com/r/wallstreetbets/comments/1hedc1v/betting_against_the_buck_why_shorting_usdjpy/)
+- [Everyone&#39;s confused why NVDA didn&#39;t pump after AVGO earnings. Could the market realize that AVGO is actually a serious threat to NVDA?](https://www.reddit.com/r/wallstreetbets/comments/1hec4pn/everyones_confused_why_nvda_didnt_pump_after_avgo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
