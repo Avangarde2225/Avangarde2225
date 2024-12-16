@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AVGO 133$-1620$](https://www.reddit.com/r/wallstreetbets/comments/1heg6zo/avgo_1331620/)
-- [$350 to $2300 AVGO Call](https://www.reddit.com/r/wallstreetbets/comments/1heevu1/350_to_2300_avgo_call/)
-- [We can corner the Nasdaq 100](https://www.reddit.com/r/wallstreetbets/comments/1heelcy/we_can_corner_the_nasdaq_100/)
-- [Betting Against the Buck: Why Shorting USD/JPY Could Be the Play of the Year 🐻💰🚀](https://www.reddit.com/r/wallstreetbets/comments/1hedc1v/betting_against_the_buck_why_shorting_usdjpy/)
-- [Everyone&#39;s confused why NVDA didn&#39;t pump after AVGO earnings. Could the market realize that AVGO is actually a serious threat to NVDA?](https://www.reddit.com/r/wallstreetbets/comments/1hec4pn/everyones_confused_why_nvda_didnt_pump_after_avgo/)
+- [One thing I learned this year is to just trust my gut…](https://www.reddit.com/r/wallstreetbets/comments/1hf6ic6/one_thing_i_learned_this_year_is_to_just_trust_my/)
+- [$20k into MSTR weekly options](https://www.reddit.com/r/wallstreetbets/comments/1hf67qq/20k_into_mstr_weekly_options/)
+- [Should I sell?](https://www.reddit.com/r/wallstreetbets/comments/1hf4gj0/should_i_sell/)
+- [Is this the Santa Rally that you guys were talking about?](https://www.reddit.com/r/wallstreetbets/comments/1hf4gdn/is_this_the_santa_rally_that_you_guys_were/)
+- [AVGO 7 bagger](https://www.reddit.com/r/wallstreetbets/comments/1hf2rgc/avgo_7_bagger/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
