@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One thing I learned this year is to just trust my gut…](https://www.reddit.com/r/wallstreetbets/comments/1hf6ic6/one_thing_i_learned_this_year_is_to_just_trust_my/)
-- [$20k into MSTR weekly options](https://www.reddit.com/r/wallstreetbets/comments/1hf67qq/20k_into_mstr_weekly_options/)
-- [Should I sell?](https://www.reddit.com/r/wallstreetbets/comments/1hf4gj0/should_i_sell/)
-- [Is this the Santa Rally that you guys were talking about?](https://www.reddit.com/r/wallstreetbets/comments/1hf4gdn/is_this_the_santa_rally_that_you_guys_were/)
-- [AVGO 7 bagger](https://www.reddit.com/r/wallstreetbets/comments/1hf2rgc/avgo_7_bagger/)
+- [2025 for Health Insurance Companies](https://www.reddit.com/r/wallstreetbets/comments/1hfww9g/2025_for_health_insurance_companies/)
+- [Thank you daddy Elon for your blessings](https://www.reddit.com/r/wallstreetbets/comments/1hfwras/thank_you_daddy_elon_for_your_blessings/)
+- [FOMC Week](https://www.reddit.com/r/wallstreetbets/comments/1hfvjte/fomc_week/)
+- [Back from the grave](https://www.reddit.com/r/wallstreetbets/comments/1hfvhlx/back_from_the_grave/)
+- [$89k in a week thanks TSLA](https://www.reddit.com/r/wallstreetbets/comments/1hfucc6/89k_in_a_week_thanks_tsla/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
