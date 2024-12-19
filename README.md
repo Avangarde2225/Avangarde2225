@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks God 😇 feeling blessed](https://www.reddit.com/r/wallstreetbets/comments/1hgobnh/thanks_god_feeling_blessed/)
-- [EV “Let’s Fucking Go” Round 2](https://www.reddit.com/r/wallstreetbets/comments/1hgo2tg/ev_lets_fucking_go_round_2/)
-- [My friend told me to sell Quantum Computing covered calls to make extra money 🥲](https://www.reddit.com/r/wallstreetbets/comments/1hgo0vw/my_friend_told_me_to_sell_quantum_computing/)
-- [Quantum bull 🚀](https://www.reddit.com/r/wallstreetbets/comments/1hgnzl9/quantum_bull/)
-- [AVGO 8k—&gt;64k](https://www.reddit.com/r/wallstreetbets/comments/1hgmplm/avgo_8k64k/)
+- [I hope this is okay](https://www.reddit.com/r/wallstreetbets/comments/1hhfil0/i_hope_this_is_okay/)
+- [Greedy little hobbitses](https://www.reddit.com/r/wallstreetbets/comments/1hhf3bl/greedy_little_hobbitses/)
+- [Next time we go full regard, remind me to invest more than $60 bucks](https://www.reddit.com/r/wallstreetbets/comments/1hhdlp0/next_time_we_go_full_regard_remind_me_to_invest/)
+- [Sometimes you buy the dip too early and get rekt](https://www.reddit.com/r/wallstreetbets/comments/1hhdlja/sometimes_you_buy_the_dip_too_early_and_get_rekt/)
+- [JPowell: “Fuck your puts, fuck your calls”](https://www.reddit.com/r/wallstreetbets/comments/1hhd6cy/jpowell_fuck_your_puts_fuck_your_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
