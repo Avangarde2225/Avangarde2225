@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I hope this is okay](https://www.reddit.com/r/wallstreetbets/comments/1hhfil0/i_hope_this_is_okay/)
-- [Greedy little hobbitses](https://www.reddit.com/r/wallstreetbets/comments/1hhf3bl/greedy_little_hobbitses/)
-- [Next time we go full regard, remind me to invest more than $60 bucks](https://www.reddit.com/r/wallstreetbets/comments/1hhdlp0/next_time_we_go_full_regard_remind_me_to_invest/)
-- [Sometimes you buy the dip too early and get rekt](https://www.reddit.com/r/wallstreetbets/comments/1hhdlja/sometimes_you_buy_the_dip_too_early_and_get_rekt/)
-- [JPowell: “Fuck your puts, fuck your calls”](https://www.reddit.com/r/wallstreetbets/comments/1hhd6cy/jpowell_fuck_your_puts_fuck_your_calls/)
+- [Well hell](https://www.reddit.com/r/wallstreetbets/comments/1hi4yv9/well_hell/)
+- [What Are Your Moves Tomorrow, December 20, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hi2w9c/what_are_your_moves_tomorrow_december_20_2024/)
+- [Man who tanked the French economy for 7 years straight joins ASML after finally being sacked as a minister, $ASML is done for 💀💀💀](https://www.reddit.com/r/wallstreetbets/comments/1hi2spj/man_who_tanked_the_french_economy_for_7_years/)
+- [I was having such a great year till December. In December went all in on AMD. 😂](https://www.reddit.com/r/wallstreetbets/comments/1hi1fw3/i_was_having_such_a_great_year_till_december_in/)
+- [If you can’t stomach $200K lose in 3 months you shouldn’t be investing](https://www.reddit.com/r/wallstreetbets/comments/1hi0gc3/if_you_cant_stomach_200k_lose_in_3_months_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
