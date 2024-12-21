@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Well hell](https://www.reddit.com/r/wallstreetbets/comments/1hi4yv9/well_hell/)
-- [What Are Your Moves Tomorrow, December 20, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hi2w9c/what_are_your_moves_tomorrow_december_20_2024/)
-- [Man who tanked the French economy for 7 years straight joins ASML after finally being sacked as a minister, $ASML is done for 💀💀💀](https://www.reddit.com/r/wallstreetbets/comments/1hi2spj/man_who_tanked_the_french_economy_for_7_years/)
-- [I was having such a great year till December. In December went all in on AMD. 😂](https://www.reddit.com/r/wallstreetbets/comments/1hi1fw3/i_was_having_such_a_great_year_till_december_in/)
-- [If you can’t stomach $200K lose in 3 months you shouldn’t be investing](https://www.reddit.com/r/wallstreetbets/comments/1hi0gc3/if_you_cant_stomach_200k_lose_in_3_months_you/)
+- [How did we get here?](https://www.reddit.com/r/wallstreetbets/comments/1hiwl3o/how_did_we_get_here/)
+- [OP Goes on Break](https://www.reddit.com/r/wallstreetbets/comments/1hiw3os/op_goes_on_break/)
+- [$LUNR Intuitive Machines just awarded Near Space Network contract by Nasa &lpar; with 3 other companies &rpar;](https://www.reddit.com/r/wallstreetbets/comments/1hivwr7/lunr_intuitive_machines_just_awarded_near_space/)
+- [Lockheed Martin just awarded 11.7 Billion dollar contract by US Navy](https://www.reddit.com/r/wallstreetbets/comments/1hiv553/lockheed_martin_just_awarded_117_billion_dollar/)
+- [$200K up 53 days.](https://www.reddit.com/r/wallstreetbets/comments/1hiurba/200k_up_53_days/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
