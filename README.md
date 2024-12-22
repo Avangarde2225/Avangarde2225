@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How did we get here?](https://www.reddit.com/r/wallstreetbets/comments/1hiwl3o/how_did_we_get_here/)
-- [OP Goes on Break](https://www.reddit.com/r/wallstreetbets/comments/1hiw3os/op_goes_on_break/)
-- [$LUNR Intuitive Machines just awarded Near Space Network contract by Nasa &lpar; with 3 other companies &rpar;](https://www.reddit.com/r/wallstreetbets/comments/1hivwr7/lunr_intuitive_machines_just_awarded_near_space/)
-- [Lockheed Martin just awarded 11.7 Billion dollar contract by US Navy](https://www.reddit.com/r/wallstreetbets/comments/1hiv553/lockheed_martin_just_awarded_117_billion_dollar/)
-- [$200K up 53 days.](https://www.reddit.com/r/wallstreetbets/comments/1hiurba/200k_up_53_days/)
+- [A 200k pile of shame for Xmas](https://www.reddit.com/r/wallstreetbets/comments/1hjmb3s/a_200k_pile_of_shame_for_xmas/)
+- [I never thought I’d live to see Intel make a comeback](https://www.reddit.com/r/wallstreetbets/comments/1hjlr2v/i_never_thought_id_live_to_see_intel_make_a/)
+- [Eli Lilly got their weight-loss drug approved for sleep apnea as well. ONE DAY after $NVO shit the bed on theirs.](https://www.reddit.com/r/wallstreetbets/comments/1hjjczh/eli_lilly_got_their_weightloss_drug_approved_for/)
+- [SPY should rally 10 points or so over the next three days](https://www.reddit.com/r/wallstreetbets/comments/1hjizbu/spy_should_rally_10_points_or_so_over_the_next/)
+- [Huntington ingalls Industries](https://www.reddit.com/r/wallstreetbets/comments/1hji20o/huntington_ingalls_industries/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
