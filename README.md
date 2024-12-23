@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A 200k pile of shame for Xmas](https://www.reddit.com/r/wallstreetbets/comments/1hjmb3s/a_200k_pile_of_shame_for_xmas/)
-- [I never thought I’d live to see Intel make a comeback](https://www.reddit.com/r/wallstreetbets/comments/1hjlr2v/i_never_thought_id_live_to_see_intel_make_a/)
-- [Eli Lilly got their weight-loss drug approved for sleep apnea as well. ONE DAY after $NVO shit the bed on theirs.](https://www.reddit.com/r/wallstreetbets/comments/1hjjczh/eli_lilly_got_their_weightloss_drug_approved_for/)
-- [SPY should rally 10 points or so over the next three days](https://www.reddit.com/r/wallstreetbets/comments/1hjizbu/spy_should_rally_10_points_or_so_over_the_next/)
-- [Huntington ingalls Industries](https://www.reddit.com/r/wallstreetbets/comments/1hji20o/huntington_ingalls_industries/)
+- [Should I get 10k TSLA or 10K Nvidia tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/1hkbauw/should_i_get_10k_tsla_or_10k_nvidia_tomorrow/)
+- [Nvidia will moon - In Depth Benchmarking tests of AMD MX300 vs Nvidia H100 and H200 by SemiAnalysis](https://www.reddit.com/r/wallstreetbets/comments/1hkb3x4/nvidia_will_moon_in_depth_benchmarking_tests_of/)
+- [Saw the 700+ win—congrats!—I also won &lpar;4,412.2%&rpar; but not as much $$$](https://www.reddit.com/r/wallstreetbets/comments/1hka9m3/saw_the_700_wincongratsi_also_won_44122_but_not/)
+- [It&#39;s pretty wild to say, but Intel now has the single greatest bang for your buck GPU on the market. Sold out everywhere. A total triumph.](https://www.reddit.com/r/wallstreetbets/comments/1hka0ux/its_pretty_wild_to_say_but_intel_now_has_the/)
+- [Does this belong here?](https://www.reddit.com/r/wallstreetbets/comments/1hk954c/does_this_belong_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
