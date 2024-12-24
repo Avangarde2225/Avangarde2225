@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Should I get 10k TSLA or 10K Nvidia tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/1hkbauw/should_i_get_10k_tsla_or_10k_nvidia_tomorrow/)
-- [Nvidia will moon - In Depth Benchmarking tests of AMD MX300 vs Nvidia H100 and H200 by SemiAnalysis](https://www.reddit.com/r/wallstreetbets/comments/1hkb3x4/nvidia_will_moon_in_depth_benchmarking_tests_of/)
-- [Saw the 700+ win—congrats!—I also won &lpar;4,412.2%&rpar; but not as much $$$](https://www.reddit.com/r/wallstreetbets/comments/1hka9m3/saw_the_700_wincongratsi_also_won_44122_but_not/)
-- [It&#39;s pretty wild to say, but Intel now has the single greatest bang for your buck GPU on the market. Sold out everywhere. A total triumph.](https://www.reddit.com/r/wallstreetbets/comments/1hka0ux/its_pretty_wild_to_say_but_intel_now_has_the/)
-- [Does this belong here?](https://www.reddit.com/r/wallstreetbets/comments/1hk954c/does_this_belong_here/)
+- [All I can see 🤦‍♂️](https://www.reddit.com/r/wallstreetbets/comments/1hl1lfq/all_i_can_see/)
+- [Lost all my line of credit in the past year on $RIOT](https://www.reddit.com/r/wallstreetbets/comments/1hkzg54/lost_all_my_line_of_credit_in_the_past_year_on/)
+- [$NVDA IS GOING TO BLOW UP…](https://www.reddit.com/r/wallstreetbets/comments/1hkzdpe/nvda_is_going_to_blow_up/)
+- [Blew up my account and just accepted my new job](https://www.reddit.com/r/wallstreetbets/comments/1hkzdji/blew_up_my_account_and_just_accepted_my_new_job/)
+- [How many TLRY contracts is too many contracts?](https://www.reddit.com/r/wallstreetbets/comments/1hkxdry/how_many_tlry_contracts_is_too_many_contracts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
