@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [All I can see 🤦‍♂️](https://www.reddit.com/r/wallstreetbets/comments/1hl1lfq/all_i_can_see/)
-- [Lost all my line of credit in the past year on $RIOT](https://www.reddit.com/r/wallstreetbets/comments/1hkzg54/lost_all_my_line_of_credit_in_the_past_year_on/)
-- [$NVDA IS GOING TO BLOW UP…](https://www.reddit.com/r/wallstreetbets/comments/1hkzdpe/nvda_is_going_to_blow_up/)
-- [Blew up my account and just accepted my new job](https://www.reddit.com/r/wallstreetbets/comments/1hkzdji/blew_up_my_account_and_just_accepted_my_new_job/)
-- [How many TLRY contracts is too many contracts?](https://www.reddit.com/r/wallstreetbets/comments/1hkxdry/how_many_tlry_contracts_is_too_many_contracts/)
+- [Am I regarded for not selling this? Just want everyone’s input on if I’m gonna wake up behind Wendy’s or with hookers by Friday.](https://www.reddit.com/r/wallstreetbets/comments/1hlo1nz/am_i_regarded_for_not_selling_this_just_want/)
+- [What Are Your Moves Tomorrow, December 25, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hlmcta/what_are_your_moves_tomorrow_december_25_2024/)
+- [First profitable year](https://www.reddit.com/r/wallstreetbets/comments/1hll1cc/first_profitable_year/)
+- [I never buy enough](https://www.reddit.com/r/wallstreetbets/comments/1hlkxia/i_never_buy_enough/)
+- [Rounding out the year](https://www.reddit.com/r/wallstreetbets/comments/1hlkxa0/rounding_out_the_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
