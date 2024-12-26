@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Am I regarded for not selling this? Just want everyone’s input on if I’m gonna wake up behind Wendy’s or with hookers by Friday.](https://www.reddit.com/r/wallstreetbets/comments/1hlo1nz/am_i_regarded_for_not_selling_this_just_want/)
-- [What Are Your Moves Tomorrow, December 25, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hlmcta/what_are_your_moves_tomorrow_december_25_2024/)
-- [First profitable year](https://www.reddit.com/r/wallstreetbets/comments/1hll1cc/first_profitable_year/)
-- [I never buy enough](https://www.reddit.com/r/wallstreetbets/comments/1hlkxia/i_never_buy_enough/)
-- [Rounding out the year](https://www.reddit.com/r/wallstreetbets/comments/1hlkxa0/rounding_out_the_year/)
+- [I did options for the first time this year and stopped](https://www.reddit.com/r/wallstreetbets/comments/1hm9ux0/i_did_options_for_the_first_time_this_year_and/)
+- [What Are Your Moves Tomorrow, December 26, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hm8v7f/what_are_your_moves_tomorrow_december_26_2024/)
+- [The world is changing. And fast. How will this play out in the next 5-10 years?](https://www.reddit.com/r/wallstreetbets/comments/1hm6enb/the_world_is_changing_and_fast_how_will_this_play/)
+- [Apple joins Google antitrust fight to protect $20B search partnership](https://www.reddit.com/r/wallstreetbets/comments/1hm4rkc/apple_joins_google_antitrust_fight_to_protect_20b/)
+- [This must be that Christmas I been waiting for](https://www.reddit.com/r/wallstreetbets/comments/1hm2z93/this_must_be_that_christmas_i_been_waiting_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
