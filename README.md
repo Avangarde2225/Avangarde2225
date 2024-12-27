@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I did options for the first time this year and stopped](https://www.reddit.com/r/wallstreetbets/comments/1hm9ux0/i_did_options_for_the_first_time_this_year_and/)
-- [What Are Your Moves Tomorrow, December 26, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hm8v7f/what_are_your_moves_tomorrow_december_26_2024/)
-- [The world is changing. And fast. How will this play out in the next 5-10 years?](https://www.reddit.com/r/wallstreetbets/comments/1hm6enb/the_world_is_changing_and_fast_how_will_this_play/)
-- [Apple joins Google antitrust fight to protect $20B search partnership](https://www.reddit.com/r/wallstreetbets/comments/1hm4rkc/apple_joins_google_antitrust_fight_to_protect_20b/)
-- [This must be that Christmas I been waiting for](https://www.reddit.com/r/wallstreetbets/comments/1hm2z93/this_must_be_that_christmas_i_been_waiting_for/)
+- [KULR](https://www.reddit.com/r/wallstreetbets/comments/1hmzjbr/kulr/)
+- [HIMS is a ticking time bomb](https://www.reddit.com/r/wallstreetbets/comments/1hmyo6s/hims_is_a_ticking_time_bomb/)
+- [Everyone says happy holidays but I&#39;m not happy!](https://www.reddit.com/r/wallstreetbets/comments/1hmydxf/everyone_says_happy_holidays_but_im_not_happy/)
+- [Still Holding...](https://www.reddit.com/r/wallstreetbets/comments/1hmyb3q/still_holding/)
+- [What Are Your Moves Tomorrow, December 27, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hmxtrf/what_are_your_moves_tomorrow_december_27_2024/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
