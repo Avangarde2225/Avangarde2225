@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [KULR](https://www.reddit.com/r/wallstreetbets/comments/1hmzjbr/kulr/)
-- [HIMS is a ticking time bomb](https://www.reddit.com/r/wallstreetbets/comments/1hmyo6s/hims_is_a_ticking_time_bomb/)
-- [Everyone says happy holidays but I&#39;m not happy!](https://www.reddit.com/r/wallstreetbets/comments/1hmydxf/everyone_says_happy_holidays_but_im_not_happy/)
-- [Still Holding...](https://www.reddit.com/r/wallstreetbets/comments/1hmyb3q/still_holding/)
-- [What Are Your Moves Tomorrow, December 27, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hmxtrf/what_are_your_moves_tomorrow_december_27_2024/)
+- [Intel Guy deleted his account](https://www.reddit.com/r/wallstreetbets/comments/1hnt5gg/intel_guy_deleted_his_account/)
+- [All Stocks, No options](https://www.reddit.com/r/wallstreetbets/comments/1hnswi5/all_stocks_no_options/)
+- [2024 decided its green for me](https://www.reddit.com/r/wallstreetbets/comments/1hnrlwt/2024_decided_its_green_for_me/)
+- [Hell yeah](https://www.reddit.com/r/wallstreetbets/comments/1hnq8l2/hell_yeah/)
+- [SPY took me out the hood](https://www.reddit.com/r/wallstreetbets/comments/1hnp2ep/spy_took_me_out_the_hood/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
