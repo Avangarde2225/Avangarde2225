@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Intel Guy deleted his account](https://www.reddit.com/r/wallstreetbets/comments/1hnt5gg/intel_guy_deleted_his_account/)
-- [All Stocks, No options](https://www.reddit.com/r/wallstreetbets/comments/1hnswi5/all_stocks_no_options/)
-- [2024 decided its green for me](https://www.reddit.com/r/wallstreetbets/comments/1hnrlwt/2024_decided_its_green_for_me/)
-- [Hell yeah](https://www.reddit.com/r/wallstreetbets/comments/1hnq8l2/hell_yeah/)
-- [SPY took me out the hood](https://www.reddit.com/r/wallstreetbets/comments/1hnp2ep/spy_took_me_out_the_hood/)
+- [We still gonna moon Monday right?](https://www.reddit.com/r/wallstreetbets/comments/1hoienw/we_still_gonna_moon_monday_right/)
+- [Let’s Try Again…](https://www.reddit.com/r/wallstreetbets/comments/1hogufm/lets_try_again/)
+- [Longtime WSB lurker. Finally hit those gains y’all talk about. $KULR](https://www.reddit.com/r/wallstreetbets/comments/1hoej7w/longtime_wsb_lurker_finally_hit_those_gains_yall/)
+- [Best Laid Plans](https://www.reddit.com/r/wallstreetbets/comments/1hoa0u4/best_laid_plans/)
+- [Made a lot of progress this year. See you all in 2025!](https://www.reddit.com/r/wallstreetbets/comments/1ho9ru8/made_a_lot_of_progress_this_year_see_you_all_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
