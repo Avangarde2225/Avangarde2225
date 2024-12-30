@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We still gonna moon Monday right?](https://www.reddit.com/r/wallstreetbets/comments/1hoienw/we_still_gonna_moon_monday_right/)
-- [Let’s Try Again…](https://www.reddit.com/r/wallstreetbets/comments/1hogufm/lets_try_again/)
-- [Longtime WSB lurker. Finally hit those gains y’all talk about. $KULR](https://www.reddit.com/r/wallstreetbets/comments/1hoej7w/longtime_wsb_lurker_finally_hit_those_gains_yall/)
-- [Best Laid Plans](https://www.reddit.com/r/wallstreetbets/comments/1hoa0u4/best_laid_plans/)
-- [Made a lot of progress this year. See you all in 2025!](https://www.reddit.com/r/wallstreetbets/comments/1ho9ru8/made_a_lot_of_progress_this_year_see_you_all_in/)
+- [Market Closure in Memorial of Former President Jimmy Carter](https://www.reddit.com/r/wallstreetbets/comments/1hpado5/market_closure_in_memorial_of_former_president/)
+- [Bonds are going to bottom this Monday](https://www.reddit.com/r/wallstreetbets/comments/1hp9dm2/bonds_are_going_to_bottom_this_monday/)
+- [What Are Your Moves Tomorrow, December 30, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hp5mk3/what_are_your_moves_tomorrow_december_30_2024/)
+- [boeing news](https://www.reddit.com/r/wallstreetbets/comments/1hp58wb/boeing_news/)
+- [Fund Manager is One of Us: ‘I Am Not Good at What I Am Doing’](https://www.reddit.com/r/wallstreetbets/comments/1howd8t/fund_manager_is_one_of_us_i_am_not_good_at_what_i/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
