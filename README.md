@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Market Closure in Memorial of Former President Jimmy Carter](https://www.reddit.com/r/wallstreetbets/comments/1hpado5/market_closure_in_memorial_of_former_president/)
-- [Bonds are going to bottom this Monday](https://www.reddit.com/r/wallstreetbets/comments/1hp9dm2/bonds_are_going_to_bottom_this_monday/)
-- [What Are Your Moves Tomorrow, December 30, 2024](https://www.reddit.com/r/wallstreetbets/comments/1hp5mk3/what_are_your_moves_tomorrow_december_30_2024/)
-- [boeing news](https://www.reddit.com/r/wallstreetbets/comments/1hp58wb/boeing_news/)
-- [Fund Manager is One of Us: ‘I Am Not Good at What I Am Doing’](https://www.reddit.com/r/wallstreetbets/comments/1howd8t/fund_manager_is_one_of_us_i_am_not_good_at_what_i/)
+- [Pack it up boys US Treasury just got hacked](https://www.reddit.com/r/wallstreetbets/comments/1hpzb35/pack_it_up_boys_us_treasury_just_got_hacked/)
+- [$ACHR 4DTE Weeklies 180K Yolo 4.0 with context and 362K gain from last Yolo](https://www.reddit.com/r/wallstreetbets/comments/1hpz6fi/achr_4dte_weeklies_180k_yolo_40_with_context_and/)
+- [Another Year, Another 100% Win Rate](https://www.reddit.com/r/wallstreetbets/comments/1hpyyil/another_year_another_100_win_rate/)
+- [Sable Offshore Corp upcoming catalyst and value play $SOC](https://www.reddit.com/r/wallstreetbets/comments/1hpy0f0/sable_offshore_corp_upcoming_catalyst_and_value/)
+- [Enjoy my awful day. My SPX bear credit spreads hit max loss in the last 3 minutes of the market.](https://www.reddit.com/r/wallstreetbets/comments/1hpy0by/enjoy_my_awful_day_my_spx_bear_credit_spreads_hit/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
