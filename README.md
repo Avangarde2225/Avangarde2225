@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Up $20K on my 0DTE puts, I put it into 60 weekly $300 MSTR calls, down $20K now but got till Friday right?](https://www.reddit.com/r/wallstreetbets/comments/1hqqplu/up_20k_on_my_0dte_puts_i_put_it_into_60_weekly/)
-- [$KULR](https://www.reddit.com/r/wallstreetbets/comments/1hqqmrf/kulr/)
-- [Wait for the Cavalry](https://www.reddit.com/r/wallstreetbets/comments/1hqqhks/wait_for_the_cavalry/)
-- [I don’t know how options work](https://www.reddit.com/r/wallstreetbets/comments/1hqptx5/i_dont_know_how_options_work/)
-- [Wendy&#39;s Retirement Plan](https://www.reddit.com/r/wallstreetbets/comments/1hqpf0d/wendys_retirement_plan/)
+- [BULLISH AF](https://www.reddit.com/r/wallstreetbets/comments/1hrh1kw/bullish_af/)
+- [Thoughts and takeaways from my trading year. 468% return with lots of ups and downs.](https://www.reddit.com/r/wallstreetbets/comments/1hrfq3h/thoughts_and_takeaways_from_my_trading_year_468/)
+- [Musk say Tesla investigating Cybertruck fire in Las Vegas.](https://www.reddit.com/r/wallstreetbets/comments/1hrd4zp/musk_say_tesla_investigating_cybertruck_fire_in/)
+- [What Are Your Moves Tomorrow, January 02, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hrcbgd/what_are_your_moves_tomorrow_january_02_2025/)
+- [Gains 🏳️‍🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/1hrcb6s/gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
