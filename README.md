@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BULLISH AF](https://www.reddit.com/r/wallstreetbets/comments/1hrh1kw/bullish_af/)
-- [Thoughts and takeaways from my trading year. 468% return with lots of ups and downs.](https://www.reddit.com/r/wallstreetbets/comments/1hrfq3h/thoughts_and_takeaways_from_my_trading_year_468/)
-- [Musk say Tesla investigating Cybertruck fire in Las Vegas.](https://www.reddit.com/r/wallstreetbets/comments/1hrd4zp/musk_say_tesla_investigating_cybertruck_fire_in/)
-- [What Are Your Moves Tomorrow, January 02, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hrcbgd/what_are_your_moves_tomorrow_january_02_2025/)
-- [Gains 🏳️‍🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/1hrcb6s/gains/)
+- [While history doesn&#39;t exactly repeat itself, it might rhyme.](https://www.reddit.com/r/wallstreetbets/comments/1hs8qgw/while_history_doesnt_exactly_repeat_itself_it/)
+- [I’m half way there](https://www.reddit.com/r/wallstreetbets/comments/1hs6k25/im_half_way_there/)
+- [What Are Your Moves Tomorrow, January 03, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hs48mp/what_are_your_moves_tomorrow_january_03_2025/)
+- [When your timing is off so you double down…](https://www.reddit.com/r/wallstreetbets/comments/1hs3yt7/when_your_timing_is_off_so_you_double_down/)
+- [7k -&gt; 100k gains](https://www.reddit.com/r/wallstreetbets/comments/1hs3rm8/7k_100k_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
