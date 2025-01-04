@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [While history doesn&#39;t exactly repeat itself, it might rhyme.](https://www.reddit.com/r/wallstreetbets/comments/1hs8qgw/while_history_doesnt_exactly_repeat_itself_it/)
-- [I’m half way there](https://www.reddit.com/r/wallstreetbets/comments/1hs6k25/im_half_way_there/)
-- [What Are Your Moves Tomorrow, January 03, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hs48mp/what_are_your_moves_tomorrow_january_03_2025/)
-- [When your timing is off so you double down…](https://www.reddit.com/r/wallstreetbets/comments/1hs3yt7/when_your_timing_is_off_so_you_double_down/)
-- [7k -&gt; 100k gains](https://www.reddit.com/r/wallstreetbets/comments/1hs3rm8/7k_100k_gains/)
+- [&quot;If we can just flip this line of resistance into support..&quot;](https://www.reddit.com/r/wallstreetbets/comments/1ht15yt/if_we_can_just_flip_this_line_of_resistance_into/)
+- [$CVNA: The Short of the Decade? Here’s Why I’m Holding 150 Puts](https://www.reddit.com/r/wallstreetbets/comments/1hsznjm/cvna_the_short_of_the_decade_heres_why_im_holding/)
+- [Going for a milli this year](https://www.reddit.com/r/wallstreetbets/comments/1hszhft/going_for_a_milli_this_year/)
+- [MicroStrategy targets up to $2 billion capital raise through public offerings of perpetual preferred stock in the first quarter of 2025.](https://www.reddit.com/r/wallstreetbets/comments/1hsygg8/microstrategy_targets_up_to_2_billion_capital/)
+- [Just F’ing Break Even](https://www.reddit.com/r/wallstreetbets/comments/1hsxg6u/just_fing_break_even/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
