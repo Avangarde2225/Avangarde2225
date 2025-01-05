@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;If we can just flip this line of resistance into support..&quot;](https://www.reddit.com/r/wallstreetbets/comments/1ht15yt/if_we_can_just_flip_this_line_of_resistance_into/)
-- [$CVNA: The Short of the Decade? Here’s Why I’m Holding 150 Puts](https://www.reddit.com/r/wallstreetbets/comments/1hsznjm/cvna_the_short_of_the_decade_heres_why_im_holding/)
-- [Going for a milli this year](https://www.reddit.com/r/wallstreetbets/comments/1hszhft/going_for_a_milli_this_year/)
-- [MicroStrategy targets up to $2 billion capital raise through public offerings of perpetual preferred stock in the first quarter of 2025.](https://www.reddit.com/r/wallstreetbets/comments/1hsygg8/microstrategy_targets_up_to_2_billion_capital/)
-- [Just F’ing Break Even](https://www.reddit.com/r/wallstreetbets/comments/1hsxg6u/just_fing_break_even/)
+- [That’s how I felt](https://www.reddit.com/r/wallstreetbets/comments/1htt23m/thats_how_i_felt/)
+- [How you think it&#39;ll go vs. How it goes](https://www.reddit.com/r/wallstreetbets/comments/1htq4s5/how_you_think_itll_go_vs_how_it_goes/)
+- [Carvana Put Question-Here&#39;s my chance to leave Wendy&#39;s dumpster](https://www.reddit.com/r/wallstreetbets/comments/1htpk41/carvana_put_questionheres_my_chance_to_leave/)
+- [1 year, &gt;65 options, &gt;$760k naked put option downside risk &gt;10 calls sold with no upside cap = $7899 earned &lpar;before fees+commish&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1htpaje/1_year_65_options_760k_naked_put_option_downside/)
+- [Been trading this since the beginning of last year](https://www.reddit.com/r/wallstreetbets/comments/1htof6s/been_trading_this_since_the_beginning_of_last_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
