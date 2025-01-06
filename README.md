@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [That’s how I felt](https://www.reddit.com/r/wallstreetbets/comments/1htt23m/thats_how_i_felt/)
-- [How you think it&#39;ll go vs. How it goes](https://www.reddit.com/r/wallstreetbets/comments/1htq4s5/how_you_think_itll_go_vs_how_it_goes/)
-- [Carvana Put Question-Here&#39;s my chance to leave Wendy&#39;s dumpster](https://www.reddit.com/r/wallstreetbets/comments/1htpk41/carvana_put_questionheres_my_chance_to_leave/)
-- [1 year, &gt;65 options, &gt;$760k naked put option downside risk &gt;10 calls sold with no upside cap = $7899 earned &lpar;before fees+commish&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1htpaje/1_year_65_options_760k_naked_put_option_downside/)
-- [Been trading this since the beginning of last year](https://www.reddit.com/r/wallstreetbets/comments/1htof6s/been_trading_this_since_the_beginning_of_last_year/)
+- [Wall Street Journal from Monday April 1, 1991.](https://www.reddit.com/r/wallstreetbets/comments/1huiecp/wall_street_journal_from_monday_april_1_1991/)
+- [2024 Performance Retail vs S&amp;P500](https://www.reddit.com/r/wallstreetbets/comments/1huhoq6/2024_performance_retail_vs_sp500/)
+- [What Are Your Moves Tomorrow, January 06, 2025](https://www.reddit.com/r/wallstreetbets/comments/1huh338/what_are_your_moves_tomorrow_january_06_2025/)
+- [Biden officials issue permit for Perpetua&#39;s Idaho antimony and gold mine - $PPTA gaps up in AH](https://www.reddit.com/r/wallstreetbets/comments/1huglvh/biden_officials_issue_permit_for_perpetuas_idaho/)
+- [Top 25 Darkhorse Bets for 2025](https://www.reddit.com/r/wallstreetbets/comments/1hug03q/top_25_darkhorse_bets_for_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
