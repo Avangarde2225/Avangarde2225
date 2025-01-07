@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wall Street Journal from Monday April 1, 1991.](https://www.reddit.com/r/wallstreetbets/comments/1huiecp/wall_street_journal_from_monday_april_1_1991/)
-- [2024 Performance Retail vs S&amp;P500](https://www.reddit.com/r/wallstreetbets/comments/1huhoq6/2024_performance_retail_vs_sp500/)
-- [What Are Your Moves Tomorrow, January 06, 2025](https://www.reddit.com/r/wallstreetbets/comments/1huh338/what_are_your_moves_tomorrow_january_06_2025/)
-- [Biden officials issue permit for Perpetua&#39;s Idaho antimony and gold mine - $PPTA gaps up in AH](https://www.reddit.com/r/wallstreetbets/comments/1huglvh/biden_officials_issue_permit_for_perpetuas_idaho/)
-- [Top 25 Darkhorse Bets for 2025](https://www.reddit.com/r/wallstreetbets/comments/1hug03q/top_25_darkhorse_bets_for_2025/)
+- [FUBO! Let’s go!](https://www.reddit.com/r/wallstreetbets/comments/1hveir7/fubo_lets_go/)
+- [The Oligarch Index](https://www.reddit.com/r/wallstreetbets/comments/1hvd059/the_oligarch_index/)
+- [What Are Your Moves Tomorrow, January 07, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hv9n3g/what_are_your_moves_tomorrow_january_07_2025/)
+- [Good Month :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1hv9d6n/good_month/)
+- [The current U.S. stock market valuation has reached 2000 and 2021 levels. Will this time be different?](https://www.reddit.com/r/wallstreetbets/comments/1hv91vx/the_current_us_stock_market_valuation_has_reached/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
