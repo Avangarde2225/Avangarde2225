@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [FUBO! Let’s go!](https://www.reddit.com/r/wallstreetbets/comments/1hveir7/fubo_lets_go/)
-- [The Oligarch Index](https://www.reddit.com/r/wallstreetbets/comments/1hvd059/the_oligarch_index/)
-- [What Are Your Moves Tomorrow, January 07, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hv9n3g/what_are_your_moves_tomorrow_january_07_2025/)
-- [Good Month :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1hv9d6n/good_month/)
-- [The current U.S. stock market valuation has reached 2000 and 2021 levels. Will this time be different?](https://www.reddit.com/r/wallstreetbets/comments/1hv91vx/the_current_us_stock_market_valuation_has_reached/)
+- [didn’t think I can go below 0, don’t use margin kids](https://www.reddit.com/r/wallstreetbets/comments/1hw49gn/didnt_think_i_can_go_below_0_dont_use_margin_kids/)
+- [$RDDT Gain $70k-&gt;200k+. “Monopoly on Regards”](https://www.reddit.com/r/wallstreetbets/comments/1hw3v6s/rddt_gain_70k200k_monopoly_on_regards/)
+- [A difference of 24 hours. Lmfao](https://www.reddit.com/r/wallstreetbets/comments/1hw2d9j/a_difference_of_24_hours_lmfao/)
+- [What Are Your Moves Tomorrow, January 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hw1snk/what_are_your_moves_tomorrow_january_08_2025/)
+- [Andddddd there goes a new car! &lpar;And ~1 hour, every day, for 8 month &rpar;](https://www.reddit.com/r/wallstreetbets/comments/1hw1qeh/andddddd_there_goes_a_new_car_and_1_hour_every/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
