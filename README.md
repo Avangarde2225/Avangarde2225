@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [didn’t think I can go below 0, don’t use margin kids](https://www.reddit.com/r/wallstreetbets/comments/1hw49gn/didnt_think_i_can_go_below_0_dont_use_margin_kids/)
-- [$RDDT Gain $70k-&gt;200k+. “Monopoly on Regards”](https://www.reddit.com/r/wallstreetbets/comments/1hw3v6s/rddt_gain_70k200k_monopoly_on_regards/)
-- [A difference of 24 hours. Lmfao](https://www.reddit.com/r/wallstreetbets/comments/1hw2d9j/a_difference_of_24_hours_lmfao/)
-- [What Are Your Moves Tomorrow, January 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hw1snk/what_are_your_moves_tomorrow_january_08_2025/)
-- [Andddddd there goes a new car! &lpar;And ~1 hour, every day, for 8 month &rpar;](https://www.reddit.com/r/wallstreetbets/comments/1hw1qeh/andddddd_there_goes_a_new_car_and_1_hour_every/)
+- [Oh, snap](https://www.reddit.com/r/wallstreetbets/comments/1hwyk6r/oh_snap/)
+- [Lost 70% of my money](https://www.reddit.com/r/wallstreetbets/comments/1hwychy/lost_70_of_my_money/)
+- [Biden to Further Limit Nvidia, AMD AI Chip Exports](https://www.reddit.com/r/wallstreetbets/comments/1hww0t1/biden_to_further_limit_nvidia_amd_ai_chip_exports/)
+- [Ally to End Mortgage Origination, Cut Jobs Across Company](https://www.reddit.com/r/wallstreetbets/comments/1hwuw8w/ally_to_end_mortgage_origination_cut_jobs_across/)
+- [What Are Your Moves Tomorrow, January 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hwuquo/what_are_your_moves_tomorrow_january_09_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
