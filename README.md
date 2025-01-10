@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Oh, snap](https://www.reddit.com/r/wallstreetbets/comments/1hwyk6r/oh_snap/)
-- [Lost 70% of my money](https://www.reddit.com/r/wallstreetbets/comments/1hwychy/lost_70_of_my_money/)
-- [Biden to Further Limit Nvidia, AMD AI Chip Exports](https://www.reddit.com/r/wallstreetbets/comments/1hww0t1/biden_to_further_limit_nvidia_amd_ai_chip_exports/)
-- [Ally to End Mortgage Origination, Cut Jobs Across Company](https://www.reddit.com/r/wallstreetbets/comments/1hwuw8w/ally_to_end_mortgage_origination_cut_jobs_across/)
-- [What Are Your Moves Tomorrow, January 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hwuquo/what_are_your_moves_tomorrow_january_09_2025/)
+- [Plz NVDA moon](https://www.reddit.com/r/wallstreetbets/comments/1hxqzmk/plz_nvda_moon/)
+- [🚀 Kraft Heinz Could Be Ready for a Comeback in 2025 🚀](https://www.reddit.com/r/wallstreetbets/comments/1hxqsjz/kraft_heinz_could_be_ready_for_a_comeback_in_2025/)
+- [I see your nvidia and raise you advanced money destroyer](https://www.reddit.com/r/wallstreetbets/comments/1hxq9a9/i_see_your_nvidia_and_raise_you_advanced_money/)
+- [What Are Your Moves Tomorrow, January 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hxn239/what_are_your_moves_tomorrow_january_10_2025/)
+- [How did RGTI public offering &quot;investors&quot; get away with highway robbery?](https://www.reddit.com/r/wallstreetbets/comments/1hxmk1j/how_did_rgti_public_offering_investors_get_away/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
