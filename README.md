@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Plz NVDA moon](https://www.reddit.com/r/wallstreetbets/comments/1hxqzmk/plz_nvda_moon/)
-- [🚀 Kraft Heinz Could Be Ready for a Comeback in 2025 🚀](https://www.reddit.com/r/wallstreetbets/comments/1hxqsjz/kraft_heinz_could_be_ready_for_a_comeback_in_2025/)
-- [I see your nvidia and raise you advanced money destroyer](https://www.reddit.com/r/wallstreetbets/comments/1hxq9a9/i_see_your_nvidia_and_raise_you_advanced_money/)
-- [What Are Your Moves Tomorrow, January 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hxn239/what_are_your_moves_tomorrow_january_10_2025/)
-- [How did RGTI public offering &quot;investors&quot; get away with highway robbery?](https://www.reddit.com/r/wallstreetbets/comments/1hxmk1j/how_did_rgti_public_offering_investors_get_away/)
+- [Here is my breakdown analysis of what happened today.](https://www.reddit.com/r/wallstreetbets/comments/1hyhwjm/here_is_my_breakdown_analysis_of_what_happened/)
+- [Rising Yields Might Result in Total Unrealized Losses on Bank Securities Portfolios to Top $500 Billion](https://www.reddit.com/r/wallstreetbets/comments/1hyhrnk/rising_yields_might_result_in_total_unrealized/)
+- [Goldman Sachs Warns: Are U.S. Stocks on the Brink of a 30% Correction](https://www.reddit.com/r/wallstreetbets/comments/1hygrwh/goldman_sachs_warns_are_us_stocks_on_the_brink_of/)
+- [Weekend Discussion Thread for the Weekend of January 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hyfuv9/weekend_discussion_thread_for_the_weekend_of/)
+- [Rising interest rates mean the mortgage payment on a $500K home is trending back toward recent highs](https://www.reddit.com/r/wallstreetbets/comments/1hyfulw/rising_interest_rates_mean_the_mortgage_payment/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
