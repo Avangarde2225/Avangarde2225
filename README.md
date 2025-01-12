@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Here is my breakdown analysis of what happened today.](https://www.reddit.com/r/wallstreetbets/comments/1hyhwjm/here_is_my_breakdown_analysis_of_what_happened/)
-- [Rising Yields Might Result in Total Unrealized Losses on Bank Securities Portfolios to Top $500 Billion](https://www.reddit.com/r/wallstreetbets/comments/1hyhrnk/rising_yields_might_result_in_total_unrealized/)
-- [Goldman Sachs Warns: Are U.S. Stocks on the Brink of a 30% Correction](https://www.reddit.com/r/wallstreetbets/comments/1hygrwh/goldman_sachs_warns_are_us_stocks_on_the_brink_of/)
-- [Weekend Discussion Thread for the Weekend of January 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hyfuv9/weekend_discussion_thread_for_the_weekend_of/)
-- [Rising interest rates mean the mortgage payment on a $500K home is trending back toward recent highs](https://www.reddit.com/r/wallstreetbets/comments/1hyfulw/rising_interest_rates_mean_the_mortgage_payment/)
+- [Cramer on Intel &lpar;INTC&rpar;: A National Treasure in Need of Preservation Amid Struggles](https://www.reddit.com/r/wallstreetbets/comments/1hz8pu8/cramer_on_intel_intc_a_national_treasure_in_need/)
+- [$CVNA CEO asked to explain boosted profitability specifically - he says &quot;it would take a while to talk about and I would bore you&quot;.](https://www.reddit.com/r/wallstreetbets/comments/1hz8lhv/cvna_ceo_asked_to_explain_boosted_profitability/)
+- [hmm](https://www.reddit.com/r/wallstreetbets/comments/1hz6jq6/hmm/)
+- [AMD killing my gains](https://www.reddit.com/r/wallstreetbets/comments/1hz64bp/amd_killing_my_gains/)
+- [These calls could be 100 Baggers. Turn $1,000 into $100,000](https://www.reddit.com/r/wallstreetbets/comments/1hz3ogs/these_calls_could_be_100_baggers_turn_1000_into/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
