@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cramer on Intel &lpar;INTC&rpar;: A National Treasure in Need of Preservation Amid Struggles](https://www.reddit.com/r/wallstreetbets/comments/1hz8pu8/cramer_on_intel_intc_a_national_treasure_in_need/)
-- [$CVNA CEO asked to explain boosted profitability specifically - he says &quot;it would take a while to talk about and I would bore you&quot;.](https://www.reddit.com/r/wallstreetbets/comments/1hz8lhv/cvna_ceo_asked_to_explain_boosted_profitability/)
-- [hmm](https://www.reddit.com/r/wallstreetbets/comments/1hz6jq6/hmm/)
-- [AMD killing my gains](https://www.reddit.com/r/wallstreetbets/comments/1hz64bp/amd_killing_my_gains/)
-- [These calls could be 100 Baggers. Turn $1,000 into $100,000](https://www.reddit.com/r/wallstreetbets/comments/1hz3ogs/these_calls_could_be_100_baggers_turn_1000_into/)
+- [Um, chat, I think I&#39;m addicted to 0DTEs. How is this not free money?](https://www.reddit.com/r/wallstreetbets/comments/1i002wq/um_chat_i_think_im_addicted_to_0dtes_how_is_this/)
+- [Is Inflation back in 2025?](https://www.reddit.com/r/wallstreetbets/comments/1hzxr2l/is_inflation_back_in_2025/)
+- [What Are Your Moves Tomorrow, January 13, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hzwrft/what_are_your_moves_tomorrow_january_13_2025/)
+- [$META and $GOOG](https://www.reddit.com/r/wallstreetbets/comments/1hzplis/meta_and_goog/)
+- [Weekly Earnings Thread 1/13 - 1/17](https://www.reddit.com/r/wallstreetbets/comments/1hzmmfc/weekly_earnings_thread_113_117/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
