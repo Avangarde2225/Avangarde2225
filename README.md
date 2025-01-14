@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Um, chat, I think I&#39;m addicted to 0DTEs. How is this not free money?](https://www.reddit.com/r/wallstreetbets/comments/1i002wq/um_chat_i_think_im_addicted_to_0dtes_how_is_this/)
-- [Is Inflation back in 2025?](https://www.reddit.com/r/wallstreetbets/comments/1hzxr2l/is_inflation_back_in_2025/)
-- [What Are Your Moves Tomorrow, January 13, 2025](https://www.reddit.com/r/wallstreetbets/comments/1hzwrft/what_are_your_moves_tomorrow_january_13_2025/)
-- [$META and $GOOG](https://www.reddit.com/r/wallstreetbets/comments/1hzplis/meta_and_goog/)
-- [Weekly Earnings Thread 1/13 - 1/17](https://www.reddit.com/r/wallstreetbets/comments/1hzmmfc/weekly_earnings_thread_113_117/)
+- [China Discusses Sale of TikTok US to Musk as One Possible Option](https://www.reddit.com/r/wallstreetbets/comments/1i0sxij/china_discusses_sale_of_tiktok_us_to_musk_as_one/)
+- [I can&#39;t with this bipolar ass market](https://www.reddit.com/r/wallstreetbets/comments/1i0ro8z/i_cant_with_this_bipolar_ass_market/)
+- [Do I get a medal for this](https://www.reddit.com/r/wallstreetbets/comments/1i0rmtf/do_i_get_a_medal_for_this/)
+- [THANKS DJT DD GUY](https://www.reddit.com/r/wallstreetbets/comments/1i0rddy/thanks_djt_dd_guy/)
+- [Robinhood to pay $45M in penalties for violating over 10 securities laws, including failures in reporting, recordkeeping, reg SHO compliance](https://www.reddit.com/r/wallstreetbets/comments/1i0qyp3/robinhood_to_pay_45m_in_penalties_for_violating/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
