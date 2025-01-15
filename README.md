@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [China Discusses Sale of TikTok US to Musk as One Possible Option](https://www.reddit.com/r/wallstreetbets/comments/1i0sxij/china_discusses_sale_of_tiktok_us_to_musk_as_one/)
-- [I can&#39;t with this bipolar ass market](https://www.reddit.com/r/wallstreetbets/comments/1i0ro8z/i_cant_with_this_bipolar_ass_market/)
-- [Do I get a medal for this](https://www.reddit.com/r/wallstreetbets/comments/1i0rmtf/do_i_get_a_medal_for_this/)
-- [THANKS DJT DD GUY](https://www.reddit.com/r/wallstreetbets/comments/1i0rddy/thanks_djt_dd_guy/)
-- [Robinhood to pay $45M in penalties for violating over 10 securities laws, including failures in reporting, recordkeeping, reg SHO compliance](https://www.reddit.com/r/wallstreetbets/comments/1i0qyp3/robinhood_to_pay_45m_in_penalties_for_violating/)
+- [S.E.C. Sues Elon Musk Over Twitter-Related Securities Violations](https://www.reddit.com/r/wallstreetbets/comments/1i1kn55/sec_sues_elon_musk_over_twitterrelated_securities/)
+- [‘Diversification is for know-nothing investors’ — the late billionaire Charlie Munger.](https://www.reddit.com/r/wallstreetbets/comments/1i1k8bj/diversification_is_for_knownothing_investors_the/)
+- [+$53k Overnight $TSLA Calls](https://www.reddit.com/r/wallstreetbets/comments/1i1jpns/53k_overnight_tsla_calls/)
+- [100k SPY yolo](https://www.reddit.com/r/wallstreetbets/comments/1i1hrfb/100k_spy_yolo/)
+- [Tried to tell ya +441%](https://www.reddit.com/r/wallstreetbets/comments/1i1h2sx/tried_to_tell_ya_441/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
