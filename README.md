@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [S.E.C. Sues Elon Musk Over Twitter-Related Securities Violations](https://www.reddit.com/r/wallstreetbets/comments/1i1kn55/sec_sues_elon_musk_over_twitterrelated_securities/)
-- [‘Diversification is for know-nothing investors’ — the late billionaire Charlie Munger.](https://www.reddit.com/r/wallstreetbets/comments/1i1k8bj/diversification_is_for_knownothing_investors_the/)
-- [+$53k Overnight $TSLA Calls](https://www.reddit.com/r/wallstreetbets/comments/1i1jpns/53k_overnight_tsla_calls/)
-- [100k SPY yolo](https://www.reddit.com/r/wallstreetbets/comments/1i1hrfb/100k_spy_yolo/)
-- [Tried to tell ya +441%](https://www.reddit.com/r/wallstreetbets/comments/1i1h2sx/tried_to_tell_ya_441/)
+- [Short Seller Hindenburg Research to Be Disbanded, Founder Says](https://www.reddit.com/r/wallstreetbets/comments/1i29i9n/short_seller_hindenburg_research_to_be_disbanded/)
+- [Kevin McAleenan Appointed CEO of BigBear.ai previous Acting Secretary of the U.S. Department of Homeland Security $30c 2/21](https://www.reddit.com/r/wallstreetbets/comments/1i28xq5/kevin_mcaleenan_appointed_ceo_of_bigbearai/)
+- [$RGTI CEO: US taxpayers are their main &quot;customers&quot; who pay their &quot;revenue&quot;, need to lower expectations on commercial use](https://www.reddit.com/r/wallstreetbets/comments/1i28m6u/rgti_ceo_us_taxpayers_are_their_main_customers/)
+- [What Are Your Moves Tomorrow, January 16, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i27le1/what_are_your_moves_tomorrow_january_16_2025/)
+- [LA Rental Hits $40,000 a Month as Fires Roil Housing Market](https://www.reddit.com/r/wallstreetbets/comments/1i27hyk/la_rental_hits_40000_a_month_as_fires_roil/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
