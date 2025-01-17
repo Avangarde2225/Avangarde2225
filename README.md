@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Short Seller Hindenburg Research to Be Disbanded, Founder Says](https://www.reddit.com/r/wallstreetbets/comments/1i29i9n/short_seller_hindenburg_research_to_be_disbanded/)
-- [Kevin McAleenan Appointed CEO of BigBear.ai previous Acting Secretary of the U.S. Department of Homeland Security $30c 2/21](https://www.reddit.com/r/wallstreetbets/comments/1i28xq5/kevin_mcaleenan_appointed_ceo_of_bigbearai/)
-- [$RGTI CEO: US taxpayers are their main &quot;customers&quot; who pay their &quot;revenue&quot;, need to lower expectations on commercial use](https://www.reddit.com/r/wallstreetbets/comments/1i28m6u/rgti_ceo_us_taxpayers_are_their_main_customers/)
-- [What Are Your Moves Tomorrow, January 16, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i27le1/what_are_your_moves_tomorrow_january_16_2025/)
-- [LA Rental Hits $40,000 a Month as Fires Roil Housing Market](https://www.reddit.com/r/wallstreetbets/comments/1i27hyk/la_rental_hits_40000_a_month_as_fires_roil/)
+- [Trump Plans to Designate Cryptocurrency as a National Priority](https://www.reddit.com/r/wallstreetbets/comments/1i338ki/trump_plans_to_designate_cryptocurrency_as_a/)
+- [Duolingo shares climb 7% as users swarm to app to learn Mandarin](https://www.reddit.com/r/wallstreetbets/comments/1i331q5/duolingo_shares_climb_7_as_users_swarm_to_app_to/)
+- [Snap shares drop as FTC refers MyAI chatbot complaint to the DOJ](https://www.reddit.com/r/wallstreetbets/comments/1i31onv/snap_shares_drop_as_ftc_refers_myai_chatbot/)
+- [guh...](https://www.reddit.com/r/wallstreetbets/comments/1i2z8uv/guh/)
+- [What Are Your Moves Tomorrow, January 17, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i2z5rd/what_are_your_moves_tomorrow_january_17_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
