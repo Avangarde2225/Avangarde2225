@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump Plans to Designate Cryptocurrency as a National Priority](https://www.reddit.com/r/wallstreetbets/comments/1i338ki/trump_plans_to_designate_cryptocurrency_as_a/)
-- [Duolingo shares climb 7% as users swarm to app to learn Mandarin](https://www.reddit.com/r/wallstreetbets/comments/1i331q5/duolingo_shares_climb_7_as_users_swarm_to_app_to/)
-- [Snap shares drop as FTC refers MyAI chatbot complaint to the DOJ](https://www.reddit.com/r/wallstreetbets/comments/1i31onv/snap_shares_drop_as_ftc_refers_myai_chatbot/)
-- [guh...](https://www.reddit.com/r/wallstreetbets/comments/1i2z8uv/guh/)
-- [What Are Your Moves Tomorrow, January 17, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i2z5rd/what_are_your_moves_tomorrow_january_17_2025/)
+- [Woooo fuck you fridays in full effect](https://www.reddit.com/r/wallstreetbets/comments/1i3tf8a/woooo_fuck_you_fridays_in_full_effect/)
+- [HHS invests nearly $600 million in Moderna’s bird flu vaccine development](https://www.reddit.com/r/wallstreetbets/comments/1i3sc91/hhs_invests_nearly_600_million_in_modernas_bird/)
+- [$470 to 63k in 2 weeks &lpar;ytd&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1i3rvto/470_to_63k_in_2_weeks_ytd/)
+- [Betting $1M on BLOCK &lpar;$SQ&rpar; as a bitcoin mining play](https://www.reddit.com/r/wallstreetbets/comments/1i3r3v5/betting_1m_on_block_sq_as_a_bitcoin_mining_play/)
+- [Just bought puts on Tesla and I&#39;m betting on sell facts Avalanche after the ceremony](https://www.reddit.com/r/wallstreetbets/comments/1i3qv25/just_bought_puts_on_tesla_and_im_betting_on_sell/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
