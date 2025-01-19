@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Woooo fuck you fridays in full effect](https://www.reddit.com/r/wallstreetbets/comments/1i3tf8a/woooo_fuck_you_fridays_in_full_effect/)
-- [HHS invests nearly $600 million in Moderna’s bird flu vaccine development](https://www.reddit.com/r/wallstreetbets/comments/1i3sc91/hhs_invests_nearly_600_million_in_modernas_bird/)
-- [$470 to 63k in 2 weeks &lpar;ytd&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1i3rvto/470_to_63k_in_2_weeks_ytd/)
-- [Betting $1M on BLOCK &lpar;$SQ&rpar; as a bitcoin mining play](https://www.reddit.com/r/wallstreetbets/comments/1i3r3v5/betting_1m_on_block_sq_as_a_bitcoin_mining_play/)
-- [Just bought puts on Tesla and I&#39;m betting on sell facts Avalanche after the ceremony](https://www.reddit.com/r/wallstreetbets/comments/1i3qv25/just_bought_puts_on_tesla_and_im_betting_on_sell/)
+- [Swung 7k of Tesla 1 DTE $420 calls for a $29,000 gain](https://www.reddit.com/r/wallstreetbets/comments/1i4kuzd/swung_7k_of_tesla_1_dte_420_calls_for_a_29000_gain/)
+- [Millionaire Maker Micron: $700k YOLO](https://www.reddit.com/r/wallstreetbets/comments/1i4ifs3/millionaire_maker_micron_700k_yolo/)
+- [100k gain from Bitcoin in 2 minutes](https://www.reddit.com/r/wallstreetbets/comments/1i4g631/100k_gain_from_bitcoin_in_2_minutes/)
+- [So is the INTL buyout rumor going to make this babies print or no? Would you want to hold these Tuesday?](https://www.reddit.com/r/wallstreetbets/comments/1i4f82i/so_is_the_intl_buyout_rumor_going_to_make_this/)
+- [$1.2 million DJT inauguration YOLO. This may ruin my life.](https://www.reddit.com/r/wallstreetbets/comments/1i4emv7/12_million_djt_inauguration_yolo_this_may_ruin_my/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
