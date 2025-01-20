@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Swung 7k of Tesla 1 DTE $420 calls for a $29,000 gain](https://www.reddit.com/r/wallstreetbets/comments/1i4kuzd/swung_7k_of_tesla_1_dte_420_calls_for_a_29000_gain/)
-- [Millionaire Maker Micron: $700k YOLO](https://www.reddit.com/r/wallstreetbets/comments/1i4ifs3/millionaire_maker_micron_700k_yolo/)
-- [100k gain from Bitcoin in 2 minutes](https://www.reddit.com/r/wallstreetbets/comments/1i4g631/100k_gain_from_bitcoin_in_2_minutes/)
-- [So is the INTL buyout rumor going to make this babies print or no? Would you want to hold these Tuesday?](https://www.reddit.com/r/wallstreetbets/comments/1i4f82i/so_is_the_intl_buyout_rumor_going_to_make_this/)
-- [$1.2 million DJT inauguration YOLO. This may ruin my life.](https://www.reddit.com/r/wallstreetbets/comments/1i4emv7/12_million_djt_inauguration_yolo_this_may_ruin_my/)
+- [Guys is the market closed tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1i5drqt/guys_is_the_market_closed_tomorrow/)
+- [What Are Your Moves Tomorrow, January 20, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i58uil/what_are_your_moves_tomorrow_january_20_2025/)
+- [China’s Record Capital-Account Outflows Pile Pressure on Yuan](https://www.reddit.com/r/wallstreetbets/comments/1i56634/chinas_record_capitalaccount_outflows_pile/)
+- [Missed out on CVNA](https://www.reddit.com/r/wallstreetbets/comments/1i52jec/missed_out_on_cvna/)
+- [Largest chip maker recalls massive shipment of chips... Calls or Puts on NVDA?](https://www.reddit.com/r/wallstreetbets/comments/1i51q5q/largest_chip_maker_recalls_massive_shipment_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
