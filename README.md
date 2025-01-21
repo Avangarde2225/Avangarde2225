@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Guys is the market closed tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1i5drqt/guys_is_the_market_closed_tomorrow/)
-- [What Are Your Moves Tomorrow, January 20, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i58uil/what_are_your_moves_tomorrow_january_20_2025/)
-- [China’s Record Capital-Account Outflows Pile Pressure on Yuan](https://www.reddit.com/r/wallstreetbets/comments/1i56634/chinas_record_capitalaccount_outflows_pile/)
-- [Missed out on CVNA](https://www.reddit.com/r/wallstreetbets/comments/1i52jec/missed_out_on_cvna/)
-- [Largest chip maker recalls massive shipment of chips... Calls or Puts on NVDA?](https://www.reddit.com/r/wallstreetbets/comments/1i51q5q/largest_chip_maker_recalls_massive_shipment_of/)
+- [Offering financial advice let me know if you need help with your investing](https://www.reddit.com/r/wallstreetbets/comments/1i65xku/offering_financial_advice_let_me_know_if_you_need/)
+- [Put $META, call $AMZN](https://www.reddit.com/r/wallstreetbets/comments/1i65vbx/put_meta_call_amzn/)
+- [Stay at home mom who hasn&#39;t checked portfolio in 13 years makes much more money than you](https://www.reddit.com/r/wallstreetbets/comments/1i65va0/stay_at_home_mom_who_hasnt_checked_portfolio_in/)
+- [TSLA puts tomorrow, am🔥I Reich 🙋🏻‍♂️?](https://www.reddit.com/r/wallstreetbets/comments/1i65v7h/tsla_puts_tomorrow_ami_reich/)
+- [Trump says he will declare national energy emergency, revoke electric vehicle &#39;mandate&#39;](https://www.reddit.com/r/wallstreetbets/comments/1i64al9/trump_says_he_will_declare_national_energy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
