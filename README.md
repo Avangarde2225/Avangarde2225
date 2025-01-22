@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Offering financial advice let me know if you need help with your investing](https://www.reddit.com/r/wallstreetbets/comments/1i65xku/offering_financial_advice_let_me_know_if_you_need/)
-- [Put $META, call $AMZN](https://www.reddit.com/r/wallstreetbets/comments/1i65vbx/put_meta_call_amzn/)
-- [Stay at home mom who hasn&#39;t checked portfolio in 13 years makes much more money than you](https://www.reddit.com/r/wallstreetbets/comments/1i65va0/stay_at_home_mom_who_hasnt_checked_portfolio_in/)
-- [TSLA puts tomorrow, am🔥I Reich 🙋🏻‍♂️?](https://www.reddit.com/r/wallstreetbets/comments/1i65v7h/tsla_puts_tomorrow_ami_reich/)
-- [Trump says he will declare national energy emergency, revoke electric vehicle &#39;mandate&#39;](https://www.reddit.com/r/wallstreetbets/comments/1i64al9/trump_says_he_will_declare_national_energy/)
+- [$LUNR](https://www.reddit.com/r/wallstreetbets/comments/1i6w3h6/lunr/)
+- [NVIDIA takes the crown from Apple as most valuable company](https://www.reddit.com/r/wallstreetbets/comments/1i6vv7p/nvidia_takes_the_crown_from_apple_as_most/)
+- [🚨BREAKING: Donald Trump announces the launch of Stargate set to invest $500 billion in AI infrastructure and create 100,000 jobs.](https://www.reddit.com/r/wallstreetbets/comments/1i6vk31/breaking_donald_trump_announces_the_launch_of/)
+- [🚀 SOC: Trump&#39;s Executive Order Just Turned California Into The Greatest Regulatory Arbitrage Play of 2025 - A Deep F*cking Value Analysis](https://www.reddit.com/r/wallstreetbets/comments/1i6v4hc/soc_trumps_executive_order_just_turned_california/)
+- [Netflix Earnings](https://www.reddit.com/r/wallstreetbets/comments/1i6uj12/netflix_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
