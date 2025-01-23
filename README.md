@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$LUNR](https://www.reddit.com/r/wallstreetbets/comments/1i6w3h6/lunr/)
-- [NVIDIA takes the crown from Apple as most valuable company](https://www.reddit.com/r/wallstreetbets/comments/1i6vv7p/nvidia_takes_the_crown_from_apple_as_most/)
-- [🚨BREAKING: Donald Trump announces the launch of Stargate set to invest $500 billion in AI infrastructure and create 100,000 jobs.](https://www.reddit.com/r/wallstreetbets/comments/1i6vk31/breaking_donald_trump_announces_the_launch_of/)
-- [🚀 SOC: Trump&#39;s Executive Order Just Turned California Into The Greatest Regulatory Arbitrage Play of 2025 - A Deep F*cking Value Analysis](https://www.reddit.com/r/wallstreetbets/comments/1i6v4hc/soc_trumps_executive_order_just_turned_california/)
-- [Netflix Earnings](https://www.reddit.com/r/wallstreetbets/comments/1i6uj12/netflix_earnings/)
+- [Thanks ORACLE](https://www.reddit.com/r/wallstreetbets/comments/1i7pvaf/thanks_oracle/)
+- [Why $MGNI Will Soar After $NFLX’s Blowout Earnings Yesterday](https://www.reddit.com/r/wallstreetbets/comments/1i7omel/why_mgni_will_soar_after_nflxs_blowout_earnings/)
+- [DJT winnings from Calls then Puts](https://www.reddit.com/r/wallstreetbets/comments/1i7nycc/djt_winnings_from_calls_then_puts/)
+- [ASTS, what doing](https://www.reddit.com/r/wallstreetbets/comments/1i7midn/asts_what_doing/)
+- [$2k&gt;$28k&gt;$250](https://www.reddit.com/r/wallstreetbets/comments/1i7mdi5/2k28k250/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
