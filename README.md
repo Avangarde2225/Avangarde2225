@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks ORACLE](https://www.reddit.com/r/wallstreetbets/comments/1i7pvaf/thanks_oracle/)
-- [Why $MGNI Will Soar After $NFLX’s Blowout Earnings Yesterday](https://www.reddit.com/r/wallstreetbets/comments/1i7omel/why_mgni_will_soar_after_nflxs_blowout_earnings/)
-- [DJT winnings from Calls then Puts](https://www.reddit.com/r/wallstreetbets/comments/1i7nycc/djt_winnings_from_calls_then_puts/)
-- [ASTS, what doing](https://www.reddit.com/r/wallstreetbets/comments/1i7midn/asts_what_doing/)
-- [$2k&gt;$28k&gt;$250](https://www.reddit.com/r/wallstreetbets/comments/1i7mdi5/2k28k250/)
+- [Rolling my 0 DTE $QQQ gains into $SIMO](https://www.reddit.com/r/wallstreetbets/comments/1i8h5pe/rolling_my_0_dte_qqq_gains_into_simo/)
+- [CHYNA](https://www.reddit.com/r/wallstreetbets/comments/1i8fh2w/chyna/)
+- [My first YOLO play](https://www.reddit.com/r/wallstreetbets/comments/1i8f92l/my_first_yolo_play/)
+- [What Are Your Moves Tomorrow, January 24, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i8dtim/what_are_your_moves_tomorrow_january_24_2025/)
+- [Not Grandmas money, but might need to place some tactical life insurance bets to recoup](https://www.reddit.com/r/wallstreetbets/comments/1i8drnj/not_grandmas_money_but_might_need_to_place_some/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
