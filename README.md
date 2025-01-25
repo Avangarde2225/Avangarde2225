@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Rolling my 0 DTE $QQQ gains into $SIMO](https://www.reddit.com/r/wallstreetbets/comments/1i8h5pe/rolling_my_0_dte_qqq_gains_into_simo/)
-- [CHYNA](https://www.reddit.com/r/wallstreetbets/comments/1i8fh2w/chyna/)
-- [My first YOLO play](https://www.reddit.com/r/wallstreetbets/comments/1i8f92l/my_first_yolo_play/)
-- [What Are Your Moves Tomorrow, January 24, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i8dtim/what_are_your_moves_tomorrow_january_24_2025/)
-- [Not Grandmas money, but might need to place some tactical life insurance bets to recoup](https://www.reddit.com/r/wallstreetbets/comments/1i8drnj/not_grandmas_money_but_might_need_to_place_some/)
+- [Meta plans to spend $65 billion on AI investments | Open Source Chinese Rival DeepSeek has Spent $5.6 Million, and Outperforms GPT-4o](https://www.reddit.com/r/wallstreetbets/comments/1i97ncg/meta_plans_to_spend_65_billion_on_ai_investments/)
+- [$6K-&gt;$37k in 3 hours. $MSTR 🐻](https://www.reddit.com/r/wallstreetbets/comments/1i973mm/6k37k_in_3_hours_mstr/)
+- [NASA Invites Media to Second Intuitive Machines &lpar;LUNR&rpar; Launch to Moon](https://www.reddit.com/r/wallstreetbets/comments/1i96crl/nasa_invites_media_to_second_intuitive_machines/)
+- [SPY you cruel mistress](https://www.reddit.com/r/wallstreetbets/comments/1i95uhc/spy_you_cruel_mistress/)
+- [Weekend Discussion Thread for the Weekend of January 24, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i95sym/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
