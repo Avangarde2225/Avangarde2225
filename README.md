@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Meta plans to spend $65 billion on AI investments | Open Source Chinese Rival DeepSeek has Spent $5.6 Million, and Outperforms GPT-4o](https://www.reddit.com/r/wallstreetbets/comments/1i97ncg/meta_plans_to_spend_65_billion_on_ai_investments/)
-- [$6K-&gt;$37k in 3 hours. $MSTR 🐻](https://www.reddit.com/r/wallstreetbets/comments/1i973mm/6k37k_in_3_hours_mstr/)
-- [NASA Invites Media to Second Intuitive Machines &lpar;LUNR&rpar; Launch to Moon](https://www.reddit.com/r/wallstreetbets/comments/1i96crl/nasa_invites_media_to_second_intuitive_machines/)
-- [SPY you cruel mistress](https://www.reddit.com/r/wallstreetbets/comments/1i95uhc/spy_you_cruel_mistress/)
-- [Weekend Discussion Thread for the Weekend of January 24, 2025](https://www.reddit.com/r/wallstreetbets/comments/1i95sym/weekend_discussion_thread_for_the_weekend_of/)
+- [One year of swing trading on 01/31](https://www.reddit.com/r/wallstreetbets/comments/1ia1ef4/one_year_of_swing_trading_on_0131/)
+- [Chinese government is investing 137B in AI over the next 5 years](https://www.reddit.com/r/wallstreetbets/comments/1ia10ki/chinese_government_is_investing_137b_in_ai_over/)
+- [Alright dude....](https://www.reddit.com/r/wallstreetbets/comments/1ia0kui/alright_dude/)
+- [Trying to learn trading and off to a rough start on leverage :/](https://www.reddit.com/r/wallstreetbets/comments/1ia0cx8/trying_to_learn_trading_and_off_to_a_rough_start/)
+- [Oracle and Microsoft are reportedly in talks to take over TikTok](https://www.reddit.com/r/wallstreetbets/comments/1ia0481/oracle_and_microsoft_are_reportedly_in_talks_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
