@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [One year of swing trading on 01/31](https://www.reddit.com/r/wallstreetbets/comments/1ia1ef4/one_year_of_swing_trading_on_0131/)
-- [Chinese government is investing 137B in AI over the next 5 years](https://www.reddit.com/r/wallstreetbets/comments/1ia10ki/chinese_government_is_investing_137b_in_ai_over/)
-- [Alright dude....](https://www.reddit.com/r/wallstreetbets/comments/1ia0kui/alright_dude/)
-- [Trying to learn trading and off to a rough start on leverage :/](https://www.reddit.com/r/wallstreetbets/comments/1ia0cx8/trying_to_learn_trading_and_off_to_a_rough_start/)
-- [Oracle and Microsoft are reportedly in talks to take over TikTok](https://www.reddit.com/r/wallstreetbets/comments/1ia0481/oracle_and_microsoft_are_reportedly_in_talks_to/)
+- [$MGNI Part 2: Why DOJ vs. Google Could Be a Multi-Bagger Opportunity](https://www.reddit.com/r/wallstreetbets/comments/1iaus7i/mgni_part_2_why_doj_vs_google_could_be_a/)
+- [META earnings - who has bet the farm and why?](https://www.reddit.com/r/wallstreetbets/comments/1iaup9c/meta_earnings_who_has_bet_the_farm_and_why/)
+- [My loss of 2024](https://www.reddit.com/r/wallstreetbets/comments/1iatjmu/my_loss_of_2024/)
+- [64k on 550 Tesla leap yolo?](https://www.reddit.com/r/wallstreetbets/comments/1iar5o5/64k_on_550_tesla_leap_yolo/)
+- [What Are Your Moves Tomorrow, January 27, 2025](https://www.reddit.com/r/wallstreetbets/comments/1iaq5ag/what_are_your_moves_tomorrow_january_27_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
