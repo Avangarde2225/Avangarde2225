@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$MGNI Part 2: Why DOJ vs. Google Could Be a Multi-Bagger Opportunity](https://www.reddit.com/r/wallstreetbets/comments/1iaus7i/mgni_part_2_why_doj_vs_google_could_be_a/)
-- [META earnings - who has bet the farm and why?](https://www.reddit.com/r/wallstreetbets/comments/1iaup9c/meta_earnings_who_has_bet_the_farm_and_why/)
-- [My loss of 2024](https://www.reddit.com/r/wallstreetbets/comments/1iatjmu/my_loss_of_2024/)
-- [64k on 550 Tesla leap yolo?](https://www.reddit.com/r/wallstreetbets/comments/1iar5o5/64k_on_550_tesla_leap_yolo/)
-- [What Are Your Moves Tomorrow, January 27, 2025](https://www.reddit.com/r/wallstreetbets/comments/1iaq5ag/what_are_your_moves_tomorrow_january_27_2025/)
+- [It was all a plan](https://www.reddit.com/r/wallstreetbets/comments/1ibnosc/it_was_all_a_plan/)
+- [Sick and tired of these mking reposts](https://www.reddit.com/r/wallstreetbets/comments/1ibn8p1/sick_and_tired_of_these_mking_reposts/)
+- [Nvidia’s $590 Billion DeepSeek Rout Is Largest in Market History](https://www.reddit.com/r/wallstreetbets/comments/1iblv26/nvidias_590_billion_deepseek_rout_is_largest_in/)
+- [Jensen new bio after DeepSeek saga](https://www.reddit.com/r/wallstreetbets/comments/1iblghb/jensen_new_bio_after_deepseek_saga/)
+- [$40k NVDA $130c 1/31](https://www.reddit.com/r/wallstreetbets/comments/1ibl1eu/40k_nvda_130c_131/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
