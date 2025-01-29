@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It was all a plan](https://www.reddit.com/r/wallstreetbets/comments/1ibnosc/it_was_all_a_plan/)
-- [Sick and tired of these mking reposts](https://www.reddit.com/r/wallstreetbets/comments/1ibn8p1/sick_and_tired_of_these_mking_reposts/)
-- [Nvidia’s $590 Billion DeepSeek Rout Is Largest in Market History](https://www.reddit.com/r/wallstreetbets/comments/1iblv26/nvidias_590_billion_deepseek_rout_is_largest_in/)
-- [Jensen new bio after DeepSeek saga](https://www.reddit.com/r/wallstreetbets/comments/1iblghb/jensen_new_bio_after_deepseek_saga/)
-- [$40k NVDA $130c 1/31](https://www.reddit.com/r/wallstreetbets/comments/1ibl1eu/40k_nvda_130c_131/)
+- [REMEMBER, NO MATTER WHAT HAPPENS TOMORROW:](https://www.reddit.com/r/wallstreetbets/comments/1icgtxg/remember_no_matter_what_happens_tomorrow/)
+- [0DTE gambles](https://www.reddit.com/r/wallstreetbets/comments/1icdzlh/0dte_gambles/)
+- [I’m done paying $8 for a latte.](https://www.reddit.com/r/wallstreetbets/comments/1iccbl9/im_done_paying_8_for_a_latte/)
+- [What Are Your Moves Tomorrow, January 29, 2025](https://www.reddit.com/r/wallstreetbets/comments/1icc42x/what_are_your_moves_tomorrow_january_29_2025/)
+- [This was very unexpected](https://www.reddit.com/r/wallstreetbets/comments/1icc1rm/this_was_very_unexpected/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
