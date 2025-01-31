@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [regarded Enron](https://www.reddit.com/r/wallstreetbets/comments/1id7w4y/regarded_enron/)
-- [Got burned and deserved it](https://www.reddit.com/r/wallstreetbets/comments/1id7rf8/got_burned_and_deserved_it/)
-- [26% of TSLA&#39;s earnings this quarter came from unrealized $BTC gains, probably](https://www.reddit.com/r/wallstreetbets/comments/1id6rrk/26_of_tslas_earnings_this_quarter_came_from/)
-- [Meta beats revenue, provides soft guidance](https://www.reddit.com/r/wallstreetbets/comments/1id5mn8/meta_beats_revenue_provides_soft_guidance/)
-- [Tesla earnings are out — here are the numbers](https://www.reddit.com/r/wallstreetbets/comments/1id4nh1/tesla_earnings_are_out_here_are_the_numbers/)
+- [In Nana we trust 👵 INTC 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ie0kum/in_nana_we_trust_intc/)
+- [$ASTS delivered - Data/Voice/Video in one call seamless and no interference.](https://www.reddit.com/r/wallstreetbets/comments/1idzrfe/asts_delivered_datavoicevideo_in_one_call/)
+- [“It’s different this time”](https://www.reddit.com/r/wallstreetbets/comments/1idzlso/its_different_this_time/)
+- [SHOP weeklies](https://www.reddit.com/r/wallstreetbets/comments/1idz06t/shop_weeklies/)
+- [Apple misses on iPhone revenue, sees 11% drop in China sales](https://www.reddit.com/r/wallstreetbets/comments/1idys6e/apple_misses_on_iphone_revenue_sees_11_drop_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
