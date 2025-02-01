@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [In Nana we trust 👵 INTC 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ie0kum/in_nana_we_trust_intc/)
-- [$ASTS delivered - Data/Voice/Video in one call seamless and no interference.](https://www.reddit.com/r/wallstreetbets/comments/1idzrfe/asts_delivered_datavoicevideo_in_one_call/)
-- [“It’s different this time”](https://www.reddit.com/r/wallstreetbets/comments/1idzlso/its_different_this_time/)
-- [SHOP weeklies](https://www.reddit.com/r/wallstreetbets/comments/1idz06t/shop_weeklies/)
-- [Apple misses on iPhone revenue, sees 11% drop in China sales](https://www.reddit.com/r/wallstreetbets/comments/1idys6e/apple_misses_on_iphone_revenue_sees_11_drop_in/)
+- [NVIDIA tanks again? Or….](https://www.reddit.com/r/wallstreetbets/comments/1iettbr/nvidia_tanks_again_or/)
+- [Bought calls 30 minutes before Trump announced tariffs](https://www.reddit.com/r/wallstreetbets/comments/1ies2yv/bought_calls_30_minutes_before_trump_announced/)
+- [I bought $110k worth of Intel stock today](https://www.reddit.com/r/wallstreetbets/comments/1ieqjlq/i_bought_110k_worth_of_intel_stock_today/)
+- [Weekend Discussion Thread for the Weekend of January 31, 2025](https://www.reddit.com/r/wallstreetbets/comments/1iep4gb/weekend_discussion_thread_for_the_weekend_of/)
+- [I&#39;m out, Tariffs saved me today 🐻](https://www.reddit.com/r/wallstreetbets/comments/1ieopvr/im_out_tariffs_saved_me_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
