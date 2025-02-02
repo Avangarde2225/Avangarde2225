@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVIDIA tanks again? Or….](https://www.reddit.com/r/wallstreetbets/comments/1iettbr/nvidia_tanks_again_or/)
-- [Bought calls 30 minutes before Trump announced tariffs](https://www.reddit.com/r/wallstreetbets/comments/1ies2yv/bought_calls_30_minutes_before_trump_announced/)
-- [I bought $110k worth of Intel stock today](https://www.reddit.com/r/wallstreetbets/comments/1ieqjlq/i_bought_110k_worth_of_intel_stock_today/)
-- [Weekend Discussion Thread for the Weekend of January 31, 2025](https://www.reddit.com/r/wallstreetbets/comments/1iep4gb/weekend_discussion_thread_for_the_weekend_of/)
-- [I&#39;m out, Tariffs saved me today 🐻](https://www.reddit.com/r/wallstreetbets/comments/1ieopvr/im_out_tariffs_saved_me_today/)
+- [Despite Meeting With Nvidia CEO, Trump Sticks With Plan to Tariff Foreign Chips](https://www.reddit.com/r/wallstreetbets/comments/1ifjfa2/despite_meeting_with_nvidia_ceo_trump_sticks_with/)
+- [CNN—A Visual Indicator of Potential Impacts of Tariffs👀](https://www.reddit.com/r/wallstreetbets/comments/1ifi6w2/cnna_visual_indicator_of_potential_impacts_of/)
+- [Tariff Plays](https://www.reddit.com/r/wallstreetbets/comments/1ifhr5s/tariff_plays/)
+- [TariffMan is back](https://www.reddit.com/r/wallstreetbets/comments/1iffyp9/tariffman_is_back/)
+- [Jim Cramer said DeepSeek’s threat to NVDA earnings may not be so serious - CNBC](https://www.reddit.com/r/wallstreetbets/comments/1iffse9/jim_cramer_said_deepseeks_threat_to_nvda_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
