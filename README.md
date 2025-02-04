@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [💀](https://www.reddit.com/r/wallstreetbets/comments/1igbvw2/_/)
-- [It’s that time again](https://www.reddit.com/r/wallstreetbets/comments/1igbnzc/its_that_time_again/)
-- [*Seinfeld theme bass*](https://www.reddit.com/r/wallstreetbets/comments/1igbjth/seinfeld_theme_bass/)
-- [S&amp;P drops 2% on futures open](https://www.reddit.com/r/wallstreetbets/comments/1igafdy/sp_drops_2_on_futures_open/)
-- [Step 4 of 6 complete for Intel acquisition.](https://www.reddit.com/r/wallstreetbets/comments/1igab9u/step_4_of_6_complete_for_intel_acquisition/)
+- [Made $18k in less than 1 minute by accidentally sniping mispriced ask](https://www.reddit.com/r/wallstreetbets/comments/1ih48wi/made_18k_in_less_than_1_minute_by_accidentally/)
+- [Tesla Sales Plunge 63% in EU’s Second-Biggest EV Market](https://www.reddit.com/r/wallstreetbets/comments/1ih3z8u/tesla_sales_plunge_63_in_eus_secondbiggest_ev/)
+- [Trump tariffs on Canada, Mexico paused for a month, China duties set to take effect Tuesday](https://www.reddit.com/r/wallstreetbets/comments/1ih2dhc/trump_tariffs_on_canada_mexico_paused_for_a_month/)
+- [Tariff news be like](https://www.reddit.com/r/wallstreetbets/comments/1ih1iwf/tariff_news_be_like/)
+- [Will my PLTR Calls Print?](https://www.reddit.com/r/wallstreetbets/comments/1ih1fph/will_my_pltr_calls_print/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
