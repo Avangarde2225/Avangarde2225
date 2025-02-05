@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Made $18k in less than 1 minute by accidentally sniping mispriced ask](https://www.reddit.com/r/wallstreetbets/comments/1ih48wi/made_18k_in_less_than_1_minute_by_accidentally/)
-- [Tesla Sales Plunge 63% in EU’s Second-Biggest EV Market](https://www.reddit.com/r/wallstreetbets/comments/1ih3z8u/tesla_sales_plunge_63_in_eus_secondbiggest_ev/)
-- [Trump tariffs on Canada, Mexico paused for a month, China duties set to take effect Tuesday](https://www.reddit.com/r/wallstreetbets/comments/1ih2dhc/trump_tariffs_on_canada_mexico_paused_for_a_month/)
-- [Tariff news be like](https://www.reddit.com/r/wallstreetbets/comments/1ih1iwf/tariff_news_be_like/)
-- [Will my PLTR Calls Print?](https://www.reddit.com/r/wallstreetbets/comments/1ih1fph/will_my_pltr_calls_print/)
+- [I just bought AMD and I’m already losing!](https://www.reddit.com/r/wallstreetbets/comments/1ihvfag/i_just_bought_amd_and_im_already_losing/)
+- [AMD reports profit beat, but misses on data center revenue](https://www.reddit.com/r/wallstreetbets/comments/1ihudw9/amd_reports_profit_beat_but_misses_on_data_center/)
+- [Aight AMDikhedz, show yourselves](https://www.reddit.com/r/wallstreetbets/comments/1ihtscw/aight_amdikhedz_show_yourselves/)
+- [$PLTR Gains](https://www.reddit.com/r/wallstreetbets/comments/1iht4ra/pltr_gains/)
+- [Alphabet shares drop on company revenue miss](https://www.reddit.com/r/wallstreetbets/comments/1ihsrqg/alphabet_shares_drop_on_company_revenue_miss/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
