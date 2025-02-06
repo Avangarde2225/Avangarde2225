@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I just bought AMD and I’m already losing!](https://www.reddit.com/r/wallstreetbets/comments/1ihvfag/i_just_bought_amd_and_im_already_losing/)
-- [AMD reports profit beat, but misses on data center revenue](https://www.reddit.com/r/wallstreetbets/comments/1ihudw9/amd_reports_profit_beat_but_misses_on_data_center/)
-- [Aight AMDikhedz, show yourselves](https://www.reddit.com/r/wallstreetbets/comments/1ihtscw/aight_amdikhedz_show_yourselves/)
-- [$PLTR Gains](https://www.reddit.com/r/wallstreetbets/comments/1iht4ra/pltr_gains/)
-- [Alphabet shares drop on company revenue miss](https://www.reddit.com/r/wallstreetbets/comments/1ihsrqg/alphabet_shares_drop_on_company_revenue_miss/)
+- [Most of you aren’t prepared for this scenario:](https://www.reddit.com/r/wallstreetbets/comments/1iin5wv/most_of_you_arent_prepared_for_this_scenario/)
+- [Lost 100.000 € on AMD – Market Makers Played Me Like a Fiddle](https://www.reddit.com/r/wallstreetbets/comments/1iimeb8/lost_100000_on_amd_market_makers_played_me_like_a/)
+- [NVDA TO THE MOON BOYS 🚀 &lpar;14k worth calls YOLO&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1iiley7/nvda_to_the_moon_boys_14k_worth_calls_yolo/)
+- [A Rare, Never Before Sighted, Green Position in AMD](https://www.reddit.com/r/wallstreetbets/comments/1iikx4t/a_rare_never_before_sighted_green_position_in_amd/)
+- [What Are Your Moves Tomorrow, February 06, 2025](https://www.reddit.com/r/wallstreetbets/comments/1iiknf7/what_are_your_moves_tomorrow_february_06_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
