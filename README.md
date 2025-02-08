@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [“Sentiment among retail investors is at record levels, higher than the meme-stock mania of 2021.” -Bloomberg &amp; JP Morgan](https://www.reddit.com/r/wallstreetbets/comments/1ijhlbw/sentiment_among_retail_investors_is_at_record/)
-- [$200K gains from $META. Thank you, Zuck.🙏☺️](https://www.reddit.com/r/wallstreetbets/comments/1ijgyl7/200k_gains_from_meta_thank_you_zuck/)
-- [Crazy Cumback](https://www.reddit.com/r/wallstreetbets/comments/1ijf5rs/crazy_cumback/)
-- [Corsair bag holder from 2020](https://www.reddit.com/r/wallstreetbets/comments/1ijek55/corsair_bag_holder_from_2020/)
-- [Im too scared to buy options](https://www.reddit.com/r/wallstreetbets/comments/1ijdnuo/im_too_scared_to_buy_options/)
+- [Boeing has informed its employees that NASA may cancel Space Launch System contracts](https://www.reddit.com/r/wallstreetbets/comments/1ik88x5/boeing_has_informed_its_employees_that_nasa_may/)
+- [I had the balls to place puts on Tesla and it paid off.](https://www.reddit.com/r/wallstreetbets/comments/1ik7wn3/i_had_the_balls_to_place_puts_on_tesla_and_it/)
+- [US President Donald Trump: “I will announce reciprocal tariffs next week on many countries”](https://www.reddit.com/r/wallstreetbets/comments/1ik7469/us_president_donald_trump_i_will_announce/)
+- [The duality of this sub.](https://www.reddit.com/r/wallstreetbets/comments/1ik6j3b/the_duality_of_this_sub/)
+- [Weekend Discussion Thread for the Weekend of February 07, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ik5i15/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
