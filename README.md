@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Boeing has informed its employees that NASA may cancel Space Launch System contracts](https://www.reddit.com/r/wallstreetbets/comments/1ik88x5/boeing_has_informed_its_employees_that_nasa_may/)
-- [I had the balls to place puts on Tesla and it paid off.](https://www.reddit.com/r/wallstreetbets/comments/1ik7wn3/i_had_the_balls_to_place_puts_on_tesla_and_it/)
-- [US President Donald Trump: “I will announce reciprocal tariffs next week on many countries”](https://www.reddit.com/r/wallstreetbets/comments/1ik7469/us_president_donald_trump_i_will_announce/)
-- [The duality of this sub.](https://www.reddit.com/r/wallstreetbets/comments/1ik6j3b/the_duality_of_this_sub/)
-- [Weekend Discussion Thread for the Weekend of February 07, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ik5i15/weekend_discussion_thread_for_the_weekend_of/)
+- [The Market Giveth, The Market Taketh.](https://www.reddit.com/r/wallstreetbets/comments/1il1m9i/the_market_giveth_the_market_taketh/)
+- [Waiting time to get gold out of Bank of England octuples](https://www.reddit.com/r/wallstreetbets/comments/1il1apa/waiting_time_to_get_gold_out_of_bank_of_england/)
+- [Which companies will benefit from the upcoming AI expenditures?](https://www.reddit.com/r/wallstreetbets/comments/1il0pdy/which_companies_will_benefit_from_the_upcoming_ai/)
+- [this was last Friday. I would have been fine if someone didn&#39;t decide to buy a ton of stocks and put that middle finger onto tesla&#39;s curve.](https://www.reddit.com/r/wallstreetbets/comments/1ikzkhv/this_was_last_friday_i_would_have_been_fine_if/)
+- [Tech megacaps plan to spend more than $300 billion in 2025 as AI race intensifies](https://www.reddit.com/r/wallstreetbets/comments/1ikwpq6/tech_megacaps_plan_to_spend_more_than_300_billion/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
