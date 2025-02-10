@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Market Giveth, The Market Taketh.](https://www.reddit.com/r/wallstreetbets/comments/1il1m9i/the_market_giveth_the_market_taketh/)
-- [Waiting time to get gold out of Bank of England octuples](https://www.reddit.com/r/wallstreetbets/comments/1il1apa/waiting_time_to_get_gold_out_of_bank_of_england/)
-- [Which companies will benefit from the upcoming AI expenditures?](https://www.reddit.com/r/wallstreetbets/comments/1il0pdy/which_companies_will_benefit_from_the_upcoming_ai/)
-- [this was last Friday. I would have been fine if someone didn&#39;t decide to buy a ton of stocks and put that middle finger onto tesla&#39;s curve.](https://www.reddit.com/r/wallstreetbets/comments/1ikzkhv/this_was_last_friday_i_would_have_been_fine_if/)
-- [Tech megacaps plan to spend more than $300 billion in 2025 as AI race intensifies](https://www.reddit.com/r/wallstreetbets/comments/1ikwpq6/tech_megacaps_plan_to_spend_more_than_300_billion/)
+- [WING : Surprise me at 300% gains](https://www.reddit.com/r/wallstreetbets/comments/1iltk6v/wing_surprise_me_at_300_gains/)
+- [Former Chief of Homeland Security under Trump appointed as $BBAI CEO](https://www.reddit.com/r/wallstreetbets/comments/1ils7nn/former_chief_of_homeland_security_under_trump/)
+- [Long on RDDT, but I think this valuation still looks extreme](https://www.reddit.com/r/wallstreetbets/comments/1ilrmf3/long_on_rddt_but_i_think_this_valuation_still/)
+- [Trump Plans to Announce 25% Steel, Aluminum Tariffs on Monday...](https://www.reddit.com/r/wallstreetbets/comments/1ilq4nb/trump_plans_to_announce_25_steel_aluminum_tariffs/)
+- [What Are Your Moves Tomorrow, February 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ilozkl/what_are_your_moves_tomorrow_february_10_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
