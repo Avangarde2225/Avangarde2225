@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WING : Surprise me at 300% gains](https://www.reddit.com/r/wallstreetbets/comments/1iltk6v/wing_surprise_me_at_300_gains/)
-- [Former Chief of Homeland Security under Trump appointed as $BBAI CEO](https://www.reddit.com/r/wallstreetbets/comments/1ils7nn/former_chief_of_homeland_security_under_trump/)
-- [Long on RDDT, but I think this valuation still looks extreme](https://www.reddit.com/r/wallstreetbets/comments/1ilrmf3/long_on_rddt_but_i_think_this_valuation_still/)
-- [Trump Plans to Announce 25% Steel, Aluminum Tariffs on Monday...](https://www.reddit.com/r/wallstreetbets/comments/1ilq4nb/trump_plans_to_announce_25_steel_aluminum_tariffs/)
-- [What Are Your Moves Tomorrow, February 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ilozkl/what_are_your_moves_tomorrow_february_10_2025/)
+- [$1 million bet on RDDT](https://www.reddit.com/r/wallstreetbets/comments/1iml6qo/1_million_bet_on_rddt/)
+- [LUNR, ALL IN!](https://www.reddit.com/r/wallstreetbets/comments/1imkxeo/lunr_all_in/)
+- [Facebook/Meta stock up 16 consecutive days, longest streak ever recorded for a trillion+ dollar megacap](https://www.reddit.com/r/wallstreetbets/comments/1imkshp/facebookmeta_stock_up_16_consecutive_days_longest/)
+- [Trmp signs order imposing 25% steel and aluminum tariffs](https://www.reddit.com/r/wallstreetbets/comments/1imk1xl/trmp_signs_order_imposing_25_steel_and_aluminum/)
+- [Woke up to the biggest one day swing in my life](https://www.reddit.com/r/wallstreetbets/comments/1imjro8/woke_up_to_the_biggest_one_day_swing_in_my_life/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
