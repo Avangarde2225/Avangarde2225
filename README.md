@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$1 million bet on RDDT](https://www.reddit.com/r/wallstreetbets/comments/1iml6qo/1_million_bet_on_rddt/)
-- [LUNR, ALL IN!](https://www.reddit.com/r/wallstreetbets/comments/1imkxeo/lunr_all_in/)
-- [Facebook/Meta stock up 16 consecutive days, longest streak ever recorded for a trillion+ dollar megacap](https://www.reddit.com/r/wallstreetbets/comments/1imkshp/facebookmeta_stock_up_16_consecutive_days_longest/)
-- [Trmp signs order imposing 25% steel and aluminum tariffs](https://www.reddit.com/r/wallstreetbets/comments/1imk1xl/trmp_signs_order_imposing_25_steel_and_aluminum/)
-- [Woke up to the biggest one day swing in my life](https://www.reddit.com/r/wallstreetbets/comments/1imjro8/woke_up_to_the_biggest_one_day_swing_in_my_life/)
+- [Tried day trading today](https://www.reddit.com/r/wallstreetbets/comments/1incb90/tried_day_trading_today/)
+- [I was ready to lose it all](https://www.reddit.com/r/wallstreetbets/comments/1inc8ee/i_was_ready_to_lose_it_all/)
+- [Reddit partners with NYSE to create new data and analytics products](https://www.reddit.com/r/wallstreetbets/comments/1inba2v/reddit_partners_with_nyse_to_create_new_data_and/)
+- [RCAT YOLO](https://www.reddit.com/r/wallstreetbets/comments/1inaq2y/rcat_yolo/)
+- [TSLA 🩳 Gain 💰](https://www.reddit.com/r/wallstreetbets/comments/1inajyk/tsla_gain/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
