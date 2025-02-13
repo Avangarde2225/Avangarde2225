@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tried day trading today](https://www.reddit.com/r/wallstreetbets/comments/1incb90/tried_day_trading_today/)
-- [I was ready to lose it all](https://www.reddit.com/r/wallstreetbets/comments/1inc8ee/i_was_ready_to_lose_it_all/)
-- [Reddit partners with NYSE to create new data and analytics products](https://www.reddit.com/r/wallstreetbets/comments/1inba2v/reddit_partners_with_nyse_to_create_new_data_and/)
-- [RCAT YOLO](https://www.reddit.com/r/wallstreetbets/comments/1inaq2y/rcat_yolo/)
-- [TSLA 🩳 Gain 💰](https://www.reddit.com/r/wallstreetbets/comments/1inajyk/tsla_gain/)
+- [The Trump Administration Might Just Spend $400 Million on &#39;Armored&#39; Teslas](https://www.reddit.com/r/wallstreetbets/comments/1io69s0/the_trump_administration_might_just_spend_400/)
+- [55k loss in a few hours QQQ 0dtes](https://www.reddit.com/r/wallstreetbets/comments/1io5x9e/55k_loss_in_a_few_hours_qqq_0dtes/)
+- [Fuck man, I should have bought RDDT after earnings!!](https://www.reddit.com/r/wallstreetbets/comments/1io53aw/fuck_man_i_should_have_bought_rddt_after_earnings/)
+- [BB Yolo +$255k](https://www.reddit.com/r/wallstreetbets/comments/1io3vsf/bb_yolo_255k/)
+- [Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1io3g8w/am_i_cooked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
