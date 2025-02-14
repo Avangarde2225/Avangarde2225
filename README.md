@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Trump Administration Might Just Spend $400 Million on &#39;Armored&#39; Teslas](https://www.reddit.com/r/wallstreetbets/comments/1io69s0/the_trump_administration_might_just_spend_400/)
-- [55k loss in a few hours QQQ 0dtes](https://www.reddit.com/r/wallstreetbets/comments/1io5x9e/55k_loss_in_a_few_hours_qqq_0dtes/)
-- [Fuck man, I should have bought RDDT after earnings!!](https://www.reddit.com/r/wallstreetbets/comments/1io53aw/fuck_man_i_should_have_bought_rddt_after_earnings/)
-- [BB Yolo +$255k](https://www.reddit.com/r/wallstreetbets/comments/1io3vsf/bb_yolo_255k/)
-- [Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1io3g8w/am_i_cooked/)
+- [Pretty much accurate](https://www.reddit.com/r/wallstreetbets/comments/1ioxqlp/pretty_much_accurate/)
+- [I am going to lose a lot of fucking money](https://www.reddit.com/r/wallstreetbets/comments/1iox4sp/i_am_going_to_lose_a_lot_of_fucking_money/)
+- [Options are digging me out of the hole they put me in](https://www.reddit.com/r/wallstreetbets/comments/1iox37y/options_are_digging_me_out_of_the_hole_they_put/)
+- [APP 450P quick in and out 500% gain](https://www.reddit.com/r/wallstreetbets/comments/1iowjs3/app_450p_quick_in_and_out_500_gain/)
+- [I found out about the power of long term investing &lpar;weeklies&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ioustt/i_found_out_about_the_power_of_long_term/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
