@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Pretty much accurate](https://www.reddit.com/r/wallstreetbets/comments/1ioxqlp/pretty_much_accurate/)
-- [I am going to lose a lot of fucking money](https://www.reddit.com/r/wallstreetbets/comments/1iox4sp/i_am_going_to_lose_a_lot_of_fucking_money/)
-- [Options are digging me out of the hole they put me in](https://www.reddit.com/r/wallstreetbets/comments/1iox37y/options_are_digging_me_out_of_the_hole_they_put/)
-- [APP 450P quick in and out 500% gain](https://www.reddit.com/r/wallstreetbets/comments/1iowjs3/app_450p_quick_in_and_out_500_gain/)
-- [I found out about the power of long term investing &lpar;weeklies&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ioustt/i_found_out_about_the_power_of_long_term/)
+- [I can stop trading for this year](https://www.reddit.com/r/wallstreetbets/comments/1ipo8ve/i_can_stop_trading_for_this_year/)
+- [Open AI Rejects Musks Bid](https://www.reddit.com/r/wallstreetbets/comments/1ipls47/open_ai_rejects_musks_bid/)
+- [71.5K IN 1 MONTH TRADING.](https://www.reddit.com/r/wallstreetbets/comments/1iplpj2/715k_in_1_month_trading/)
+- [20 years of trading – A story about psychology](https://www.reddit.com/r/wallstreetbets/comments/1iplnba/20_years_of_trading_a_story_about_psychology/)
+- [Weekend Discussion Thread for the Weekend of February 14, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ipkse6/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
