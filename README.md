@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I can stop trading for this year](https://www.reddit.com/r/wallstreetbets/comments/1ipo8ve/i_can_stop_trading_for_this_year/)
-- [Open AI Rejects Musks Bid](https://www.reddit.com/r/wallstreetbets/comments/1ipls47/open_ai_rejects_musks_bid/)
-- [71.5K IN 1 MONTH TRADING.](https://www.reddit.com/r/wallstreetbets/comments/1iplpj2/715k_in_1_month_trading/)
-- [20 years of trading – A story about psychology](https://www.reddit.com/r/wallstreetbets/comments/1iplnba/20_years_of_trading_a_story_about_psychology/)
-- [Weekend Discussion Thread for the Weekend of February 14, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ipkse6/weekend_discussion_thread_for_the_weekend_of/)
+- [Merck makes an investment into Moderna: Re a 14Feb25 Holdings Report &lpar;13F-HR&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1iqfhpf/merck_makes_an_investment_into_moderna_re_a/)
+- [$MARA all in](https://www.reddit.com/r/wallstreetbets/comments/1iqe8sd/mara_all_in/)
+- [If she buys, I buy](https://www.reddit.com/r/wallstreetbets/comments/1iqdqso/if_she_buys_i_buy/)
+- [Amazon workers reject union in vote at North Carolina warehouse](https://www.reddit.com/r/wallstreetbets/comments/1iqd87e/amazon_workers_reject_union_in_vote_at_north/)
+- [Upcoming LUNR launch is not fully priced in like you think &lpar;my position linked&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1iqd4yl/upcoming_lunr_launch_is_not_fully_priced_in_like/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
