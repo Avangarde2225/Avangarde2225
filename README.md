@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Merck makes an investment into Moderna: Re a 14Feb25 Holdings Report &lpar;13F-HR&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1iqfhpf/merck_makes_an_investment_into_moderna_re_a/)
-- [$MARA all in](https://www.reddit.com/r/wallstreetbets/comments/1iqe8sd/mara_all_in/)
-- [If she buys, I buy](https://www.reddit.com/r/wallstreetbets/comments/1iqdqso/if_she_buys_i_buy/)
-- [Amazon workers reject union in vote at North Carolina warehouse](https://www.reddit.com/r/wallstreetbets/comments/1iqd87e/amazon_workers_reject_union_in_vote_at_north/)
-- [Upcoming LUNR launch is not fully priced in like you think &lpar;my position linked&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1iqd4yl/upcoming_lunr_launch_is_not_fully_priced_in_like/)
+- [Sundays With JPOW](https://www.reddit.com/r/wallstreetbets/comments/1ir6f0v/sundays_with_jpow/)
+- [TSMC May Acquire 20% Stake in Intel&#39;s Spin-Off, Qualcomm and Broadcom to Invest](https://www.reddit.com/r/wallstreetbets/comments/1ir6cfw/tsmc_may_acquire_20_stake_in_intels_spinoff/)
+- [🚬Hide your BTI, Hide your wife 🚬 British American Tobacco&lpar;BTI&rpar; Bull ThesIs 🚬[YOLO][DD]🚬](https://www.reddit.com/r/wallstreetbets/comments/1ir5mcd/hide_your_bti_hide_your_wife_british_american/)
+- [What Are Your Moves Tomorrow, February 17, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ir2e0o/what_are_your_moves_tomorrow_february_17_2025/)
+- [This sector you&#39;ve never touched is a 10-bagger. [DD]](https://www.reddit.com/r/wallstreetbets/comments/1ir0k5o/this_sector_youve_never_touched_is_a_10bagger_dd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
