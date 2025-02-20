@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A tale as old as time](https://www.reddit.com/r/wallstreetbets/comments/1isr6t0/a_tale_as_old_as_time/)
-- [SMCI means I get to retire](https://www.reddit.com/r/wallstreetbets/comments/1isq9ky/smci_means_i_get_to_retire/)
-- [The worst time of the year for a day trader](https://www.reddit.com/r/wallstreetbets/comments/1iso957/the_worst_time_of_the_year_for_a_day_trader/)
-- [Blackberry &lpar;BB&rpar; is coming back bigly.](https://www.reddit.com/r/wallstreetbets/comments/1iso3ew/blackberry_bb_is_coming_back_bigly/)
-- [Inverse WSB right ? My mom is so proud of me right now 🦍 🍌](https://www.reddit.com/r/wallstreetbets/comments/1isnqpn/inverse_wsb_right_my_mom_is_so_proud_of_me_right/)
+- [Bought $RIVN shares](https://www.reddit.com/r/wallstreetbets/comments/1itjfw4/bought_rivn_shares/)
+- [Yday my turd looked like Alex Karp, so I bought $100 PLTR puts for 7c](https://www.reddit.com/r/wallstreetbets/comments/1itja1p/yday_my_turd_looked_like_alex_karp_so_i_bought/)
+- [IFS 18A process node was shown today to have the same SRAM density as TSMC N2](https://www.reddit.com/r/wallstreetbets/comments/1itixvs/ifs_18a_process_node_was_shown_today_to_have_the/)
+- [PLTR weeklies today](https://www.reddit.com/r/wallstreetbets/comments/1itioj9/pltr_weeklies_today/)
+- [ScamVana](https://www.reddit.com/r/wallstreetbets/comments/1ithztm/scamvana/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
