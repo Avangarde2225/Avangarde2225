@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought $RIVN shares](https://www.reddit.com/r/wallstreetbets/comments/1itjfw4/bought_rivn_shares/)
-- [Yday my turd looked like Alex Karp, so I bought $100 PLTR puts for 7c](https://www.reddit.com/r/wallstreetbets/comments/1itja1p/yday_my_turd_looked_like_alex_karp_so_i_bought/)
-- [IFS 18A process node was shown today to have the same SRAM density as TSMC N2](https://www.reddit.com/r/wallstreetbets/comments/1itixvs/ifs_18a_process_node_was_shown_today_to_have_the/)
-- [PLTR weeklies today](https://www.reddit.com/r/wallstreetbets/comments/1itioj9/pltr_weeklies_today/)
-- [ScamVana](https://www.reddit.com/r/wallstreetbets/comments/1ithztm/scamvana/)
+- [Caught PLTR puts right before the drop 1362%](https://www.reddit.com/r/wallstreetbets/comments/1iudhkc/caught_pltr_puts_right_before_the_drop_1362/)
+- [$500k days, thanks to $CELH](https://www.reddit.com/r/wallstreetbets/comments/1iucmks/500k_days_thanks_to_celh/)
+- [20k gain on $celh](https://www.reddit.com/r/wallstreetbets/comments/1iubht1/20k_gain_on_celh/)
+- [All IN CELH M23](https://www.reddit.com/r/wallstreetbets/comments/1iub8fm/all_in_celh_m23/)
+- [Rivian &lpar;RIVN&rpar; achieves gross profit of $170m in Q4 2024](https://www.reddit.com/r/wallstreetbets/comments/1iuamm2/rivian_rivn_achieves_gross_profit_of_170m_in_q4/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
