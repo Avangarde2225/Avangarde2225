@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Caught PLTR puts right before the drop 1362%](https://www.reddit.com/r/wallstreetbets/comments/1iudhkc/caught_pltr_puts_right_before_the_drop_1362/)
-- [$500k days, thanks to $CELH](https://www.reddit.com/r/wallstreetbets/comments/1iucmks/500k_days_thanks_to_celh/)
-- [20k gain on $celh](https://www.reddit.com/r/wallstreetbets/comments/1iubht1/20k_gain_on_celh/)
-- [All IN CELH M23](https://www.reddit.com/r/wallstreetbets/comments/1iub8fm/all_in_celh_m23/)
-- [Rivian &lpar;RIVN&rpar; achieves gross profit of $170m in Q4 2024](https://www.reddit.com/r/wallstreetbets/comments/1iuamm2/rivian_rivn_achieves_gross_profit_of_170m_in_q4/)
+- [Public Markets Becoming Less Liquid and Less Transparent.](https://www.reddit.com/r/wallstreetbets/comments/1iv5amq/public_markets_becoming_less_liquid_and_less/)
+- [$500-&gt;$10,000 on 0DTE HIMS puts](https://www.reddit.com/r/wallstreetbets/comments/1iv23q7/50010000_on_0dte_hims_puts/)
+- [100k Day Ask what puts can do for you](https://www.reddit.com/r/wallstreetbets/comments/1iv234g/100k_day_ask_what_puts_can_do_for_you/)
+- [Dropbox $DBX droped the money](https://www.reddit.com/r/wallstreetbets/comments/1iv20er/dropbox_dbx_droped_the_money/)
+- [AMD turned me into a gambling addict](https://www.reddit.com/r/wallstreetbets/comments/1iv1ju0/amd_turned_me_into_a_gambling_addict/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
