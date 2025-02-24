@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🐂 next week when we hit -5%.](https://www.reddit.com/r/wallstreetbets/comments/1ivxdo3/next_week_when_we_hit_5/)
-- [I sent my savings into the abyss](https://www.reddit.com/r/wallstreetbets/comments/1ivwar1/i_sent_my_savings_into_the_abyss/)
-- [MRNA DD](https://www.reddit.com/r/wallstreetbets/comments/1ivvm3t/mrna_dd/)
-- [AMD- I AINT HEAR NO BELL](https://www.reddit.com/r/wallstreetbets/comments/1ivuy4a/amd_i_aint_hear_no_bell/)
-- [New Virus, New Lambo, Biotech is about to go Rambo &lpar;$MRNA, $CSL&rpar; 🚀🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1ivtod0/new_virus_new_lambo_biotech_is_about_to_go_rambo/)
+- [Nvidia global PR director Ben Berraondo :We have identified a rare issue affecting ..GeForce RTX 5090 / 5070 TI have fewer ROP &lpar;it&#39;s bad&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1iwng97/nvidia_global_pr_director_ben_berraondo_we_have/)
+- [Idk what this data stuff means but I’m pretty sure calls are the move](https://www.reddit.com/r/wallstreetbets/comments/1iwn83m/idk_what_this_data_stuff_means_but_im_pretty_sure/)
+- [Is $NVO Novo Nordisk Going To Return to $100 A Share This Week?](https://www.reddit.com/r/wallstreetbets/comments/1iwmjpv/is_nvo_novo_nordisk_going_to_return_to_100_a/)
+- [What Are Your Moves Tomorrow, February 24, 2025](https://www.reddit.com/r/wallstreetbets/comments/1iwkcn7/what_are_your_moves_tomorrow_february_24_2025/)
+- [$60,000 death spiral 1 or 0DTE only](https://www.reddit.com/r/wallstreetbets/comments/1iwikh9/60000_death_spiral_1_or_0dte_only/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
