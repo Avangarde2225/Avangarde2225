@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What are your healthcare picks? This feels bullish](https://www.reddit.com/r/wallstreetbets/comments/1ixh2zy/what_are_your_healthcare_picks_this_feels_bullish/)
-- [There’s no debate about this.](https://www.reddit.com/r/wallstreetbets/comments/1ixgs4x/theres_no_debate_about_this/)
-- [Times truly are tough](https://www.reddit.com/r/wallstreetbets/comments/1ixgpaf/times_truly_are_tough/)
-- [Help me Jensen, you’re my only hope](https://www.reddit.com/r/wallstreetbets/comments/1ixf7b8/help_me_jensen_youre_my_only_hope/)
-- [What Are Your Moves Tomorrow, February 25, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ixcrxb/what_are_your_moves_tomorrow_february_25_2025/)
+- [Marge Called me at open](https://www.reddit.com/r/wallstreetbets/comments/1iya866/marge_called_me_at_open/)
+- [Im down bad](https://www.reddit.com/r/wallstreetbets/comments/1iy9vhb/im_down_bad/)
+- [5 bagger on TSLA puts](https://www.reddit.com/r/wallstreetbets/comments/1iy8bwu/5_bagger_on_tsla_puts/)
+- [Alcoa CEO Warns 100,000 U.S. Industry Jobs at Risk Due to Trump’s Proposed Tariffs on Steel, Aluminum](https://www.reddit.com/r/wallstreetbets/comments/1iy7xig/alcoa_ceo_warns_100000_us_industry_jobs_at_risk/)
+- [+70k by luck on $HIMS](https://www.reddit.com/r/wallstreetbets/comments/1iy7ec2/70k_by_luck_on_hims/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
