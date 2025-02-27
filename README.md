@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Marge Called me at open](https://www.reddit.com/r/wallstreetbets/comments/1iya866/marge_called_me_at_open/)
-- [Im down bad](https://www.reddit.com/r/wallstreetbets/comments/1iy9vhb/im_down_bad/)
-- [5 bagger on TSLA puts](https://www.reddit.com/r/wallstreetbets/comments/1iy8bwu/5_bagger_on_tsla_puts/)
-- [Alcoa CEO Warns 100,000 U.S. Industry Jobs at Risk Due to Trump’s Proposed Tariffs on Steel, Aluminum](https://www.reddit.com/r/wallstreetbets/comments/1iy7xig/alcoa_ceo_warns_100000_us_industry_jobs_at_risk/)
-- [+70k by luck on $HIMS](https://www.reddit.com/r/wallstreetbets/comments/1iy7ec2/70k_by_luck_on_hims/)
+- [To the &lpar;actual&rpar; Moon 🌖](https://www.reddit.com/r/wallstreetbets/comments/1iz2q6o/to_the_actual_moon/)
+- [My conviction should be studied, my regardation is immeasurable](https://www.reddit.com/r/wallstreetbets/comments/1iz0u7j/my_conviction_should_be_studied_my_regardation_is/)
+- [Come back to this post whenever you feel retrded](https://www.reddit.com/r/wallstreetbets/comments/1iyza5i/come_back_to_this_post_whenever_you_feel_retrded/)
+- [Yolo - I finally bought PUTS on $TSLA &lpar;up $12,798.48 today&rpar;. How much longer should I hold? I&#39;m thinking about selling them at $240,](https://www.reddit.com/r/wallstreetbets/comments/1iyz9co/yolo_i_finally_bought_puts_on_tsla_up_1279848/)
+- [Everyone watching $NVDA ER now..](https://www.reddit.com/r/wallstreetbets/comments/1iyyys3/everyone_watching_nvda_er_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
