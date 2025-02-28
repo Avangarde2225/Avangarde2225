@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To the &lpar;actual&rpar; Moon 🌖](https://www.reddit.com/r/wallstreetbets/comments/1iz2q6o/to_the_actual_moon/)
-- [My conviction should be studied, my regardation is immeasurable](https://www.reddit.com/r/wallstreetbets/comments/1iz0u7j/my_conviction_should_be_studied_my_regardation_is/)
-- [Come back to this post whenever you feel retrded](https://www.reddit.com/r/wallstreetbets/comments/1iyza5i/come_back_to_this_post_whenever_you_feel_retrded/)
-- [Yolo - I finally bought PUTS on $TSLA &lpar;up $12,798.48 today&rpar;. How much longer should I hold? I&#39;m thinking about selling them at $240,](https://www.reddit.com/r/wallstreetbets/comments/1iyz9co/yolo_i_finally_bought_puts_on_tsla_up_1279848/)
-- [Everyone watching $NVDA ER now..](https://www.reddit.com/r/wallstreetbets/comments/1iyyys3/everyone_watching_nvda_er_now/)
+- [Calling all recently separated Fiancées, 94k to 240k on TSLA puts](https://www.reddit.com/r/wallstreetbets/comments/1iztjfn/calling_all_recently_separated_fiancées_94k_to/)
+- [NVDA&#39;s slide today marks the second largest one day loss for a single ticker in history &lpar;-$368B&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1izsnje/nvdas_slide_today_marks_the_second_largest_one/)
+- [Nvidia bounced from the $3 trillion market cap club after falling more than 8%](https://www.reddit.com/r/wallstreetbets/comments/1izsel9/nvidia_bounced_from_the_3_trillion_market_cap/)
+- [If we go down then we go down together.](https://www.reddit.com/r/wallstreetbets/comments/1izs42r/if_we_go_down_then_we_go_down_together/)
+- [I Was Having a Great Day, I Was Up $2K, Got Greedy and Bored and Gambled at 2PM and Now I Hate Everything and Want to Die](https://www.reddit.com/r/wallstreetbets/comments/1izqzmf/i_was_having_a_great_day_i_was_up_2k_got_greedy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
