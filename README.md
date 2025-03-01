@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Calling all recently separated Fiancées, 94k to 240k on TSLA puts](https://www.reddit.com/r/wallstreetbets/comments/1iztjfn/calling_all_recently_separated_fiancées_94k_to/)
-- [NVDA&#39;s slide today marks the second largest one day loss for a single ticker in history &lpar;-$368B&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1izsnje/nvdas_slide_today_marks_the_second_largest_one/)
-- [Nvidia bounced from the $3 trillion market cap club after falling more than 8%](https://www.reddit.com/r/wallstreetbets/comments/1izsel9/nvidia_bounced_from_the_3_trillion_market_cap/)
-- [If we go down then we go down together.](https://www.reddit.com/r/wallstreetbets/comments/1izs42r/if_we_go_down_then_we_go_down_together/)
-- [I Was Having a Great Day, I Was Up $2K, Got Greedy and Bored and Gambled at 2PM and Now I Hate Everything and Want to Die](https://www.reddit.com/r/wallstreetbets/comments/1izqzmf/i_was_having_a_great_day_i_was_up_2k_got_greedy/)
+- [I SOLD MY PUTS BEFORE PUMP UPDAT E 40k+ GAINS in](https://www.reddit.com/r/wallstreetbets/comments/1j0jfy9/i_sold_my_puts_before_pump_updat_e_40k_gains_in/)
+- [Google&#39;s Sergey Brin Says Engineers Should Work 60-Hour Weeks in Office to Build AI That Could Replace Them](https://www.reddit.com/r/wallstreetbets/comments/1j0jbg3/googles_sergey_brin_says_engineers_should_work/)
+- [Weekend Discussion Thread for the Weekend of February 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1j0i43o/weekend_discussion_thread_for_the_weekend_of/)
+- [Mumma Mia! The spaghettification of the quantum computing industry.](https://www.reddit.com/r/wallstreetbets/comments/1j0hef1/mumma_mia_the_spaghettification_of_the_quantum/)
+- [Sold SPY calls before the close for a $11k profit Have a nice dinner tonight and 。。。。Wendy.s](https://www.reddit.com/r/wallstreetbets/comments/1j0hbov/sold_spy_calls_before_the_close_for_a_11k_profit/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
