@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I SOLD MY PUTS BEFORE PUMP UPDAT E 40k+ GAINS in](https://www.reddit.com/r/wallstreetbets/comments/1j0jfy9/i_sold_my_puts_before_pump_updat_e_40k_gains_in/)
-- [Google&#39;s Sergey Brin Says Engineers Should Work 60-Hour Weeks in Office to Build AI That Could Replace Them](https://www.reddit.com/r/wallstreetbets/comments/1j0jbg3/googles_sergey_brin_says_engineers_should_work/)
-- [Weekend Discussion Thread for the Weekend of February 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1j0i43o/weekend_discussion_thread_for_the_weekend_of/)
-- [Mumma Mia! The spaghettification of the quantum computing industry.](https://www.reddit.com/r/wallstreetbets/comments/1j0hef1/mumma_mia_the_spaghettification_of_the_quantum/)
-- [Sold SPY calls before the close for a $11k profit Have a nice dinner tonight and 。。。。Wendy.s](https://www.reddit.com/r/wallstreetbets/comments/1j0hbov/sold_spy_calls_before_the_close_for_a_11k_profit/)
+- [I built a free website that shows you whether your Robinhood account outperformed buying &amp; holding VTI](https://www.reddit.com/r/wallstreetbets/comments/1j1ebrb/i_built_a_free_website_that_shows_you_whether/)
+- [Tesla Extends Early-Year Slump With 26% Sales Decline in France](https://www.reddit.com/r/wallstreetbets/comments/1j1d8ar/tesla_extends_earlyyear_slump_with_26_sales/)
+- [Palantir Goat with a Moat ?](https://www.reddit.com/r/wallstreetbets/comments/1j1cd39/palantir_goat_with_a_moat/)
+- [I listened to the few people here with 1 or 2 braincells and closed my calls at a loss and just bought shares instead. Here we go.](https://www.reddit.com/r/wallstreetbets/comments/1j1a3l3/i_listened_to_the_few_people_here_with_1_or_2/)
+- [Advanced Money Destroyer got me good 😭](https://www.reddit.com/r/wallstreetbets/comments/1j13trm/advanced_money_destroyer_got_me_good/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
