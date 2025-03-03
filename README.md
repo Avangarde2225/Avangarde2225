@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I built a free website that shows you whether your Robinhood account outperformed buying &amp; holding VTI](https://www.reddit.com/r/wallstreetbets/comments/1j1ebrb/i_built_a_free_website_that_shows_you_whether/)
-- [Tesla Extends Early-Year Slump With 26% Sales Decline in France](https://www.reddit.com/r/wallstreetbets/comments/1j1d8ar/tesla_extends_earlyyear_slump_with_26_sales/)
-- [Palantir Goat with a Moat ?](https://www.reddit.com/r/wallstreetbets/comments/1j1cd39/palantir_goat_with_a_moat/)
-- [I listened to the few people here with 1 or 2 braincells and closed my calls at a loss and just bought shares instead. Here we go.](https://www.reddit.com/r/wallstreetbets/comments/1j1a3l3/i_listened_to_the_few_people_here_with_1_or_2/)
-- [Advanced Money Destroyer got me good 😭](https://www.reddit.com/r/wallstreetbets/comments/1j13trm/advanced_money_destroyer_got_me_good/)
+- [Real](https://www.reddit.com/r/wallstreetbets/comments/1j25zkg/real/)
+- [I love SPX](https://www.reddit.com/r/wallstreetbets/comments/1j21vey/i_love_spx/)
+- [What Are Your Moves Tomorrow, March 03, 2025](https://www.reddit.com/r/wallstreetbets/comments/1j218j2/what_are_your_moves_tomorrow_march_03_2025/)
+- [I have full ported FUBO to get it all back](https://www.reddit.com/r/wallstreetbets/comments/1j1zu7g/i_have_full_ported_fubo_to_get_it_all_back/)
+- [$1.6k open on Thursday to $33k close on Friday](https://www.reddit.com/r/wallstreetbets/comments/1j1yclg/16k_open_on_thursday_to_33k_close_on_friday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
