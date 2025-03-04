@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Real](https://www.reddit.com/r/wallstreetbets/comments/1j25zkg/real/)
-- [I love SPX](https://www.reddit.com/r/wallstreetbets/comments/1j21vey/i_love_spx/)
-- [What Are Your Moves Tomorrow, March 03, 2025](https://www.reddit.com/r/wallstreetbets/comments/1j218j2/what_are_your_moves_tomorrow_march_03_2025/)
-- [I have full ported FUBO to get it all back](https://www.reddit.com/r/wallstreetbets/comments/1j1zu7g/i_have_full_ported_fubo_to_get_it_all_back/)
-- [$1.6k open on Thursday to $33k close on Friday](https://www.reddit.com/r/wallstreetbets/comments/1j1yclg/16k_open_on_thursday_to_33k_close_on_friday/)
+- [Bitcoin was always a scam. QED.](https://www.reddit.com/r/wallstreetbets/comments/1j2xhr7/bitcoin_was_always_a_scam_qed/)
+- [Tesla chairwoman sells $33 million worth of TSLA as she lets Elon Musk destroy the brand](https://www.reddit.com/r/wallstreetbets/comments/1j2xelz/tesla_chairwoman_sells_33_million_worth_of_tsla/)
+- [100k gains today from one SPY 0DTE trade](https://www.reddit.com/r/wallstreetbets/comments/1j2w30s/100k_gains_today_from_one_spy_0dte_trade/)
+- [Dow tumbles 650 points as Trump confirms tariffs on Mexico and Canada will start Tuesday](https://www.reddit.com/r/wallstreetbets/comments/1j2vjd8/dow_tumbles_650_points_as_trump_confirms_tariffs/)
+- [Didn’t have the balls I did last week. Puts would have been worth 240k at 2:30](https://www.reddit.com/r/wallstreetbets/comments/1j2v3ej/didnt_have_the_balls_i_did_last_week_puts_would/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
