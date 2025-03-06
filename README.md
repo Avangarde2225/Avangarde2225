@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do I still have a shot at coming back? 😬](https://www.reddit.com/r/wallstreetbets/comments/1j3nu6t/do_i_still_have_a_shot_at_coming_back/)
-- [“I was born in the volatility, molded by it”](https://www.reddit.com/r/wallstreetbets/comments/1j3my65/i_was_born_in_the_volatility_molded_by_it/)
-- [$660 —&gt; 170k 3 days of 0DTE SPX trades](https://www.reddit.com/r/wallstreetbets/comments/1j3mnhw/660_170k_3_days_of_0dte_spx_trades/)
-- [What Are Your Moves Tomorrow, March 05, 2025](https://www.reddit.com/r/wallstreetbets/comments/1j3m04j/what_are_your_moves_tomorrow_march_05_2025/)
-- [2 day 11x $2k-$24k](https://www.reddit.com/r/wallstreetbets/comments/1j3lcuu/2_day_11x_2k24k/)
+- [German court rules Pfizer, BioNTech violated Moderna&#39;s COVID-19 vaccine patent](https://www.reddit.com/r/wallstreetbets/comments/1j4hx8n/german_court_rules_pfizer_biontech_violated/)
+- [$12k bet on $Baba](https://www.reddit.com/r/wallstreetbets/comments/1j4hob3/12k_bet_on_baba/)
+- [0DTE SPY Call Yolo: $40.5K Gain Porn 🚀🤑](https://www.reddit.com/r/wallstreetbets/comments/1j4ffru/0dte_spy_call_yolo_405k_gain_porn/)
+- [+33.5k 4th day, 0DTE SPX](https://www.reddit.com/r/wallstreetbets/comments/1j4f5dk/335k_4th_day_0dte_spx/)
+- [Thanks SPX](https://www.reddit.com/r/wallstreetbets/comments/1j4f3pf/thanks_spx/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
