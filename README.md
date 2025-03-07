@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [German court rules Pfizer, BioNTech violated Moderna&#39;s COVID-19 vaccine patent](https://www.reddit.com/r/wallstreetbets/comments/1j4hx8n/german_court_rules_pfizer_biontech_violated/)
-- [$12k bet on $Baba](https://www.reddit.com/r/wallstreetbets/comments/1j4hob3/12k_bet_on_baba/)
-- [0DTE SPY Call Yolo: $40.5K Gain Porn 🚀🤑](https://www.reddit.com/r/wallstreetbets/comments/1j4ffru/0dte_spy_call_yolo_405k_gain_porn/)
-- [+33.5k 4th day, 0DTE SPX](https://www.reddit.com/r/wallstreetbets/comments/1j4f5dk/335k_4th_day_0dte_spx/)
-- [Thanks SPX](https://www.reddit.com/r/wallstreetbets/comments/1j4f3pf/thanks_spx/)
+- [Where is the dumpster?](https://www.reddit.com/r/wallstreetbets/comments/1j59ovc/where_is_the_dumpster/)
+- [Let’s get this party started.](https://www.reddit.com/r/wallstreetbets/comments/1j598y3/lets_get_this_party_started/)
+- [your local 🌈🐻 &lpar;130k gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1j58qn1/your_local_130k_gain/)
+- [Another 42k gain on SPY puts, 82k in 2 days 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/1j56p11/another_42k_gain_on_spy_puts_82k_in_2_days/)
+- [+70k, $660 —&gt; $273.5k in 5 days: SPX &lpar;mostly 0DTE&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1j56f7u/70k_660_2735k_in_5_days_spx_mostly_0dte/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
