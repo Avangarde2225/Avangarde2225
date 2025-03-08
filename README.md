@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Where is the dumpster?](https://www.reddit.com/r/wallstreetbets/comments/1j59ovc/where_is_the_dumpster/)
-- [Let’s get this party started.](https://www.reddit.com/r/wallstreetbets/comments/1j598y3/lets_get_this_party_started/)
-- [your local 🌈🐻 &lpar;130k gain&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1j58qn1/your_local_130k_gain/)
-- [Another 42k gain on SPY puts, 82k in 2 days 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/1j56p11/another_42k_gain_on_spy_puts_82k_in_2_days/)
-- [+70k, $660 —&gt; $273.5k in 5 days: SPX &lpar;mostly 0DTE&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1j56f7u/70k_660_2735k_in_5_days_spx_mostly_0dte/)
+- [ASTS 10 bagger](https://www.reddit.com/r/wallstreetbets/comments/1j647ch/asts_10_bagger/)
+- [$52,000 gain today and $157,000 for the week 🫡](https://www.reddit.com/r/wallstreetbets/comments/1j631zs/52000_gain_today_and_157000_for_the_week/)
+- [Robinhood to Pay $26 Million to Settle Finra Allegations](https://www.reddit.com/r/wallstreetbets/comments/1j630x3/robinhood_to_pay_26_million_to_settle_finra/)
+- [QQQ 490 6/20 calls - when J POW has your back then it’s time to be greedy when others are fearful](https://www.reddit.com/r/wallstreetbets/comments/1j62098/qqq_490_620_calls_when_j_pow_has_your_back_then/)
+- [$RDDT’s future after 40% drop?](https://www.reddit.com/r/wallstreetbets/comments/1j61s5v/rddts_future_after_40_drop/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
