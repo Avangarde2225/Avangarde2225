@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ASTS 10 bagger](https://www.reddit.com/r/wallstreetbets/comments/1j647ch/asts_10_bagger/)
-- [$52,000 gain today and $157,000 for the week 🫡](https://www.reddit.com/r/wallstreetbets/comments/1j631zs/52000_gain_today_and_157000_for_the_week/)
-- [Robinhood to Pay $26 Million to Settle Finra Allegations](https://www.reddit.com/r/wallstreetbets/comments/1j630x3/robinhood_to_pay_26_million_to_settle_finra/)
-- [QQQ 490 6/20 calls - when J POW has your back then it’s time to be greedy when others are fearful](https://www.reddit.com/r/wallstreetbets/comments/1j62098/qqq_490_620_calls_when_j_pow_has_your_back_then/)
-- [$RDDT’s future after 40% drop?](https://www.reddit.com/r/wallstreetbets/comments/1j61s5v/rddts_future_after_40_drop/)
+- [Tesla at risk of 95% crash, claims billionaire hedge fund manager...buy in the dip?](https://www.reddit.com/r/wallstreetbets/comments/1j6utz6/tesla_at_risk_of_95_crash_claims_billionaire/)
+- [Apple delays release of SIRI Intelligence](https://www.reddit.com/r/wallstreetbets/comments/1j6ukza/apple_delays_release_of_siri_intelligence/)
+- [Government Defense Contractor Value Proposition Assessment](https://www.reddit.com/r/wallstreetbets/comments/1j6tped/government_defense_contractor_value_proposition/)
+- [Using IPhone 16 to see $LUNR landing](https://www.reddit.com/r/wallstreetbets/comments/1j6s6fu/using_iphone_16_to_see_lunr_landing/)
+- [US car payment delinquencies reach 33-year high: Analysis](https://www.reddit.com/r/wallstreetbets/comments/1j6q4ar/us_car_payment_delinquencies_reach_33year_high/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
