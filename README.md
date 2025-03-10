@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla at risk of 95% crash, claims billionaire hedge fund manager...buy in the dip?](https://www.reddit.com/r/wallstreetbets/comments/1j6utz6/tesla_at_risk_of_95_crash_claims_billionaire/)
-- [Apple delays release of SIRI Intelligence](https://www.reddit.com/r/wallstreetbets/comments/1j6ukza/apple_delays_release_of_siri_intelligence/)
-- [Government Defense Contractor Value Proposition Assessment](https://www.reddit.com/r/wallstreetbets/comments/1j6tped/government_defense_contractor_value_proposition/)
-- [Using IPhone 16 to see $LUNR landing](https://www.reddit.com/r/wallstreetbets/comments/1j6s6fu/using_iphone_16_to_see_lunr_landing/)
-- [US car payment delinquencies reach 33-year high: Analysis](https://www.reddit.com/r/wallstreetbets/comments/1j6q4ar/us_car_payment_delinquencies_reach_33year_high/)
+- [Shouldn’t AVGO be in the Magnificent 7 now, and not TSLA?](https://www.reddit.com/r/wallstreetbets/comments/1j7m4ke/shouldnt_avgo_be_in_the_magnificent_7_now_and_not/)
+- [Lost 8k YTD thanks to the trade war. Sold all my SOXL](https://www.reddit.com/r/wallstreetbets/comments/1j7m3yn/lost_8k_ytd_thanks_to_the_trade_war_sold_all_my/)
+- [For those wondering why we really need yields to drop.](https://www.reddit.com/r/wallstreetbets/comments/1j7lvvf/for_those_wondering_why_we_really_need_yields_to/)
+- [🤷](https://www.reddit.com/r/wallstreetbets/comments/1j7ix25/_/)
+- [What Are Your Moves Tomorrow, March 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1j7g4c1/what_are_your_moves_tomorrow_march_10_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
