@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Shouldn’t AVGO be in the Magnificent 7 now, and not TSLA?](https://www.reddit.com/r/wallstreetbets/comments/1j7m4ke/shouldnt_avgo_be_in_the_magnificent_7_now_and_not/)
-- [Lost 8k YTD thanks to the trade war. Sold all my SOXL](https://www.reddit.com/r/wallstreetbets/comments/1j7m3yn/lost_8k_ytd_thanks_to_the_trade_war_sold_all_my/)
-- [For those wondering why we really need yields to drop.](https://www.reddit.com/r/wallstreetbets/comments/1j7lvvf/for_those_wondering_why_we_really_need_yields_to/)
-- [🤷](https://www.reddit.com/r/wallstreetbets/comments/1j7ix25/_/)
-- [What Are Your Moves Tomorrow, March 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1j7g4c1/what_are_your_moves_tomorrow_march_10_2025/)
+- [$TSLA Puts: $800k in realized gains since Feb 19th. $274k to $1.39MM in less than a year](https://www.reddit.com/r/wallstreetbets/comments/1j8cggh/tsla_puts_800k_in_realized_gains_since_feb_19th/)
+- [Your favorite 🌈🐻 +80k](https://www.reddit.com/r/wallstreetbets/comments/1j8cd3q/your_favorite_80k/)
+- [TSLA Put Gang](https://www.reddit.com/r/wallstreetbets/comments/1j8acg9/tsla_put_gang/)
+- [S&amp;P 500 put options $700 to $40&#39;000](https://www.reddit.com/r/wallstreetbets/comments/1j89txw/sp_500_put_options_700_to_40000/)
+- [Thanks wsb for the regarded yolos](https://www.reddit.com/r/wallstreetbets/comments/1j89n99/thanks_wsb_for_the_regarded_yolos/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
