@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Déjà Vu in Silicon Valley: From AOL to AI](https://www.reddit.com/r/wallstreetbets/comments/1j9ykki/déjà_vu_in_silicon_valley_from_aol_to_ai/)
-- [What does this mean for Adobe?](https://www.reddit.com/r/wallstreetbets/comments/1j9urks/what_does_this_mean_for_adobe/)
-- [TSLA IS PLAYING WITH FIRE](https://www.reddit.com/r/wallstreetbets/comments/1j9tvrt/tsla_is_playing_with_fire/)
-- [Intel Appoints Lip-Bu Tan as Chief Executive Officer](https://www.reddit.com/r/wallstreetbets/comments/1j9tukt/intel_appoints_lipbu_tan_as_chief_executive/)
-- [Feast on it](https://www.reddit.com/r/wallstreetbets/comments/1j9tjkw/feast_on_it/)
+- [Dollar General CEO warns consumers are cash-strapped, and says 2025 won&#39;t be better - I mean, yeah.. we all kinda knew that.](https://www.reddit.com/r/wallstreetbets/comments/1jaqgfu/dollar_general_ceo_warns_consumers_are/)
+- [Anotha day anotha DOLLA!](https://www.reddit.com/r/wallstreetbets/comments/1jaqbvw/anotha_day_anotha_dolla/)
+- [Today I learned to stop trading Wednesdays -$48k to +$56k ✍️](https://www.reddit.com/r/wallstreetbets/comments/1jaoaix/today_i_learned_to_stop_trading_wednesdays_48k_to/)
+- [No Bids to sell, lost 110K. TWLO 135 calls for April 17th](https://www.reddit.com/r/wallstreetbets/comments/1jamp5z/no_bids_to_sell_lost_110k_twlo_135_calls_for/)
+- [… that was a day.](https://www.reddit.com/r/wallstreetbets/comments/1jali8x/that_was_a_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
