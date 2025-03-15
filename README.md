@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dollar General CEO warns consumers are cash-strapped, and says 2025 won&#39;t be better - I mean, yeah.. we all kinda knew that.](https://www.reddit.com/r/wallstreetbets/comments/1jaqgfu/dollar_general_ceo_warns_consumers_are/)
-- [Anotha day anotha DOLLA!](https://www.reddit.com/r/wallstreetbets/comments/1jaqbvw/anotha_day_anotha_dolla/)
-- [Today I learned to stop trading Wednesdays -$48k to +$56k ✍️](https://www.reddit.com/r/wallstreetbets/comments/1jaoaix/today_i_learned_to_stop_trading_wednesdays_48k_to/)
-- [No Bids to sell, lost 110K. TWLO 135 calls for April 17th](https://www.reddit.com/r/wallstreetbets/comments/1jamp5z/no_bids_to_sell_lost_110k_twlo_135_calls_for/)
-- [… that was a day.](https://www.reddit.com/r/wallstreetbets/comments/1jali8x/that_was_a_day/)
+- [👀](https://www.reddit.com/r/wallstreetbets/comments/1jbij8k/_/)
+- [WMT earnings hit different with Trump.](https://www.reddit.com/r/wallstreetbets/comments/1jbi8xe/wmt_earnings_hit_different_with_trump/)
+- [Thank you market](https://www.reddit.com/r/wallstreetbets/comments/1jbgcic/thank_you_market/)
+- [[Fortune] Elon Musk&#39;s Tesla reportedly halts Cybertruck deliveries as owners complain of metal sides falling off](https://www.reddit.com/r/wallstreetbets/comments/1jbfs0i/fortune_elon_musks_tesla_reportedly_halts/)
+- [I’m fucked.](https://www.reddit.com/r/wallstreetbets/comments/1jbfrf9/im_fucked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
