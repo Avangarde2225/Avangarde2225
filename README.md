@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [👀](https://www.reddit.com/r/wallstreetbets/comments/1jbij8k/_/)
-- [WMT earnings hit different with Trump.](https://www.reddit.com/r/wallstreetbets/comments/1jbi8xe/wmt_earnings_hit_different_with_trump/)
-- [Thank you market](https://www.reddit.com/r/wallstreetbets/comments/1jbgcic/thank_you_market/)
-- [[Fortune] Elon Musk&#39;s Tesla reportedly halts Cybertruck deliveries as owners complain of metal sides falling off](https://www.reddit.com/r/wallstreetbets/comments/1jbfs0i/fortune_elon_musks_tesla_reportedly_halts/)
-- [I’m fucked.](https://www.reddit.com/r/wallstreetbets/comments/1jbfrf9/im_fucked/)
+- [Monday](https://www.reddit.com/r/wallstreetbets/comments/1jc83o1/monday/)
+- [Using Ratio charts to identify opportunity](https://www.reddit.com/r/wallstreetbets/comments/1jc7uj0/using_ratio_charts_to_identify_opportunity/)
+- [Small short on my share position which I am down 60% - to hold or take profit.](https://www.reddit.com/r/wallstreetbets/comments/1jc5uvv/small_short_on_my_share_position_which_i_am_down/)
+- [The Hooters Index seems like a solid way to judge the economy. Thoughts?](https://www.reddit.com/r/wallstreetbets/comments/1jc33bm/the_hooters_index_seems_like_a_solid_way_to_judge/)
+- [Defense Stocks Are Booming—Is There Still Room to Run?](https://www.reddit.com/r/wallstreetbets/comments/1jc2f8g/defense_stocks_are_boomingis_there_still_room_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
