@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Monday](https://www.reddit.com/r/wallstreetbets/comments/1jc83o1/monday/)
-- [Using Ratio charts to identify opportunity](https://www.reddit.com/r/wallstreetbets/comments/1jc7uj0/using_ratio_charts_to_identify_opportunity/)
-- [Small short on my share position which I am down 60% - to hold or take profit.](https://www.reddit.com/r/wallstreetbets/comments/1jc5uvv/small_short_on_my_share_position_which_i_am_down/)
-- [The Hooters Index seems like a solid way to judge the economy. Thoughts?](https://www.reddit.com/r/wallstreetbets/comments/1jc33bm/the_hooters_index_seems_like_a_solid_way_to_judge/)
-- [Defense Stocks Are Booming—Is There Still Room to Run?](https://www.reddit.com/r/wallstreetbets/comments/1jc2f8g/defense_stocks_are_boomingis_there_still_room_to/)
+- [Me when buying options](https://www.reddit.com/r/wallstreetbets/comments/1jd05m1/me_when_buying_options/)
+- [The Fed Is in Wait-and-See Mode. Investors Want Reassurance It Will Act If Needed](https://www.reddit.com/r/wallstreetbets/comments/1jcvxbl/the_fed_is_in_waitandsee_mode_investors_want/)
+- [What Are Your Moves Tomorrow, March 17, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jcu6w3/what_are_your_moves_tomorrow_march_17_2025/)
+- [Apple’s iPhone 17 ‘Air’ a Step Past Its ‘AI Crisis’ Toward a New Beginning of Slimmer, Port-Free Devices, Heralding an iPhone ‘New Era’](https://www.reddit.com/r/wallstreetbets/comments/1jcqwc6/apples_iphone_17_air_a_step_past_its_ai_crisis/)
+- [$40k gain on $RBRK earnings call swing](https://www.reddit.com/r/wallstreetbets/comments/1jcplrs/40k_gain_on_rbrk_earnings_call_swing/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
