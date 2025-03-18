@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me when buying options](https://www.reddit.com/r/wallstreetbets/comments/1jd05m1/me_when_buying_options/)
-- [The Fed Is in Wait-and-See Mode. Investors Want Reassurance It Will Act If Needed](https://www.reddit.com/r/wallstreetbets/comments/1jcvxbl/the_fed_is_in_waitandsee_mode_investors_want/)
-- [What Are Your Moves Tomorrow, March 17, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jcu6w3/what_are_your_moves_tomorrow_march_17_2025/)
-- [Apple’s iPhone 17 ‘Air’ a Step Past Its ‘AI Crisis’ Toward a New Beginning of Slimmer, Port-Free Devices, Heralding an iPhone ‘New Era’](https://www.reddit.com/r/wallstreetbets/comments/1jcqwc6/apples_iphone_17_air_a_step_past_its_ai_crisis/)
-- [$40k gain on $RBRK earnings call swing](https://www.reddit.com/r/wallstreetbets/comments/1jcplrs/40k_gain_on_rbrk_earnings_call_swing/)
+- [POSITIONS FOR $800-&gt;$100k](https://www.reddit.com/r/wallstreetbets/comments/1jds90b/positions_for_800100k/)
+- [Respect the dip, be the dip, BUY THE DIP! 😂🦍🚀](https://www.reddit.com/r/wallstreetbets/comments/1jdr0k7/respect_the_dip_be_the_dip_buy_the_dip/)
+- [Google in Fresh Talks to Buy Cybersecurity Startup Wiz for $30 Billion](https://www.reddit.com/r/wallstreetbets/comments/1jdp3ug/google_in_fresh_talks_to_buy_cybersecurity/)
+- [It’s not much but it’s honestly work](https://www.reddit.com/r/wallstreetbets/comments/1jdnekp/its_not_much_but_its_honestly_work/)
+- [What Are Your Moves Tomorrow, March 18, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jdm4a3/what_are_your_moves_tomorrow_march_18_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
