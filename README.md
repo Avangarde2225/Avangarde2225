@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [POSITIONS FOR $800-&gt;$100k](https://www.reddit.com/r/wallstreetbets/comments/1jds90b/positions_for_800100k/)
-- [Respect the dip, be the dip, BUY THE DIP! 😂🦍🚀](https://www.reddit.com/r/wallstreetbets/comments/1jdr0k7/respect_the_dip_be_the_dip_buy_the_dip/)
-- [Google in Fresh Talks to Buy Cybersecurity Startup Wiz for $30 Billion](https://www.reddit.com/r/wallstreetbets/comments/1jdp3ug/google_in_fresh_talks_to_buy_cybersecurity/)
-- [It’s not much but it’s honestly work](https://www.reddit.com/r/wallstreetbets/comments/1jdnekp/its_not_much_but_its_honestly_work/)
-- [What Are Your Moves Tomorrow, March 18, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jdm4a3/what_are_your_moves_tomorrow_march_18_2025/)
+- [Thanks Elon!](https://www.reddit.com/r/wallstreetbets/comments/1jekjtz/thanks_elon/)
+- [TSLA bears, what if Elon steps down?](https://www.reddit.com/r/wallstreetbets/comments/1jejszf/tsla_bears_what_if_elon_steps_down/)
+- [Will Bitcoin Burn Everyone This Time?](https://www.reddit.com/r/wallstreetbets/comments/1jeis5p/will_bitcoin_burn_everyone_this_time/)
+- [What to look for in FED meeting tomorrow 3/19](https://www.reddit.com/r/wallstreetbets/comments/1jeig6j/what_to_look_for_in_fed_meeting_tomorrow_319/)
+- [Nvidia and Yum Brands team up to expand AI ordering](https://www.reddit.com/r/wallstreetbets/comments/1jehn7n/nvidia_and_yum_brands_team_up_to_expand_ai/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
