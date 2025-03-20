@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks Elon!](https://www.reddit.com/r/wallstreetbets/comments/1jekjtz/thanks_elon/)
-- [TSLA bears, what if Elon steps down?](https://www.reddit.com/r/wallstreetbets/comments/1jejszf/tsla_bears_what_if_elon_steps_down/)
-- [Will Bitcoin Burn Everyone This Time?](https://www.reddit.com/r/wallstreetbets/comments/1jeis5p/will_bitcoin_burn_everyone_this_time/)
-- [What to look for in FED meeting tomorrow 3/19](https://www.reddit.com/r/wallstreetbets/comments/1jeig6j/what_to_look_for_in_fed_meeting_tomorrow_319/)
-- [Nvidia and Yum Brands team up to expand AI ordering](https://www.reddit.com/r/wallstreetbets/comments/1jehn7n/nvidia_and_yum_brands_team_up_to_expand_ai/)
+- [DIA closed at 420.420](https://www.reddit.com/r/wallstreetbets/comments/1jfbv7j/dia_closed_at_420420/)
+- [$AVXL](https://www.reddit.com/r/wallstreetbets/comments/1jfbb0u/avxl/)
+- [What&#39;s TSLA worth in a fire sale?](https://www.reddit.com/r/wallstreetbets/comments/1jf9qq8/whats_tsla_worth_in_a_fire_sale/)
+- [Tesla &lpar;TSLA&rpar; accounting raises red flags as report shows $1.4 billion missing](https://www.reddit.com/r/wallstreetbets/comments/1jf9j49/tesla_tsla_accounting_raises_red_flags_as_report/)
+- [Trump still intends for reciprocal tariffs to kick in on April 2, White House says](https://www.reddit.com/r/wallstreetbets/comments/1jf8v9v/trump_still_intends_for_reciprocal_tariffs_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
