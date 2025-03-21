@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DIA closed at 420.420](https://www.reddit.com/r/wallstreetbets/comments/1jfbv7j/dia_closed_at_420420/)
-- [$AVXL](https://www.reddit.com/r/wallstreetbets/comments/1jfbb0u/avxl/)
-- [What&#39;s TSLA worth in a fire sale?](https://www.reddit.com/r/wallstreetbets/comments/1jf9qq8/whats_tsla_worth_in_a_fire_sale/)
-- [Tesla &lpar;TSLA&rpar; accounting raises red flags as report shows $1.4 billion missing](https://www.reddit.com/r/wallstreetbets/comments/1jf9j49/tesla_tsla_accounting_raises_red_flags_as_report/)
-- [Trump still intends for reciprocal tariffs to kick in on April 2, White House says](https://www.reddit.com/r/wallstreetbets/comments/1jf8v9v/trump_still_intends_for_reciprocal_tariffs_to/)
+- [Triple witching day tomorrow following a dovish fed report? Definitely bought the dip today. 🚀🌕🥂](https://www.reddit.com/r/wallstreetbets/comments/1jg3oci/triple_witching_day_tomorrow_following_a_dovish/)
+- [Accenture is DOGE&#39;s first corporate casualty as shares dive on warning that contracts will be cut](https://www.reddit.com/r/wallstreetbets/comments/1jg370p/accenture_is_doges_first_corporate_casualty_as/)
+- [FedEx cuts full-year results forecast on ‘uncertainty’ in economy, bad weather](https://www.reddit.com/r/wallstreetbets/comments/1jg1ont/fedex_cuts_fullyear_results_forecast_on/)
+- [Always use Ethernet &lpar;loss&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jg0lji/always_use_ethernet_loss/)
+- [What Are Your Moves Tomorrow, March 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jfxz60/what_are_your_moves_tomorrow_march_21_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
