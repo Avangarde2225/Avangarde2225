@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Triple witching day tomorrow following a dovish fed report? Definitely bought the dip today. 🚀🌕🥂](https://www.reddit.com/r/wallstreetbets/comments/1jg3oci/triple_witching_day_tomorrow_following_a_dovish/)
-- [Accenture is DOGE&#39;s first corporate casualty as shares dive on warning that contracts will be cut](https://www.reddit.com/r/wallstreetbets/comments/1jg370p/accenture_is_doges_first_corporate_casualty_as/)
-- [FedEx cuts full-year results forecast on ‘uncertainty’ in economy, bad weather](https://www.reddit.com/r/wallstreetbets/comments/1jg1ont/fedex_cuts_fullyear_results_forecast_on/)
-- [Always use Ethernet &lpar;loss&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jg0lji/always_use_ethernet_loss/)
-- [What Are Your Moves Tomorrow, March 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jfxz60/what_are_your_moves_tomorrow_march_21_2025/)
+- [Whose ready for the subprime burrito crisis of 2025.](https://www.reddit.com/r/wallstreetbets/comments/1jgvyy6/whose_ready_for_the_subprime_burrito_crisis_of/)
+- [Successful hectic trading week done](https://www.reddit.com/r/wallstreetbets/comments/1jgtpkf/successful_hectic_trading_week_done/)
+- [I’m not gambling Sharon](https://www.reddit.com/r/wallstreetbets/comments/1jgsxx0/im_not_gambling_sharon/)
+- [Time to pray for some bad news over the weekend 😔](https://www.reddit.com/r/wallstreetbets/comments/1jgsuet/time_to_pray_for_some_bad_news_over_the_weekend/)
+- [This was bound to happen](https://www.reddit.com/r/wallstreetbets/comments/1jgrzmw/this_was_bound_to_happen/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
