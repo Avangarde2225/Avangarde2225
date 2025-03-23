@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Whose ready for the subprime burrito crisis of 2025.](https://www.reddit.com/r/wallstreetbets/comments/1jgvyy6/whose_ready_for_the_subprime_burrito_crisis_of/)
-- [Successful hectic trading week done](https://www.reddit.com/r/wallstreetbets/comments/1jgtpkf/successful_hectic_trading_week_done/)
-- [I’m not gambling Sharon](https://www.reddit.com/r/wallstreetbets/comments/1jgsxx0/im_not_gambling_sharon/)
-- [Time to pray for some bad news over the weekend 😔](https://www.reddit.com/r/wallstreetbets/comments/1jgsuet/time_to_pray_for_some_bad_news_over_the_weekend/)
-- [This was bound to happen](https://www.reddit.com/r/wallstreetbets/comments/1jgrzmw/this_was_bound_to_happen/)
+- [Modified Discounted Cash Flow for SoFi &lpar;NASDAQ:SOFI&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jhdnw2/modified_discounted_cash_flow_for_sofi_nasdaqsofi/)
+- [Took my Nvidia gains after 3 years of holding shares.](https://www.reddit.com/r/wallstreetbets/comments/1jhaxzj/took_my_nvidia_gains_after_3_years_of_holding/)
+- [Can a Tesla advocate please explain how to justify the current P/E?](https://www.reddit.com/r/wallstreetbets/comments/1jhai40/can_a_tesla_advocate_please_explain_how_to/)
+- [TFSA = 🗑️🔥](https://www.reddit.com/r/wallstreetbets/comments/1jh1ewm/tfsa/)
+- [Ticketing platform StubHub reveals 30% revenue growth in US IPO filing](https://www.reddit.com/r/wallstreetbets/comments/1jh194y/ticketing_platform_stubhub_reveals_30_revenue/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
