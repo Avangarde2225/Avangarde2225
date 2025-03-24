@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Modified Discounted Cash Flow for SoFi &lpar;NASDAQ:SOFI&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jhdnw2/modified_discounted_cash_flow_for_sofi_nasdaqsofi/)
-- [Took my Nvidia gains after 3 years of holding shares.](https://www.reddit.com/r/wallstreetbets/comments/1jhaxzj/took_my_nvidia_gains_after_3_years_of_holding/)
-- [Can a Tesla advocate please explain how to justify the current P/E?](https://www.reddit.com/r/wallstreetbets/comments/1jhai40/can_a_tesla_advocate_please_explain_how_to/)
-- [TFSA = 🗑️🔥](https://www.reddit.com/r/wallstreetbets/comments/1jh1ewm/tfsa/)
-- [Ticketing platform StubHub reveals 30% revenue growth in US IPO filing](https://www.reddit.com/r/wallstreetbets/comments/1jh194y/ticketing_platform_stubhub_reveals_30_revenue/)
+- [March Madness](https://www.reddit.com/r/wallstreetbets/comments/1jiacz0/march_madness/)
+- [SPY to 420](https://www.reddit.com/r/wallstreetbets/comments/1ji8bie/spy_to_420/)
+- [What Are Your Moves Tomorrow, March 24, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ji85ek/what_are_your_moves_tomorrow_march_24_2025/)
+- [Copper’s Uber-Bull Predicts New Record on Most-Profitable-Ever Trade](https://www.reddit.com/r/wallstreetbets/comments/1ji8051/coppers_uberbull_predicts_new_record_on/)
+- [Is the sell off of overvalued stocks to retail the savior of our economy?](https://www.reddit.com/r/wallstreetbets/comments/1ji1yru/is_the_sell_off_of_overvalued_stocks_to_retail/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
