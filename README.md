@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [White House Says Gold Reserves May Be Used to Purchase Bitcoin](https://www.reddit.com/r/wallstreetbets/comments/1jj6s0v/white_house_says_gold_reserves_may_be_used_to/)
-- [Nvidia Quantum Day recap](https://www.reddit.com/r/wallstreetbets/comments/1jj547j/nvidia_quantum_day_recap/)
-- [Sitting here waiting on FUBO](https://www.reddit.com/r/wallstreetbets/comments/1jj3xiy/sitting_here_waiting_on_fubo/)
-- [Sp500 Futures trading only… how am I doing?](https://www.reddit.com/r/wallstreetbets/comments/1jj1zfa/sp500_futures_trading_only_how_am_i_doing/)
-- [What Are Your Moves Tomorrow, March 25, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jj0773/what_are_your_moves_tomorrow_march_25_2025/)
+- [FHFA Director Pulte Ends Program Designed to Help First-Time Homebuyers](https://www.reddit.com/r/wallstreetbets/comments/1jjz0lj/fhfa_director_pulte_ends_program_designed_to_help/)
+- [Calls on Apple intelligence](https://www.reddit.com/r/wallstreetbets/comments/1jjyu18/calls_on_apple_intelligence/)
+- [$23k Short term CALLS $56k Medium term PUTS](https://www.reddit.com/r/wallstreetbets/comments/1jjwfvq/23k_short_term_calls_56k_medium_term_puts/)
+- [Epic Day of trading 🔥🔥🔥](https://www.reddit.com/r/wallstreetbets/comments/1jjwbe4/epic_day_of_trading/)
+- [Slow and easy wins the race &lpar;with positions&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jjuhna/slow_and_easy_wins_the_race_with_positions/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
