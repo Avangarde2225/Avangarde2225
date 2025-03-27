@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [FHFA Director Pulte Ends Program Designed to Help First-Time Homebuyers](https://www.reddit.com/r/wallstreetbets/comments/1jjz0lj/fhfa_director_pulte_ends_program_designed_to_help/)
-- [Calls on Apple intelligence](https://www.reddit.com/r/wallstreetbets/comments/1jjyu18/calls_on_apple_intelligence/)
-- [$23k Short term CALLS $56k Medium term PUTS](https://www.reddit.com/r/wallstreetbets/comments/1jjwfvq/23k_short_term_calls_56k_medium_term_puts/)
-- [Epic Day of trading 🔥🔥🔥](https://www.reddit.com/r/wallstreetbets/comments/1jjwbe4/epic_day_of_trading/)
-- [Slow and easy wins the race &lpar;with positions&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jjuhna/slow_and_easy_wins_the_race_with_positions/)
+- [How much will Trump&#39;s 25% tariffs cost the U.S. automotive sector?](https://www.reddit.com/r/wallstreetbets/comments/1jkrd13/how_much_will_trumps_25_tariffs_cost_the_us/)
+- [Airline Demand Between Canada &amp; United States Collapses, Down 70%+](https://www.reddit.com/r/wallstreetbets/comments/1jkrbrn/airline_demand_between_canada_united_states/)
+- [25% Tarrifs on Auto Imports . April 2nd could be brutal 🐻🐻🚧🤡](https://www.reddit.com/r/wallstreetbets/comments/1jkr77z/25_tarrifs_on_auto_imports_april_2nd_could_be/)
+- [Not The Onion : Trump Says He Could Cut China Tariffs to Secure TikTok Deal $ORCL](https://www.reddit.com/r/wallstreetbets/comments/1jkqzaa/not_the_onion_trump_says_he_could_cut_china/)
+- [Softbank-Led Funding Close to Finalizing Its $40 Billion Investment in OpenAI, Valuing It At $300 Billion](https://www.reddit.com/r/wallstreetbets/comments/1jkqvu7/softbankled_funding_close_to_finalizing_its_40/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
