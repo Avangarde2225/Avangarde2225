@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How much will Trump&#39;s 25% tariffs cost the U.S. automotive sector?](https://www.reddit.com/r/wallstreetbets/comments/1jkrd13/how_much_will_trumps_25_tariffs_cost_the_us/)
-- [Airline Demand Between Canada &amp; United States Collapses, Down 70%+](https://www.reddit.com/r/wallstreetbets/comments/1jkrbrn/airline_demand_between_canada_united_states/)
-- [25% Tarrifs on Auto Imports . April 2nd could be brutal 🐻🐻🚧🤡](https://www.reddit.com/r/wallstreetbets/comments/1jkr77z/25_tarrifs_on_auto_imports_april_2nd_could_be/)
-- [Not The Onion : Trump Says He Could Cut China Tariffs to Secure TikTok Deal $ORCL](https://www.reddit.com/r/wallstreetbets/comments/1jkqzaa/not_the_onion_trump_says_he_could_cut_china/)
-- [Softbank-Led Funding Close to Finalizing Its $40 Billion Investment in OpenAI, Valuing It At $300 Billion](https://www.reddit.com/r/wallstreetbets/comments/1jkqvu7/softbankled_funding_close_to_finalizing_its_40/)
+- [Semiconductor dead?](https://www.reddit.com/r/wallstreetbets/comments/1jli92t/semiconductor_dead/)
+- [Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1jli1pj/am_i_cooked/)
+- [Whoever mentioned self excluding and gambling…it worked…kinda](https://www.reddit.com/r/wallstreetbets/comments/1jli04m/whoever_mentioned_self_excluding_and_gamblingit/)
+- [It&#39;s here boy&#39;s. $TSLA expected to release delivery report on April 2nd, 2025. Will it pop or drop...](https://www.reddit.com/r/wallstreetbets/comments/1jlhu0b/its_here_boys_tsla_expected_to_release_delivery/)
+- [Donny after screwing your calls AND your puts](https://www.reddit.com/r/wallstreetbets/comments/1jlhs7l/donny_after_screwing_your_calls_and_your_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
