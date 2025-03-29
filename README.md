@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Semiconductor dead?](https://www.reddit.com/r/wallstreetbets/comments/1jli92t/semiconductor_dead/)
-- [Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1jli1pj/am_i_cooked/)
-- [Whoever mentioned self excluding and gambling…it worked…kinda](https://www.reddit.com/r/wallstreetbets/comments/1jli04m/whoever_mentioned_self_excluding_and_gamblingit/)
-- [It&#39;s here boy&#39;s. $TSLA expected to release delivery report on April 2nd, 2025. Will it pop or drop...](https://www.reddit.com/r/wallstreetbets/comments/1jlhu0b/its_here_boys_tsla_expected_to_release_delivery/)
-- [Donny after screwing your calls AND your puts](https://www.reddit.com/r/wallstreetbets/comments/1jlhs7l/donny_after_screwing_your_calls_and_your_puts/)
+- [Musk&#39;s xAI buys social media platform X for $45 billion](https://www.reddit.com/r/wallstreetbets/comments/1jm6ey1/musks_xai_buys_social_media_platform_x_for_45/)
+- [Banks supervised by the US Federal Deposit Insurance Corp. no longer need prior approval to engage in crypto-related activities](https://www.reddit.com/r/wallstreetbets/comments/1jm6d0s/banks_supervised_by_the_us_federal_deposit/)
+- [Time to rile up some TSLA simps for the weekend](https://www.reddit.com/r/wallstreetbets/comments/1jm66g1/time_to_rile_up_some_tsla_simps_for_the_weekend/)
+- [Lockheed Martin awarded nearly 5 billion from US Army for Precision Strike Missiles Increment One](https://www.reddit.com/r/wallstreetbets/comments/1jm63n8/lockheed_martin_awarded_nearly_5_billion_from_us/)
+- [I’m not fucking leaving](https://www.reddit.com/r/wallstreetbets/comments/1jm5big/im_not_fucking_leaving/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
