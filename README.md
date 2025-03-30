@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Musk&#39;s xAI buys social media platform X for $45 billion](https://www.reddit.com/r/wallstreetbets/comments/1jm6ey1/musks_xai_buys_social_media_platform_x_for_45/)
-- [Banks supervised by the US Federal Deposit Insurance Corp. no longer need prior approval to engage in crypto-related activities](https://www.reddit.com/r/wallstreetbets/comments/1jm6d0s/banks_supervised_by_the_us_federal_deposit/)
-- [Time to rile up some TSLA simps for the weekend](https://www.reddit.com/r/wallstreetbets/comments/1jm66g1/time_to_rile_up_some_tsla_simps_for_the_weekend/)
-- [Lockheed Martin awarded nearly 5 billion from US Army for Precision Strike Missiles Increment One](https://www.reddit.com/r/wallstreetbets/comments/1jm63n8/lockheed_martin_awarded_nearly_5_billion_from_us/)
-- [I’m not fucking leaving](https://www.reddit.com/r/wallstreetbets/comments/1jm5big/im_not_fucking_leaving/)
+- [Why are SMCI and DELL always chosen together for AI infrastructure? What’s the deal?](https://www.reddit.com/r/wallstreetbets/comments/1jmx1cb/why_are_smci_and_dell_always_chosen_together_for/)
+- [Bad Tax Planning Might Lead To An Even Higher Federal Deficit](https://www.reddit.com/r/wallstreetbets/comments/1jmwxty/bad_tax_planning_might_lead_to_an_even_higher/)
+- [SPY 540 easy?](https://www.reddit.com/r/wallstreetbets/comments/1jmwc49/spy_540_easy/)
+- [NVDA breaking my account](https://www.reddit.com/r/wallstreetbets/comments/1jmvth1/nvda_breaking_my_account/)
+- [RIP grandma and INTC calls](https://www.reddit.com/r/wallstreetbets/comments/1jmve1j/rip_grandma_and_intc_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
