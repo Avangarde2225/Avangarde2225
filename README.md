@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why are SMCI and DELL always chosen together for AI infrastructure? What’s the deal?](https://www.reddit.com/r/wallstreetbets/comments/1jmx1cb/why_are_smci_and_dell_always_chosen_together_for/)
-- [Bad Tax Planning Might Lead To An Even Higher Federal Deficit](https://www.reddit.com/r/wallstreetbets/comments/1jmwxty/bad_tax_planning_might_lead_to_an_even_higher/)
-- [SPY 540 easy?](https://www.reddit.com/r/wallstreetbets/comments/1jmwc49/spy_540_easy/)
-- [NVDA breaking my account](https://www.reddit.com/r/wallstreetbets/comments/1jmvth1/nvda_breaking_my_account/)
-- [RIP grandma and INTC calls](https://www.reddit.com/r/wallstreetbets/comments/1jmve1j/rip_grandma_and_intc_calls/)
+- [Japan stocks slump nearly 4% as fresh Trump tariffs due this week keep investors jittery](https://www.reddit.com/r/wallstreetbets/comments/1jnr1je/japan_stocks_slump_nearly_4_as_fresh_trump/)
+- [Gold leap options](https://www.reddit.com/r/wallstreetbets/comments/1jnmgk2/gold_leap_options/)
+- [What Are Your Moves Tomorrow, March 31, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jnl1sq/what_are_your_moves_tomorrow_march_31_2025/)
+- [How do you plan on playing Liberation day?](https://www.reddit.com/r/wallstreetbets/comments/1jnhuzp/how_do_you_plan_on_playing_liberation_day/)
+- [Taking 2 Long or Right on Time ? 🤑🤑](https://www.reddit.com/r/wallstreetbets/comments/1jngdu9/taking_2_long_or_right_on_time/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
