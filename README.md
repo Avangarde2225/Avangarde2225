@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Japan stocks slump nearly 4% as fresh Trump tariffs due this week keep investors jittery](https://www.reddit.com/r/wallstreetbets/comments/1jnr1je/japan_stocks_slump_nearly_4_as_fresh_trump/)
-- [Gold leap options](https://www.reddit.com/r/wallstreetbets/comments/1jnmgk2/gold_leap_options/)
-- [What Are Your Moves Tomorrow, March 31, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jnl1sq/what_are_your_moves_tomorrow_march_31_2025/)
-- [How do you plan on playing Liberation day?](https://www.reddit.com/r/wallstreetbets/comments/1jnhuzp/how_do_you_plan_on_playing_liberation_day/)
-- [Taking 2 Long or Right on Time ? 🤑🤑](https://www.reddit.com/r/wallstreetbets/comments/1jngdu9/taking_2_long_or_right_on_time/)
+- [Hooters files for bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/1joj09q/hooters_files_for_bankruptcy/)
+- [Hedgefunds back at it again with the 4pm dump](https://www.reddit.com/r/wallstreetbets/comments/1joisjf/hedgefunds_back_at_it_again_with_the_4pm_dump/)
+- [Goldman Sachs slashed its S&amp;P 500 target again, with tariffs set to hit stock returns and economic growth](https://www.reddit.com/r/wallstreetbets/comments/1joimll/goldman_sachs_slashed_its_sp_500_target_again/)
+- [Fed’s Williams says rates to remain steady for &#39;some time&#39; amid Trump tariff uncertainty](https://www.reddit.com/r/wallstreetbets/comments/1joiknz/feds_williams_says_rates_to_remain_steady_for/)
+- [Sold the same Jun 30 SPX calls as JPM](https://www.reddit.com/r/wallstreetbets/comments/1johnso/sold_the_same_jun_30_spx_calls_as_jpm/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
