@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hooters files for bankruptcy](https://www.reddit.com/r/wallstreetbets/comments/1joj09q/hooters_files_for_bankruptcy/)
-- [Hedgefunds back at it again with the 4pm dump](https://www.reddit.com/r/wallstreetbets/comments/1joisjf/hedgefunds_back_at_it_again_with_the_4pm_dump/)
-- [Goldman Sachs slashed its S&amp;P 500 target again, with tariffs set to hit stock returns and economic growth](https://www.reddit.com/r/wallstreetbets/comments/1joimll/goldman_sachs_slashed_its_sp_500_target_again/)
-- [Fed’s Williams says rates to remain steady for &#39;some time&#39; amid Trump tariff uncertainty](https://www.reddit.com/r/wallstreetbets/comments/1joiknz/feds_williams_says_rates_to_remain_steady_for/)
-- [Sold the same Jun 30 SPX calls as JPM](https://www.reddit.com/r/wallstreetbets/comments/1johnso/sold_the_same_jun_30_spx_calls_as_jpm/)
+- [YOLO&#39;d entire portfolio into CoreWeave](https://www.reddit.com/r/wallstreetbets/comments/1jpbcld/yolod_entire_portfolio_into_coreweave/)
+- [**$CVNA – The House of Cards is Crumbling**](https://www.reddit.com/r/wallstreetbets/comments/1jpbc9l/cvna_the_house_of_cards_is_crumbling/)
+- [Atlanta Fed’s GDP estimate -3.7%](https://www.reddit.com/r/wallstreetbets/comments/1jpb4hz/atlanta_feds_gdp_estimate_37/)
+- [Bulls vs bears at shoe department of Walmart](https://www.reddit.com/r/wallstreetbets/comments/1jp9fby/bulls_vs_bears_at_shoe_department_of_walmart/)
+- [End of march bounce, thanks bears](https://www.reddit.com/r/wallstreetbets/comments/1jp8ac8/end_of_march_bounce_thanks_bears/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
