@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [YOLO&#39;d entire portfolio into CoreWeave](https://www.reddit.com/r/wallstreetbets/comments/1jpbcld/yolod_entire_portfolio_into_coreweave/)
-- [**$CVNA – The House of Cards is Crumbling**](https://www.reddit.com/r/wallstreetbets/comments/1jpbc9l/cvna_the_house_of_cards_is_crumbling/)
-- [Atlanta Fed’s GDP estimate -3.7%](https://www.reddit.com/r/wallstreetbets/comments/1jpb4hz/atlanta_feds_gdp_estimate_37/)
-- [Bulls vs bears at shoe department of Walmart](https://www.reddit.com/r/wallstreetbets/comments/1jp9fby/bulls_vs_bears_at_shoe_department_of_walmart/)
-- [End of march bounce, thanks bears](https://www.reddit.com/r/wallstreetbets/comments/1jp8ac8/end_of_march_bounce_thanks_bears/)
+- [Mr. President, please… there’s too much winning… my portfolio can’t handle it anymore](https://www.reddit.com/r/wallstreetbets/comments/1jq4arz/mr_president_please_theres_too_much_winning_my/)
+- [Tariffs Were Priced In](https://www.reddit.com/r/wallstreetbets/comments/1jq40rn/tariffs_were_priced_in/)
+- [$22.5K SPY 550 Puts Apr 4](https://www.reddit.com/r/wallstreetbets/comments/1jq3hxp/225k_spy_550_puts_apr_4/)
+- [Put in about $5k on puts today](https://www.reddit.com/r/wallstreetbets/comments/1jq383z/put_in_about_5k_on_puts_today/)
+- [I Got Lucky](https://www.reddit.com/r/wallstreetbets/comments/1jq29da/i_got_lucky/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
