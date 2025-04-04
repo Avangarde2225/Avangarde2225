@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Mr. President, please… there’s too much winning… my portfolio can’t handle it anymore](https://www.reddit.com/r/wallstreetbets/comments/1jq4arz/mr_president_please_theres_too_much_winning_my/)
-- [Tariffs Were Priced In](https://www.reddit.com/r/wallstreetbets/comments/1jq40rn/tariffs_were_priced_in/)
-- [$22.5K SPY 550 Puts Apr 4](https://www.reddit.com/r/wallstreetbets/comments/1jq3hxp/225k_spy_550_puts_apr_4/)
-- [Put in about $5k on puts today](https://www.reddit.com/r/wallstreetbets/comments/1jq383z/put_in_about_5k_on_puts_today/)
-- [I Got Lucky](https://www.reddit.com/r/wallstreetbets/comments/1jq29da/i_got_lucky/)
+- [My highly regarded Vix bet finally printed- up $400k today. Holding most of it, hoping the vix hits 50!](https://www.reddit.com/r/wallstreetbets/comments/1jqwc25/my_highly_regarded_vix_bet_finally_printed_up/)
+- [19 bagger on spy puts](https://www.reddit.com/r/wallstreetbets/comments/1jqw0wi/19_bagger_on_spy_puts/)
+- [75k Gain On Puts](https://www.reddit.com/r/wallstreetbets/comments/1jqtekc/75k_gain_on_puts/)
+- [Craziest 48 Hours of my Life](https://www.reddit.com/r/wallstreetbets/comments/1jqt8px/craziest_48_hours_of_my_life/)
+- [1500—&gt;99,142](https://www.reddit.com/r/wallstreetbets/comments/1jqsq6k/150099142/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
