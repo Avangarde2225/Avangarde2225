@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My highly regarded Vix bet finally printed- up $400k today. Holding most of it, hoping the vix hits 50!](https://www.reddit.com/r/wallstreetbets/comments/1jqwc25/my_highly_regarded_vix_bet_finally_printed_up/)
-- [19 bagger on spy puts](https://www.reddit.com/r/wallstreetbets/comments/1jqw0wi/19_bagger_on_spy_puts/)
-- [75k Gain On Puts](https://www.reddit.com/r/wallstreetbets/comments/1jqtekc/75k_gain_on_puts/)
-- [Craziest 48 Hours of my Life](https://www.reddit.com/r/wallstreetbets/comments/1jqt8px/craziest_48_hours_of_my_life/)
-- [1500—&gt;99,142](https://www.reddit.com/r/wallstreetbets/comments/1jqsq6k/150099142/)
+- [$20—&gt;$2400](https://www.reddit.com/r/wallstreetbets/comments/1jrpfgf/202400/)
+- [TSLA Puts 🚀💰 930% Gain – Who Needs Diamond Hands?!](https://www.reddit.com/r/wallstreetbets/comments/1jrmnbs/tsla_puts_930_gain_who_needs_diamond_hands/)
+- [It’s time to call BS on everything. I sold it all. Inverse position opened.](https://www.reddit.com/r/wallstreetbets/comments/1jrlgcw/its_time_to_call_bs_on_everything_i_sold_it_all/)
+- [We got Great Depression part 2 before GTA 6](https://www.reddit.com/r/wallstreetbets/comments/1jrl8ul/we_got_great_depression_part_2_before_gta_6/)
+- [Weekend Discussion Thread for the Weekend of April 04, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jrl2si/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
