@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$20—&gt;$2400](https://www.reddit.com/r/wallstreetbets/comments/1jrpfgf/202400/)
-- [TSLA Puts 🚀💰 930% Gain – Who Needs Diamond Hands?!](https://www.reddit.com/r/wallstreetbets/comments/1jrmnbs/tsla_puts_930_gain_who_needs_diamond_hands/)
-- [It’s time to call BS on everything. I sold it all. Inverse position opened.](https://www.reddit.com/r/wallstreetbets/comments/1jrlgcw/its_time_to_call_bs_on_everything_i_sold_it_all/)
-- [We got Great Depression part 2 before GTA 6](https://www.reddit.com/r/wallstreetbets/comments/1jrl8ul/we_got_great_depression_part_2_before_gta_6/)
-- [Weekend Discussion Thread for the Weekend of April 04, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jrl2si/weekend_discussion_thread_for_the_weekend_of/)
+- [JUST KNOW THIS FOR MONDAY: THE DIRECTION IS DOWNWARD](https://www.reddit.com/r/wallstreetbets/comments/1jshsae/just_know_this_for_monday_the_direction_is/)
+- [📉 BAGBRO vs 💰 TYCOON: The NVDA Edition](https://www.reddit.com/r/wallstreetbets/comments/1jsg6ze/bagbro_vs_tycoon_the_nvda_edition/)
+- [Will there be a Black Monday next week?](https://www.reddit.com/r/wallstreetbets/comments/1jsfdg3/will_there_be_a_black_monday_next_week/)
+- [Expert the bounce ... SPY 530/535 CALLS 4/17 4/25**](https://www.reddit.com/r/wallstreetbets/comments/1jsf4qc/expert_the_bounce_spy_530535_calls_417_425/)
+- [That white haired Wall Street trader says the market is a sh t show!](https://www.reddit.com/r/wallstreetbets/comments/1jse2a0/that_white_haired_wall_street_trader_says_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
