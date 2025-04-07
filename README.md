@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [JUST KNOW THIS FOR MONDAY: THE DIRECTION IS DOWNWARD](https://www.reddit.com/r/wallstreetbets/comments/1jshsae/just_know_this_for_monday_the_direction_is/)
-- [📉 BAGBRO vs 💰 TYCOON: The NVDA Edition](https://www.reddit.com/r/wallstreetbets/comments/1jsg6ze/bagbro_vs_tycoon_the_nvda_edition/)
-- [Will there be a Black Monday next week?](https://www.reddit.com/r/wallstreetbets/comments/1jsfdg3/will_there_be_a_black_monday_next_week/)
-- [Expert the bounce ... SPY 530/535 CALLS 4/17 4/25**](https://www.reddit.com/r/wallstreetbets/comments/1jsf4qc/expert_the_bounce_spy_530535_calls_417_425/)
-- [That white haired Wall Street trader says the market is a sh t show!](https://www.reddit.com/r/wallstreetbets/comments/1jse2a0/that_white_haired_wall_street_trader_says_the/)
+- [The penguins r recruiting 😎](https://www.reddit.com/r/wallstreetbets/comments/1jt8rvq/the_penguins_r_recruiting/)
+- [Nikkei 225 and Topix plunge 6% on open, futures trading suspended due to circuit breaker](https://www.reddit.com/r/wallstreetbets/comments/1jt8gq1/nikkei_225_and_topix_plunge_6_on_open_futures/)
+- [Largest 3-Day Drops in SP500 History](https://www.reddit.com/r/wallstreetbets/comments/1jt852c/largest_3day_drops_in_sp500_history/)
+- [Do I belong here yet?](https://www.reddit.com/r/wallstreetbets/comments/1jt7dmb/do_i_belong_here_yet/)
+- [VIX April 16 $55 Calls - what price should I sell these for tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/1jt6y0v/vix_april_16_55_calls_what_price_should_i_sell/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
