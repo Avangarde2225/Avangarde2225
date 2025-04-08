@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The penguins r recruiting 😎](https://www.reddit.com/r/wallstreetbets/comments/1jt8rvq/the_penguins_r_recruiting/)
-- [Nikkei 225 and Topix plunge 6% on open, futures trading suspended due to circuit breaker](https://www.reddit.com/r/wallstreetbets/comments/1jt8gq1/nikkei_225_and_topix_plunge_6_on_open_futures/)
-- [Largest 3-Day Drops in SP500 History](https://www.reddit.com/r/wallstreetbets/comments/1jt852c/largest_3day_drops_in_sp500_history/)
-- [Do I belong here yet?](https://www.reddit.com/r/wallstreetbets/comments/1jt7dmb/do_i_belong_here_yet/)
-- [VIX April 16 $55 Calls - what price should I sell these for tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/1jt6y0v/vix_april_16_55_calls_what_price_should_i_sell/)
+- [$80 -&gt; $6k](https://www.reddit.com/r/wallstreetbets/comments/1jtyzf4/80_6k/)
+- [Trump Adviser Releases list of demands, no end in sight for trade war. Puts on US GDP](https://www.reddit.com/r/wallstreetbets/comments/1jtxajy/trump_adviser_releases_list_of_demands_no_end_in/)
+- [Apple redirects iPhone production to India amidst high China tariffs.](https://www.reddit.com/r/wallstreetbets/comments/1jtuwnm/apple_redirects_iphone_production_to_india_amidst/)
+- [What Are Your Moves Tomorrow, April 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jtuo16/what_are_your_moves_tomorrow_april_08_2025/)
+- [Post Powell Fed](https://www.reddit.com/r/wallstreetbets/comments/1jttpp0/post_powell_fed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
