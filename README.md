@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$80 -&gt; $6k](https://www.reddit.com/r/wallstreetbets/comments/1jtyzf4/80_6k/)
-- [Trump Adviser Releases list of demands, no end in sight for trade war. Puts on US GDP](https://www.reddit.com/r/wallstreetbets/comments/1jtxajy/trump_adviser_releases_list_of_demands_no_end_in/)
-- [Apple redirects iPhone production to India amidst high China tariffs.](https://www.reddit.com/r/wallstreetbets/comments/1jtuwnm/apple_redirects_iphone_production_to_india_amidst/)
-- [What Are Your Moves Tomorrow, April 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jtuo16/what_are_your_moves_tomorrow_april_08_2025/)
-- [Post Powell Fed](https://www.reddit.com/r/wallstreetbets/comments/1jttpp0/post_powell_fed/)
+- [$500 -&gt; $15,000](https://www.reddit.com/r/wallstreetbets/comments/1jusd99/500_15000/)
+- [Calls on Luigi?](https://www.reddit.com/r/wallstreetbets/comments/1jurtz5/calls_on_luigi/)
+- [WE RIDE AT DAWN](https://www.reddit.com/r/wallstreetbets/comments/1jurqeh/we_ride_at_dawn/)
+- [Taking $500 to $55,000 in 4 trading days](https://www.reddit.com/r/wallstreetbets/comments/1jurgux/taking_500_to_55000_in_4_trading_days/)
+- [$49k+ gain in a week thanks to tariff man](https://www.reddit.com/r/wallstreetbets/comments/1juqwin/49k_gain_in_a_week_thanks_to_tariff_man/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
