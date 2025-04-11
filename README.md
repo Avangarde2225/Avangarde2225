@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tariffs are temporary, Wu-Tang is Forever](https://www.reddit.com/r/wallstreetbets/comments/1jvj85w/tariffs_are_temporary_wutang_is_forever/)
-- [Biggest one-day gain for the NASDAQ since 10/13/2008 - but don&#39;t forget what happened 2 days later in 2008](https://www.reddit.com/r/wallstreetbets/comments/1jvijnj/biggest_oneday_gain_for_the_nasdaq_since_10132008/)
-- [World Record %???](https://www.reddit.com/r/wallstreetbets/comments/1jvhrqj/world_record/)
-- [From $2k -&gt; $108k trading the market swings in the past week.](https://www.reddit.com/r/wallstreetbets/comments/1jvg44a/from_2k_108k_trading_the_market_swings_in_the/)
-- [What Are Your Moves Tomorrow, April 10, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jvf5zp/what_are_your_moves_tomorrow_april_10_2025/)
+- [Trump bragging about how much his friends made in the market](https://www.reddit.com/r/wallstreetbets/comments/1jwd5ub/trump_bragging_about_how_much_his_friends_made_in/)
+- [SPY Gains](https://www.reddit.com/r/wallstreetbets/comments/1jwazml/spy_gains/)
+- [Out of the hole](https://www.reddit.com/r/wallstreetbets/comments/1jw7t3l/out_of_the_hole/)
+- [Bessent doesn&#39;t rule out delisting Chinese stocks](https://www.reddit.com/r/wallstreetbets/comments/1jw7egi/bessent_doesnt_rule_out_delisting_chinese_stocks/)
+- [What Are Your Moves Tomorrow, April 11, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jw75qh/what_are_your_moves_tomorrow_april_11_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
