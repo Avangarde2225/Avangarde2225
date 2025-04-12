@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump bragging about how much his friends made in the market](https://www.reddit.com/r/wallstreetbets/comments/1jwd5ub/trump_bragging_about_how_much_his_friends_made_in/)
-- [SPY Gains](https://www.reddit.com/r/wallstreetbets/comments/1jwazml/spy_gains/)
-- [Out of the hole](https://www.reddit.com/r/wallstreetbets/comments/1jw7t3l/out_of_the_hole/)
-- [Bessent doesn&#39;t rule out delisting Chinese stocks](https://www.reddit.com/r/wallstreetbets/comments/1jw7egi/bessent_doesnt_rule_out_delisting_chinese_stocks/)
-- [What Are Your Moves Tomorrow, April 11, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jw75qh/what_are_your_moves_tomorrow_april_11_2025/)
+- [My returns today look like the state of Maine.](https://www.reddit.com/r/wallstreetbets/comments/1jx4ivv/my_returns_today_look_like_the_state_of_maine/)
+- [The grizzly got wrecked](https://www.reddit.com/r/wallstreetbets/comments/1jx43mp/the_grizzly_got_wrecked/)
+- [Options play for next week&#39;s uncertainty. &lpar;Synthetic Call Spread&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jx3o48/options_play_for_next_weeks_uncertainty_synthetic/)
+- [Options are great in a Roth IRA! I’m a genius! TSLA puts 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1jx3mcz/options_are_great_in_a_roth_ira_im_a_genius_tsla/)
+- [Webull just went public today under $BULL and nobody even knows yet…](https://www.reddit.com/r/wallstreetbets/comments/1jx2kzp/webull_just_went_public_today_under_bull_and/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
