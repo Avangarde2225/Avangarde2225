@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My returns today look like the state of Maine.](https://www.reddit.com/r/wallstreetbets/comments/1jx4ivv/my_returns_today_look_like_the_state_of_maine/)
-- [The grizzly got wrecked](https://www.reddit.com/r/wallstreetbets/comments/1jx43mp/the_grizzly_got_wrecked/)
-- [Options play for next week&#39;s uncertainty. &lpar;Synthetic Call Spread&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1jx3o48/options_play_for_next_weeks_uncertainty_synthetic/)
-- [Options are great in a Roth IRA! I’m a genius! TSLA puts 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1jx3mcz/options_are_great_in_a_roth_ira_im_a_genius_tsla/)
-- [Webull just went public today under $BULL and nobody even knows yet…](https://www.reddit.com/r/wallstreetbets/comments/1jx2kzp/webull_just_went_public_today_under_bull_and/)
+- [Take long breaks, come back even more regarded every time. Monday might be it for me. 🫡](https://www.reddit.com/r/wallstreetbets/comments/1jxww96/take_long_breaks_come_back_even_more_regarded/)
+- [33,000 open contracts on a bond ETF that’s supposed to be safe...](https://www.reddit.com/r/wallstreetbets/comments/1jxvteu/33000_open_contracts_on_a_bond_etf_thats_supposed/)
+- [For those who bought $NVDA puts](https://www.reddit.com/r/wallstreetbets/comments/1jxudsj/for_those_who_bought_nvda_puts/)
+- [Chick-fil-A](https://www.reddit.com/r/wallstreetbets/comments/1jxu9il/chickfila/)
+- [why isn&#39;t short VIX free money right now](https://www.reddit.com/r/wallstreetbets/comments/1jxpt5m/why_isnt_short_vix_free_money_right_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
