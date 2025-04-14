@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Take long breaks, come back even more regarded every time. Monday might be it for me. 🫡](https://www.reddit.com/r/wallstreetbets/comments/1jxww96/take_long_breaks_come_back_even_more_regarded/)
-- [33,000 open contracts on a bond ETF that’s supposed to be safe...](https://www.reddit.com/r/wallstreetbets/comments/1jxvteu/33000_open_contracts_on_a_bond_etf_thats_supposed/)
-- [For those who bought $NVDA puts](https://www.reddit.com/r/wallstreetbets/comments/1jxudsj/for_those_who_bought_nvda_puts/)
-- [Chick-fil-A](https://www.reddit.com/r/wallstreetbets/comments/1jxu9il/chickfila/)
-- [why isn&#39;t short VIX free money right now](https://www.reddit.com/r/wallstreetbets/comments/1jxpt5m/why_isnt_short_vix_free_money_right_now/)
+- [Are these calls cooked?](https://www.reddit.com/r/wallstreetbets/comments/1jykipz/are_these_calls_cooked/)
+- [What Are Your Moves Tomorrow, April 14, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jyghoh/what_are_your_moves_tomorrow_april_14_2025/)
+- [TSLA Q2 Deliveries](https://www.reddit.com/r/wallstreetbets/comments/1jyfkuo/tsla_q2_deliveries/)
+- [China Halts Critical Exports as Trade War Intensifies](https://www.reddit.com/r/wallstreetbets/comments/1jyelg4/china_halts_critical_exports_as_trade_war/)
+- [Consumer Sentiment Plunges to Second-Lowest on Record since 1952](https://www.reddit.com/r/wallstreetbets/comments/1jycb2j/consumer_sentiment_plunges_to_secondlowest_on/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
