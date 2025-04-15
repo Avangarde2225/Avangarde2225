@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Are these calls cooked?](https://www.reddit.com/r/wallstreetbets/comments/1jykipz/are_these_calls_cooked/)
-- [What Are Your Moves Tomorrow, April 14, 2025](https://www.reddit.com/r/wallstreetbets/comments/1jyghoh/what_are_your_moves_tomorrow_april_14_2025/)
-- [TSLA Q2 Deliveries](https://www.reddit.com/r/wallstreetbets/comments/1jyfkuo/tsla_q2_deliveries/)
-- [China Halts Critical Exports as Trade War Intensifies](https://www.reddit.com/r/wallstreetbets/comments/1jyelg4/china_halts_critical_exports_as_trade_war/)
-- [Consumer Sentiment Plunges to Second-Lowest on Record since 1952](https://www.reddit.com/r/wallstreetbets/comments/1jycb2j/consumer_sentiment_plunges_to_secondlowest_on/)
+- [The candidates Trump will be interviewing to replace Fed Chair Powell](https://www.reddit.com/r/wallstreetbets/comments/1jzeh55/the_candidates_trump_will_be_interviewing_to/)
+- [BREAKING:Treasury Sec Bessent says Trump is thinking about the successor for Fed Chair Powell &amp; will begin interviewing candidates this fall](https://www.reddit.com/r/wallstreetbets/comments/1jzdxqu/breakingtreasury_sec_bessent_says_trump_is/)
+- [What setting turns the line green?](https://www.reddit.com/r/wallstreetbets/comments/1jzdtdd/what_setting_turns_the_line_green/)
+- [Cooked](https://www.reddit.com/r/wallstreetbets/comments/1jzczq2/cooked/)
+- [Jamie Dimon sells about $31.5 million worth of JPMorgan shares](https://www.reddit.com/r/wallstreetbets/comments/1jzckot/jamie_dimon_sells_about_315_million_worth_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
