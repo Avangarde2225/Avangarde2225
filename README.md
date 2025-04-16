@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The candidates Trump will be interviewing to replace Fed Chair Powell](https://www.reddit.com/r/wallstreetbets/comments/1jzeh55/the_candidates_trump_will_be_interviewing_to/)
-- [BREAKING:Treasury Sec Bessent says Trump is thinking about the successor for Fed Chair Powell &amp; will begin interviewing candidates this fall](https://www.reddit.com/r/wallstreetbets/comments/1jzdxqu/breakingtreasury_sec_bessent_says_trump_is/)
-- [What setting turns the line green?](https://www.reddit.com/r/wallstreetbets/comments/1jzdtdd/what_setting_turns_the_line_green/)
-- [Cooked](https://www.reddit.com/r/wallstreetbets/comments/1jzczq2/cooked/)
-- [Jamie Dimon sells about $31.5 million worth of JPMorgan shares](https://www.reddit.com/r/wallstreetbets/comments/1jzckot/jamie_dimon_sells_about_315_million_worth_of/)
+- [Is Cramer right this time?](https://www.reddit.com/r/wallstreetbets/comments/1k07eyr/is_cramer_right_this_time/)
+- [Tesla accused of using sneaky tactic to dodge car repairs](https://www.reddit.com/r/wallstreetbets/comments/1k07dle/tesla_accused_of_using_sneaky_tactic_to_dodge_car/)
+- [Tomorrow Will God Be On My Side?](https://www.reddit.com/r/wallstreetbets/comments/1k07d49/tomorrow_will_god_be_on_my_side/)
+- [Why does the fortune cookie printer know I sold my NVDA shares before the most recent split?](https://www.reddit.com/r/wallstreetbets/comments/1k07ayq/why_does_the_fortune_cookie_printer_know_i_sold/)
+- [I lost 50% of my call option value! My portfolio is fuked up tomorrow morning! Market reaction also does not make sense!!!!!](https://www.reddit.com/r/wallstreetbets/comments/1k06dnn/i_lost_50_of_my_call_option_value_my_portfolio_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
