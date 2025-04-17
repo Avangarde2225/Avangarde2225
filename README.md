@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is Cramer right this time?](https://www.reddit.com/r/wallstreetbets/comments/1k07eyr/is_cramer_right_this_time/)
-- [Tesla accused of using sneaky tactic to dodge car repairs](https://www.reddit.com/r/wallstreetbets/comments/1k07dle/tesla_accused_of_using_sneaky_tactic_to_dodge_car/)
-- [Tomorrow Will God Be On My Side?](https://www.reddit.com/r/wallstreetbets/comments/1k07d49/tomorrow_will_god_be_on_my_side/)
-- [Why does the fortune cookie printer know I sold my NVDA shares before the most recent split?](https://www.reddit.com/r/wallstreetbets/comments/1k07ayq/why_does_the_fortune_cookie_printer_know_i_sold/)
-- [I lost 50% of my call option value! My portfolio is fuked up tomorrow morning! Market reaction also does not make sense!!!!!](https://www.reddit.com/r/wallstreetbets/comments/1k06dnn/i_lost_50_of_my_call_option_value_my_portfolio_is/)
+- [Is my Amazon calls going to be okay this upcoming earning?](https://www.reddit.com/r/wallstreetbets/comments/1k0ztsp/is_my_amazon_calls_going_to_be_okay_this_upcoming/)
+- [Is the market more fucked than it seems?](https://www.reddit.com/r/wallstreetbets/comments/1k0y73m/is_the_market_more_fucked_than_it_seems/)
+- [Hertz shares surge more than 50% after Bill Ackman takes big stake in the rental car firm](https://www.reddit.com/r/wallstreetbets/comments/1k0x7nr/hertz_shares_surge_more_than_50_after_bill_ackman/)
+- [Don’t see this too often](https://www.reddit.com/r/wallstreetbets/comments/1k0ubo1/dont_see_this_too_often/)
+- [I was about to rope and then +97k](https://www.reddit.com/r/wallstreetbets/comments/1k0u286/i_was_about_to_rope_and_then_97k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
