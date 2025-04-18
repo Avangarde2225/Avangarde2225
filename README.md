@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is my Amazon calls going to be okay this upcoming earning?](https://www.reddit.com/r/wallstreetbets/comments/1k0ztsp/is_my_amazon_calls_going_to_be_okay_this_upcoming/)
-- [Is the market more fucked than it seems?](https://www.reddit.com/r/wallstreetbets/comments/1k0y73m/is_the_market_more_fucked_than_it_seems/)
-- [Hertz shares surge more than 50% after Bill Ackman takes big stake in the rental car firm](https://www.reddit.com/r/wallstreetbets/comments/1k0x7nr/hertz_shares_surge_more_than_50_after_bill_ackman/)
-- [Don’t see this too often](https://www.reddit.com/r/wallstreetbets/comments/1k0ubo1/dont_see_this_too_often/)
-- [I was about to rope and then +97k](https://www.reddit.com/r/wallstreetbets/comments/1k0u286/i_was_about_to_rope_and_then_97k/)
+- [I think I timed the dip perfect with some leaps](https://www.reddit.com/r/wallstreetbets/comments/1k1qxkg/i_think_i_timed_the_dip_perfect_with_some_leaps/)
+- [Life comes at you fast](https://www.reddit.com/r/wallstreetbets/comments/1k1q4gd/life_comes_at_you_fast/)
+- [Just shy of $45k this month, starting with $27k. Most in the last 3 days.](https://www.reddit.com/r/wallstreetbets/comments/1k1pud5/just_shy_of_45k_this_month_starting_with_27k_most/)
+- [Slow and steady wins the race, not a single red day yet this year.](https://www.reddit.com/r/wallstreetbets/comments/1k1odqq/slow_and_steady_wins_the_race_not_a_single_red/)
+- [Help! Put Debit spread automatically sold for 1$](https://www.reddit.com/r/wallstreetbets/comments/1k1o7kb/help_put_debit_spread_automatically_sold_for_1/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
