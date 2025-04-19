@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I think I timed the dip perfect with some leaps](https://www.reddit.com/r/wallstreetbets/comments/1k1qxkg/i_think_i_timed_the_dip_perfect_with_some_leaps/)
-- [Life comes at you fast](https://www.reddit.com/r/wallstreetbets/comments/1k1q4gd/life_comes_at_you_fast/)
-- [Just shy of $45k this month, starting with $27k. Most in the last 3 days.](https://www.reddit.com/r/wallstreetbets/comments/1k1pud5/just_shy_of_45k_this_month_starting_with_27k_most/)
-- [Slow and steady wins the race, not a single red day yet this year.](https://www.reddit.com/r/wallstreetbets/comments/1k1odqq/slow_and_steady_wins_the_race_not_a_single_red/)
-- [Help! Put Debit spread automatically sold for 1$](https://www.reddit.com/r/wallstreetbets/comments/1k1o7kb/help_put_debit_spread_automatically_sold_for_1/)
+- [What Happens to a Daily Leveraged ETF like TSLQ if Trading is Halted for the Rest of the Day?](https://www.reddit.com/r/wallstreetbets/comments/1k2k0c5/what_happens_to_a_daily_leveraged_etf_like_tslq/)
+- [If we&#39;re in a recession, what are the strippers saying?](https://www.reddit.com/r/wallstreetbets/comments/1k2izdp/if_were_in_a_recession_what_are_the_strippers/)
+- [Webull YOLO 🚀](https://www.reddit.com/r/wallstreetbets/comments/1k2i0j4/webull_yolo/)
+- [10k on BULL Gold x20](https://www.reddit.com/r/wallstreetbets/comments/1k2g7v8/10k_on_bull_gold_x20/)
+- [You Dont Say? TSLA DELAY](https://www.reddit.com/r/wallstreetbets/comments/1k2fd00/you_dont_say_tsla_delay/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
