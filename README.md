@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What Happens to a Daily Leveraged ETF like TSLQ if Trading is Halted for the Rest of the Day?](https://www.reddit.com/r/wallstreetbets/comments/1k2k0c5/what_happens_to_a_daily_leveraged_etf_like_tslq/)
-- [If we&#39;re in a recession, what are the strippers saying?](https://www.reddit.com/r/wallstreetbets/comments/1k2izdp/if_were_in_a_recession_what_are_the_strippers/)
-- [Webull YOLO 🚀](https://www.reddit.com/r/wallstreetbets/comments/1k2i0j4/webull_yolo/)
-- [10k on BULL Gold x20](https://www.reddit.com/r/wallstreetbets/comments/1k2g7v8/10k_on_bull_gold_x20/)
-- [You Dont Say? TSLA DELAY](https://www.reddit.com/r/wallstreetbets/comments/1k2fd00/you_dont_say_tsla_delay/)
+- [Introducing the WSB Put/Call Ratio!](https://www.reddit.com/r/wallstreetbets/comments/1k38wo0/introducing_the_wsb_putcall_ratio/)
+- [Reminder, this was J Pow back in November.](https://www.reddit.com/r/wallstreetbets/comments/1k37nwt/reminder_this_was_j_pow_back_in_november/)
+- [Where are we now? 👀](https://www.reddit.com/r/wallstreetbets/comments/1k32jjv/where_are_we_now/)
+- [HUBS - DEATH CROSS TO DEATH CROSS. IS THIS THE RESISTANCE?](https://www.reddit.com/r/wallstreetbets/comments/1k32e8z/hubs_death_cross_to_death_cross_is_this_the/)
+- [$6,862 in a week. Not a prediction. Not a dream. Just execution so clean it stings.](https://www.reddit.com/r/wallstreetbets/comments/1k313ux/6862_in_a_week_not_a_prediction_not_a_dream_just/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
