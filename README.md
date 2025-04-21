@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Introducing the WSB Put/Call Ratio!](https://www.reddit.com/r/wallstreetbets/comments/1k38wo0/introducing_the_wsb_putcall_ratio/)
-- [Reminder, this was J Pow back in November.](https://www.reddit.com/r/wallstreetbets/comments/1k37nwt/reminder_this_was_j_pow_back_in_november/)
-- [Where are we now? 👀](https://www.reddit.com/r/wallstreetbets/comments/1k32jjv/where_are_we_now/)
-- [HUBS - DEATH CROSS TO DEATH CROSS. IS THIS THE RESISTANCE?](https://www.reddit.com/r/wallstreetbets/comments/1k32e8z/hubs_death_cross_to_death_cross_is_this_the/)
-- [$6,862 in a week. Not a prediction. Not a dream. Just execution so clean it stings.](https://www.reddit.com/r/wallstreetbets/comments/1k313ux/6862_in_a_week_not_a_prediction_not_a_dream_just/)
+- [Will Tariffs Crash the Economy? Fed Chairman Secret Fears!](https://www.reddit.com/r/wallstreetbets/comments/1k3xxp0/will_tariffs_crash_the_economy_fed_chairman/)
+- [What Are Your Moves Tomorrow, April 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1k3v2bq/what_are_your_moves_tomorrow_april_21_2025/)
+- [Tesla earnings this week](https://www.reddit.com/r/wallstreetbets/comments/1k3ou80/tesla_earnings_this_week/)
+- [IEEPA does not specifically mention tariffs. Lawsuits definitely have chance to win.](https://www.reddit.com/r/wallstreetbets/comments/1k3ot2w/ieepa_does_not_specifically_mention_tariffs/)
+- [$ASTS DD The Space Trade will Cum.](https://www.reddit.com/r/wallstreetbets/comments/1k3o8au/asts_dd_the_space_trade_will_cum/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
