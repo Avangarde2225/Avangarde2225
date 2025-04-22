@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Will Tariffs Crash the Economy? Fed Chairman Secret Fears!](https://www.reddit.com/r/wallstreetbets/comments/1k3xxp0/will_tariffs_crash_the_economy_fed_chairman/)
-- [What Are Your Moves Tomorrow, April 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1k3v2bq/what_are_your_moves_tomorrow_april_21_2025/)
-- [Tesla earnings this week](https://www.reddit.com/r/wallstreetbets/comments/1k3ou80/tesla_earnings_this_week/)
-- [IEEPA does not specifically mention tariffs. Lawsuits definitely have chance to win.](https://www.reddit.com/r/wallstreetbets/comments/1k3ot2w/ieepa_does_not_specifically_mention_tariffs/)
-- [$ASTS DD The Space Trade will Cum.](https://www.reddit.com/r/wallstreetbets/comments/1k3o8au/asts_dd_the_space_trade_will_cum/)
+- [I’m not really getting a whole lot better at this](https://www.reddit.com/r/wallstreetbets/comments/1k4t387/im_not_really_getting_a_whole_lot_better_at_this/)
+- [Is everybody wiped out or do we still do 0DTEs around here?](https://www.reddit.com/r/wallstreetbets/comments/1k4qkv8/is_everybody_wiped_out_or_do_we_still_do_0dtes/)
+- [I lost $23,683 but still outperformed the market](https://www.reddit.com/r/wallstreetbets/comments/1k4olg0/i_lost_23683_but_still_outperformed_the_market/)
+- [What Are Your Moves Tomorrow, April 22, 2025](https://www.reddit.com/r/wallstreetbets/comments/1k4mz8r/what_are_your_moves_tomorrow_april_22_2025/)
+- [I just did it $NKE 📹🕹️](https://www.reddit.com/r/wallstreetbets/comments/1k4msbu/i_just_did_it_nke/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
