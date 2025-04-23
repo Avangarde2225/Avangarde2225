@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I’m not really getting a whole lot better at this](https://www.reddit.com/r/wallstreetbets/comments/1k4t387/im_not_really_getting_a_whole_lot_better_at_this/)
-- [Is everybody wiped out or do we still do 0DTEs around here?](https://www.reddit.com/r/wallstreetbets/comments/1k4qkv8/is_everybody_wiped_out_or_do_we_still_do_0dtes/)
-- [I lost $23,683 but still outperformed the market](https://www.reddit.com/r/wallstreetbets/comments/1k4olg0/i_lost_23683_but_still_outperformed_the_market/)
-- [What Are Your Moves Tomorrow, April 22, 2025](https://www.reddit.com/r/wallstreetbets/comments/1k4mz8r/what_are_your_moves_tomorrow_april_22_2025/)
-- [I just did it $NKE 📹🕹️](https://www.reddit.com/r/wallstreetbets/comments/1k4msbu/i_just_did_it_nke/)
+- [THIS CASINO IS RIGGED!](https://www.reddit.com/r/wallstreetbets/comments/1k5ltx6/this_casino_is_rigged/)
+- [Is this the end of WSB?](https://www.reddit.com/r/wallstreetbets/comments/1k5lmuj/is_this_the_end_of_wsb/)
+- [Musk says he&#39;ll step back from DOGE to focus on Tesla as company sees 71 percent drop in Q1 profits](https://www.reddit.com/r/wallstreetbets/comments/1k5lkii/musk_says_hell_step_back_from_doge_to_focus_on/)
+- [Tesla earnings plunge 71 percent in first quarter](https://www.reddit.com/r/wallstreetbets/comments/1k5l8a1/tesla_earnings_plunge_71_percent_in_first_quarter/)
+- [Back in you go](https://www.reddit.com/r/wallstreetbets/comments/1k5l6e2/back_in_you_go/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
