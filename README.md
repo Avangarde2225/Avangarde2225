@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [THIS CASINO IS RIGGED!](https://www.reddit.com/r/wallstreetbets/comments/1k5ltx6/this_casino_is_rigged/)
-- [Is this the end of WSB?](https://www.reddit.com/r/wallstreetbets/comments/1k5lmuj/is_this_the_end_of_wsb/)
-- [Musk says he&#39;ll step back from DOGE to focus on Tesla as company sees 71 percent drop in Q1 profits](https://www.reddit.com/r/wallstreetbets/comments/1k5lkii/musk_says_hell_step_back_from_doge_to_focus_on/)
-- [Tesla earnings plunge 71 percent in first quarter](https://www.reddit.com/r/wallstreetbets/comments/1k5l8a1/tesla_earnings_plunge_71_percent_in_first_quarter/)
-- [Back in you go](https://www.reddit.com/r/wallstreetbets/comments/1k5l6e2/back_in_you_go/)
+- [Southwest to cut flights this year, pulls guidance, citing &#39;macroeconomic uncertainty&#39;. Airlines is a fixed cost industry](https://www.reddit.com/r/wallstreetbets/comments/1k6e5bf/southwest_to_cut_flights_this_year_pulls_guidance/)
+- [$8.9k —&gt; $67.7k overnight](https://www.reddit.com/r/wallstreetbets/comments/1k6az3e/89k_677k_overnight/)
+- [+$124k inverse wsb GLD puts](https://www.reddit.com/r/wallstreetbets/comments/1k6aucb/124k_inverse_wsb_gld_puts/)
+- [Insane price movement on SPY at open.](https://www.reddit.com/r/wallstreetbets/comments/1k69whf/insane_price_movement_on_spy_at_open/)
+- [Tesla is absolute 💩](https://www.reddit.com/r/wallstreetbets/comments/1k69rag/tesla_is_absolute/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
