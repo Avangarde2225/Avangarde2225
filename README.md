@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Southwest to cut flights this year, pulls guidance, citing &#39;macroeconomic uncertainty&#39;. Airlines is a fixed cost industry](https://www.reddit.com/r/wallstreetbets/comments/1k6e5bf/southwest_to_cut_flights_this_year_pulls_guidance/)
-- [$8.9k —&gt; $67.7k overnight](https://www.reddit.com/r/wallstreetbets/comments/1k6az3e/89k_677k_overnight/)
-- [+$124k inverse wsb GLD puts](https://www.reddit.com/r/wallstreetbets/comments/1k6aucb/124k_inverse_wsb_gld_puts/)
-- [Insane price movement on SPY at open.](https://www.reddit.com/r/wallstreetbets/comments/1k69whf/insane_price_movement_on_spy_at_open/)
-- [Tesla is absolute 💩](https://www.reddit.com/r/wallstreetbets/comments/1k69rag/tesla_is_absolute/)
+- [&quot;If you use the Euro as a reference currency...we have become 20% poorer in four weeks.&quot;](https://www.reddit.com/r/wallstreetbets/comments/1k77z3y/if_you_use_the_euro_as_a_reference_currencywe/)
+- [Do you see that?! 50x Btc leverage](https://www.reddit.com/r/wallstreetbets/comments/1k77t5p/do_you_see_that_50x_btc_leverage/)
+- [Spy yolo of sorts](https://www.reddit.com/r/wallstreetbets/comments/1k772cd/spy_yolo_of_sorts/)
+- [god i love volatility pt 2](https://www.reddit.com/r/wallstreetbets/comments/1k756rk/god_i_love_volatility_pt_2/)
+- [Alphabet shares rise on stronger-than-expected revenue growth](https://www.reddit.com/r/wallstreetbets/comments/1k74cu9/alphabet_shares_rise_on_strongerthanexpected/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
