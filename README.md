@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;If you use the Euro as a reference currency...we have become 20% poorer in four weeks.&quot;](https://www.reddit.com/r/wallstreetbets/comments/1k77z3y/if_you_use_the_euro_as_a_reference_currencywe/)
-- [Do you see that?! 50x Btc leverage](https://www.reddit.com/r/wallstreetbets/comments/1k77t5p/do_you_see_that_50x_btc_leverage/)
-- [Spy yolo of sorts](https://www.reddit.com/r/wallstreetbets/comments/1k772cd/spy_yolo_of_sorts/)
-- [god i love volatility pt 2](https://www.reddit.com/r/wallstreetbets/comments/1k756rk/god_i_love_volatility_pt_2/)
-- [Alphabet shares rise on stronger-than-expected revenue growth](https://www.reddit.com/r/wallstreetbets/comments/1k74cu9/alphabet_shares_rise_on_strongerthanexpected/)
+- [Food for bears — container volume at Port of Los Angeles](https://www.reddit.com/r/wallstreetbets/comments/1k805uj/food_for_bears_container_volume_at_port_of_los/)
+- [Stuck in an elevator. Puts on Intel](https://www.reddit.com/r/wallstreetbets/comments/1k802js/stuck_in_an_elevator_puts_on_intel/)
+- [Pure regardation by me today. Every night I tell myself I’m done. By the morning I can’t resist throwing 2k in 0DTE.](https://www.reddit.com/r/wallstreetbets/comments/1k7yfvs/pure_regardation_by_me_today_every_night_i_tell/)
+- [$5,900 to $30,500 on HOOD Still Holding](https://www.reddit.com/r/wallstreetbets/comments/1k7y1an/5900_to_30500_on_hood_still_holding/)
+- [Good luck next week everyone!](https://www.reddit.com/r/wallstreetbets/comments/1k7xk0e/good_luck_next_week_everyone/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
