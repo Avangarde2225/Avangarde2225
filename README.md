@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Food for bears — container volume at Port of Los Angeles](https://www.reddit.com/r/wallstreetbets/comments/1k805uj/food_for_bears_container_volume_at_port_of_los/)
-- [Stuck in an elevator. Puts on Intel](https://www.reddit.com/r/wallstreetbets/comments/1k802js/stuck_in_an_elevator_puts_on_intel/)
-- [Pure regardation by me today. Every night I tell myself I’m done. By the morning I can’t resist throwing 2k in 0DTE.](https://www.reddit.com/r/wallstreetbets/comments/1k7yfvs/pure_regardation_by_me_today_every_night_i_tell/)
-- [$5,900 to $30,500 on HOOD Still Holding](https://www.reddit.com/r/wallstreetbets/comments/1k7y1an/5900_to_30500_on_hood_still_holding/)
-- [Good luck next week everyone!](https://www.reddit.com/r/wallstreetbets/comments/1k7xk0e/good_luck_next_week_everyone/)
+- [Semaglutide companies win legal battle](https://www.reddit.com/r/wallstreetbets/comments/1k8rh0h/semaglutide_companies_win_legal_battle/)
+- [Spirit Airlines Announces NYSE American Listing Approval](https://www.reddit.com/r/wallstreetbets/comments/1k8qhre/spirit_airlines_announces_nyse_american_listing/)
+- [Puts on $ABNB or $BKNG](https://www.reddit.com/r/wallstreetbets/comments/1k8pcr3/puts_on_abnb_or_bkng/)
+- [Bulls Rule while Bears Drool](https://www.reddit.com/r/wallstreetbets/comments/1k8ol6j/bulls_rule_while_bears_drool/)
+- [United Airlines, Q2 25 to Q2 26 likely scenario on rolling basis](https://www.reddit.com/r/wallstreetbets/comments/1k8nedd/united_airlines_q2_25_to_q2_26_likely_scenario_on/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
