@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Semaglutide companies win legal battle](https://www.reddit.com/r/wallstreetbets/comments/1k8rh0h/semaglutide_companies_win_legal_battle/)
-- [Spirit Airlines Announces NYSE American Listing Approval](https://www.reddit.com/r/wallstreetbets/comments/1k8qhre/spirit_airlines_announces_nyse_american_listing/)
-- [Puts on $ABNB or $BKNG](https://www.reddit.com/r/wallstreetbets/comments/1k8pcr3/puts_on_abnb_or_bkng/)
-- [Bulls Rule while Bears Drool](https://www.reddit.com/r/wallstreetbets/comments/1k8ol6j/bulls_rule_while_bears_drool/)
-- [United Airlines, Q2 25 to Q2 26 likely scenario on rolling basis](https://www.reddit.com/r/wallstreetbets/comments/1k8nedd/united_airlines_q2_25_to_q2_26_likely_scenario_on/)
+- [Credit debt and the implications of tariffs](https://www.reddit.com/r/wallstreetbets/comments/1k9iwji/credit_debt_and_the_implications_of_tariffs/)
+- [$BULL - who is ready for next week pop? 🚀🧨 $166k long](https://www.reddit.com/r/wallstreetbets/comments/1k9immp/bull_who_is_ready_for_next_week_pop_166k_long/)
+- [BRK Q1 earnings on 2 May](https://www.reddit.com/r/wallstreetbets/comments/1k9h7dh/brk_q1_earnings_on_2_may/)
+- [WSB Put/Call Ratio: Week Ending April 25, 2025](https://www.reddit.com/r/wallstreetbets/comments/1k9gyyb/wsb_putcall_ratio_week_ending_april_25_2025/)
+- [Overlevering? Listen using leverage has never ever gone wrong in the history of the markets.](https://www.reddit.com/r/wallstreetbets/comments/1k9e1t0/overlevering_listen_using_leverage_has_never_ever/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
