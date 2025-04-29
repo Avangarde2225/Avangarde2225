@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Credit debt and the implications of tariffs](https://www.reddit.com/r/wallstreetbets/comments/1k9iwji/credit_debt_and_the_implications_of_tariffs/)
-- [$BULL - who is ready for next week pop? 🚀🧨 $166k long](https://www.reddit.com/r/wallstreetbets/comments/1k9immp/bull_who_is_ready_for_next_week_pop_166k_long/)
-- [BRK Q1 earnings on 2 May](https://www.reddit.com/r/wallstreetbets/comments/1k9h7dh/brk_q1_earnings_on_2_may/)
-- [WSB Put/Call Ratio: Week Ending April 25, 2025](https://www.reddit.com/r/wallstreetbets/comments/1k9gyyb/wsb_putcall_ratio_week_ending_april_25_2025/)
-- [Overlevering? Listen using leverage has never ever gone wrong in the history of the markets.](https://www.reddit.com/r/wallstreetbets/comments/1k9e1t0/overlevering_listen_using_leverage_has_never_ever/)
+- [Teens Are Using ChatGPT to Invest in the Stock Market](https://www.reddit.com/r/wallstreetbets/comments/1kaawag/teens_are_using_chatgpt_to_invest_in_the_stock/)
+- [First I get dicked, then this](https://www.reddit.com/r/wallstreetbets/comments/1ka9zk6/first_i_get_dicked_then_this/)
+- [Turned $800 into $4,400 in 100 minutes because I’m clinically allergic to risk management](https://www.reddit.com/r/wallstreetbets/comments/1ka9vkm/turned_800_into_4400_in_100_minutes_because_im/)
+- [Please remind me: what is the current US tariff policy on China and when](https://www.reddit.com/r/wallstreetbets/comments/1ka9tzu/please_remind_me_what_is_the_current_us_tariff/)
+- [I used to trade options everyday and got rekt, now I’m options-free and it’s working.](https://www.reddit.com/r/wallstreetbets/comments/1ka93ar/i_used_to_trade_options_everyday_and_got_rekt_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
