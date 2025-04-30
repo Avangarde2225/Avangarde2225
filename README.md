@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Teens Are Using ChatGPT to Invest in the Stock Market](https://www.reddit.com/r/wallstreetbets/comments/1kaawag/teens_are_using_chatgpt_to_invest_in_the_stock/)
-- [First I get dicked, then this](https://www.reddit.com/r/wallstreetbets/comments/1ka9zk6/first_i_get_dicked_then_this/)
-- [Turned $800 into $4,400 in 100 minutes because I’m clinically allergic to risk management](https://www.reddit.com/r/wallstreetbets/comments/1ka9vkm/turned_800_into_4400_in_100_minutes_because_im/)
-- [Please remind me: what is the current US tariff policy on China and when](https://www.reddit.com/r/wallstreetbets/comments/1ka9tzu/please_remind_me_what_is_the_current_us_tariff/)
-- [I used to trade options everyday and got rekt, now I’m options-free and it’s working.](https://www.reddit.com/r/wallstreetbets/comments/1ka93ar/i_used_to_trade_options_everyday_and_got_rekt_now/)
+- [$HOOD Before &amp; After Earnings Data for the last 5 Releases](https://www.reddit.com/r/wallstreetbets/comments/1kb3051/hood_before_after_earnings_data_for_the_last_5/)
+- [Who took a screenshot of my Puts ?](https://www.reddit.com/r/wallstreetbets/comments/1kb2k4o/who_took_a_screenshot_of_my_puts/)
+- [Bears and bulls must unite, for what is coming shall consume us all.](https://www.reddit.com/r/wallstreetbets/comments/1kb01oy/bears_and_bulls_must_unite_for_what_is_coming/)
+- [Not only did I slice my hand open at work and get stitches, I also lost $4k :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1kazoyj/not_only_did_i_slice_my_hand_open_at_work_and_get/)
+- [Well this can’t be good …. Right?](https://www.reddit.com/r/wallstreetbets/comments/1kaz82l/well_this_cant_be_good_right/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
