@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$HOOD Before &amp; After Earnings Data for the last 5 Releases](https://www.reddit.com/r/wallstreetbets/comments/1kb3051/hood_before_after_earnings_data_for_the_last_5/)
-- [Who took a screenshot of my Puts ?](https://www.reddit.com/r/wallstreetbets/comments/1kb2k4o/who_took_a_screenshot_of_my_puts/)
-- [Bears and bulls must unite, for what is coming shall consume us all.](https://www.reddit.com/r/wallstreetbets/comments/1kb01oy/bears_and_bulls_must_unite_for_what_is_coming/)
-- [Not only did I slice my hand open at work and get stitches, I also lost $4k :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1kazoyj/not_only_did_i_slice_my_hand_open_at_work_and_get/)
-- [Well this can’t be good …. Right?](https://www.reddit.com/r/wallstreetbets/comments/1kaz82l/well_this_cant_be_good_right/)
+- [BREAKING News: US-Ukraine Reconstruction Investment Fund officially signed](https://www.reddit.com/r/wallstreetbets/comments/1kbvy4o/breaking_news_usukraine_reconstruction_investment/)
+- [Dude. What in the fuking fuk. Stocks keep going up. In other news- the apocalypse is coming. SP500 rallies another 2%.](https://www.reddit.com/r/wallstreetbets/comments/1kbus8z/dude_what_in_the_fuking_fuk_stocks_keep_going_up/)
+- [MSTR Monthly Gains](https://www.reddit.com/r/wallstreetbets/comments/1kbul6z/mstr_monthly_gains/)
+- [Been a crazy month](https://www.reddit.com/r/wallstreetbets/comments/1kbuh5q/been_a_crazy_month/)
+- [GM recalls nearly 600k trucks and SUVs equipped with V8 engines for engine repair or REPLACEMENT](https://www.reddit.com/r/wallstreetbets/comments/1kbsfmc/gm_recalls_nearly_600k_trucks_and_suvs_equipped/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
