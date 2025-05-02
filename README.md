@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BREAKING News: US-Ukraine Reconstruction Investment Fund officially signed](https://www.reddit.com/r/wallstreetbets/comments/1kbvy4o/breaking_news_usukraine_reconstruction_investment/)
-- [Dude. What in the fuking fuk. Stocks keep going up. In other news- the apocalypse is coming. SP500 rallies another 2%.](https://www.reddit.com/r/wallstreetbets/comments/1kbus8z/dude_what_in_the_fuking_fuk_stocks_keep_going_up/)
-- [MSTR Monthly Gains](https://www.reddit.com/r/wallstreetbets/comments/1kbul6z/mstr_monthly_gains/)
-- [Been a crazy month](https://www.reddit.com/r/wallstreetbets/comments/1kbuh5q/been_a_crazy_month/)
-- [GM recalls nearly 600k trucks and SUVs equipped with V8 engines for engine repair or REPLACEMENT](https://www.reddit.com/r/wallstreetbets/comments/1kbsfmc/gm_recalls_nearly_600k_trucks_and_suvs_equipped/)
+- [So close to half a mil](https://www.reddit.com/r/wallstreetbets/comments/1kcms8j/so_close_to_half_a_mil/)
+- [MSTR to Raise $84B to Purchase More Bitcoin](https://www.reddit.com/r/wallstreetbets/comments/1kcmhzc/mstr_to_raise_84b_to_purchase_more_bitcoin/)
+- [Everyone is afraid to show their losses now... so ill give yall some](https://www.reddit.com/r/wallstreetbets/comments/1kcl84w/everyone_is_afraid_to_show_their_losses_now_so/)
+- [I call it &quot;Put Combo&quot; +44k](https://www.reddit.com/r/wallstreetbets/comments/1kck7mt/i_call_it_put_combo_44k/)
+- [Reddit shares rocket as high as 19% on strong sales and guidance](https://www.reddit.com/r/wallstreetbets/comments/1kck67g/reddit_shares_rocket_as_high_as_19_on_strong/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
