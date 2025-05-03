@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [So close to half a mil](https://www.reddit.com/r/wallstreetbets/comments/1kcms8j/so_close_to_half_a_mil/)
-- [MSTR to Raise $84B to Purchase More Bitcoin](https://www.reddit.com/r/wallstreetbets/comments/1kcmhzc/mstr_to_raise_84b_to_purchase_more_bitcoin/)
-- [Everyone is afraid to show their losses now... so ill give yall some](https://www.reddit.com/r/wallstreetbets/comments/1kcl84w/everyone_is_afraid_to_show_their_losses_now_so/)
-- [I call it &quot;Put Combo&quot; +44k](https://www.reddit.com/r/wallstreetbets/comments/1kck7mt/i_call_it_put_combo_44k/)
-- [Reddit shares rocket as high as 19% on strong sales and guidance](https://www.reddit.com/r/wallstreetbets/comments/1kck67g/reddit_shares_rocket_as_high_as_19_on_strong/)
+- [Which one of you is this?](https://www.reddit.com/r/wallstreetbets/comments/1kdfhen/which_one_of_you_is_this/)
+- [Dont recommend anyone YOLOing their live savings into one stock but it worked for me i guess. who am i to tell you otherwise. Thanks $PLTR.](https://www.reddit.com/r/wallstreetbets/comments/1kdf4is/dont_recommend_anyone_yoloing_their_live_savings/)
+- [Monday being the 10th consecutive green day may seem somewhat statistically unfeasible](https://www.reddit.com/r/wallstreetbets/comments/1kddklx/monday_being_the_10th_consecutive_green_day_may/)
+- [Wish me luck with $RKLB earnings next week](https://www.reddit.com/r/wallstreetbets/comments/1kddh6o/wish_me_luck_with_rklb_earnings_next_week/)
+- [The war is over](https://www.reddit.com/r/wallstreetbets/comments/1kdcv86/the_war_is_over/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
