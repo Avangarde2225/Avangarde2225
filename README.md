@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Which one of you is this?](https://www.reddit.com/r/wallstreetbets/comments/1kdfhen/which_one_of_you_is_this/)
-- [Dont recommend anyone YOLOing their live savings into one stock but it worked for me i guess. who am i to tell you otherwise. Thanks $PLTR.](https://www.reddit.com/r/wallstreetbets/comments/1kdf4is/dont_recommend_anyone_yoloing_their_live_savings/)
-- [Monday being the 10th consecutive green day may seem somewhat statistically unfeasible](https://www.reddit.com/r/wallstreetbets/comments/1kddklx/monday_being_the_10th_consecutive_green_day_may/)
-- [Wish me luck with $RKLB earnings next week](https://www.reddit.com/r/wallstreetbets/comments/1kddh6o/wish_me_luck_with_rklb_earnings_next_week/)
-- [The war is over](https://www.reddit.com/r/wallstreetbets/comments/1kdcv86/the_war_is_over/)
+- [Waiting for the another Lego x Starwars collaboration to drop before calling bottom.](https://www.reddit.com/r/wallstreetbets/comments/1ke7j05/waiting_for_the_another_lego_x_starwars/)
+- [Xyz winning](https://www.reddit.com/r/wallstreetbets/comments/1ke6ipo/xyz_winning/)
+- [The best way to win in this market is to inverse common sense. Therefore, expect SPY to reach ATHs within the next few months](https://www.reddit.com/r/wallstreetbets/comments/1ke5le7/the_best_way_to_win_in_this_market_is_to_inverse/)
+- [Mic Drop](https://www.reddit.com/r/wallstreetbets/comments/1ke2dm5/mic_drop/)
+- [Decent gains on Leveraged Funds. Sold and Holding 90% Cash Now. Thank you Liberation Day.](https://www.reddit.com/r/wallstreetbets/comments/1kdzus3/decent_gains_on_leveraged_funds_sold_and_holding/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
