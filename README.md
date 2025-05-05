@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Waiting for the another Lego x Starwars collaboration to drop before calling bottom.](https://www.reddit.com/r/wallstreetbets/comments/1ke7j05/waiting_for_the_another_lego_x_starwars/)
-- [Xyz winning](https://www.reddit.com/r/wallstreetbets/comments/1ke6ipo/xyz_winning/)
-- [The best way to win in this market is to inverse common sense. Therefore, expect SPY to reach ATHs within the next few months](https://www.reddit.com/r/wallstreetbets/comments/1ke5le7/the_best_way_to_win_in_this_market_is_to_inverse/)
-- [Mic Drop](https://www.reddit.com/r/wallstreetbets/comments/1ke2dm5/mic_drop/)
-- [Decent gains on Leveraged Funds. Sold and Holding 90% Cash Now. Thank you Liberation Day.](https://www.reddit.com/r/wallstreetbets/comments/1kdzus3/decent_gains_on_leveraged_funds_sold_and_holding/)
+- [Small Gainz](https://www.reddit.com/r/wallstreetbets/comments/1keyotk/small_gainz/)
+- [$AMC Why the hell not. 2025 move slate is sick.](https://www.reddit.com/r/wallstreetbets/comments/1keu61k/amc_why_the_hell_not_2025_move_slate_is_sick/)
+- [What Are Your Moves Tomorrow, May 05, 2025](https://www.reddit.com/r/wallstreetbets/comments/1kests1/what_are_your_moves_tomorrow_may_05_2025/)
+- [How Will Berkshire Hathaway Perform Tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/1kes3sr/how_will_berkshire_hathaway_perform_tomorrow/)
+- [Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1kemuj9/loss_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
