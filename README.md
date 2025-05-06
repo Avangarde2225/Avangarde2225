@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Small Gainz](https://www.reddit.com/r/wallstreetbets/comments/1keyotk/small_gainz/)
-- [$AMC Why the hell not. 2025 move slate is sick.](https://www.reddit.com/r/wallstreetbets/comments/1keu61k/amc_why_the_hell_not_2025_move_slate_is_sick/)
-- [What Are Your Moves Tomorrow, May 05, 2025](https://www.reddit.com/r/wallstreetbets/comments/1kests1/what_are_your_moves_tomorrow_may_05_2025/)
-- [How Will Berkshire Hathaway Perform Tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/1kes3sr/how_will_berkshire_hathaway_perform_tomorrow/)
-- [Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1kemuj9/loss_porn/)
+- [PLTR bulls trying to explain why you should buy into earnings at ATH with 650 p/e](https://www.reddit.com/r/wallstreetbets/comments/1kfrikk/pltr_bulls_trying_to_explain_why_you_should_buy/)
+- [Is this what heroin feels like?](https://www.reddit.com/r/wallstreetbets/comments/1kfr729/is_this_what_heroin_feels_like/)
+- [US lawmakers urge SEC to delist Alibaba and Chinese companies, FT reports](https://www.reddit.com/r/wallstreetbets/comments/1kfr0ps/us_lawmakers_urge_sec_to_delist_alibaba_and/)
+- [PLTR would need to capture 10% of all US defense spending to grow into its valuation.](https://www.reddit.com/r/wallstreetbets/comments/1kfqn8x/pltr_would_need_to_capture_10_of_all_us_defense/)
+- [Palantir: valued at x82 revenue. Damn overvalued](https://www.reddit.com/r/wallstreetbets/comments/1kfo1uc/palantir_valued_at_x82_revenue_damn_overvalued/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
