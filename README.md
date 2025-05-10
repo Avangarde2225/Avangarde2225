@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How far am I going to fall?!](https://www.reddit.com/r/wallstreetbets/comments/1ki5adc/how_far_am_i_going_to_fall/)
-- [Loss](https://www.reddit.com/r/wallstreetbets/comments/1ki3osr/loss/)
-- [So good at TSLA options, I took over Wife’s Roth IRA too. Now I get twice as much.🚀💞🚀](https://www.reddit.com/r/wallstreetbets/comments/1ki2fdk/so_good_at_tsla_options_i_took_over_wifes_roth/)
-- [Yoloing my entire account in this short](https://www.reddit.com/r/wallstreetbets/comments/1ki2d26/yoloing_my_entire_account_in_this_short/)
-- [Up 259% in the last 2 weeks, thanks to HIMS. Full ported into HIMZ on margin 1 day before it spiked 40%.](https://www.reddit.com/r/wallstreetbets/comments/1ki2a9v/up_259_in_the_last_2_weeks_thanks_to_hims_full/)
+- [How to Trade &lpar;Gamble&rpar; Options Like a Smart Degenerate Sinner?](https://www.reddit.com/r/wallstreetbets/comments/1kix71n/how_to_trade_gamble_options_like_a_smart/)
+- [Am I regarded?](https://www.reddit.com/r/wallstreetbets/comments/1kivhgu/am_i_regarded/)
+- [$MSTR ridiculous premium](https://www.reddit.com/r/wallstreetbets/comments/1kiuvjg/mstr_ridiculous_premium/)
+- [Corporate share buybacks were a shock absorber in April’s sell-off](https://www.reddit.com/r/wallstreetbets/comments/1kiulhf/corporate_share_buybacks_were_a_shock_absorber_in/)
+- [Trump says US will maintain 10% tariffs even after trade deals](https://www.reddit.com/r/wallstreetbets/comments/1kiu5dp/trump_says_us_will_maintain_10_tariffs_even_after/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
