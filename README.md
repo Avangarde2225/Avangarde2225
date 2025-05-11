@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How to Trade &lpar;Gamble&rpar; Options Like a Smart Degenerate Sinner?](https://www.reddit.com/r/wallstreetbets/comments/1kix71n/how_to_trade_gamble_options_like_a_smart/)
-- [Am I regarded?](https://www.reddit.com/r/wallstreetbets/comments/1kivhgu/am_i_regarded/)
-- [$MSTR ridiculous premium](https://www.reddit.com/r/wallstreetbets/comments/1kiuvjg/mstr_ridiculous_premium/)
-- [Corporate share buybacks were a shock absorber in April’s sell-off](https://www.reddit.com/r/wallstreetbets/comments/1kiulhf/corporate_share_buybacks_were_a_shock_absorber_in/)
-- [Trump says US will maintain 10% tariffs even after trade deals](https://www.reddit.com/r/wallstreetbets/comments/1kiu5dp/trump_says_us_will_maintain_10_tariffs_even_after/)
+- [$30k $HOOD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1kjo749/30k_hood_yolo/)
+- [BTC correlation to market](https://www.reddit.com/r/wallstreetbets/comments/1kjmpzo/btc_correlation_to_market/)
+- [US and China end trade talks for the night, will continue talks on Sunday.](https://www.reddit.com/r/wallstreetbets/comments/1kji1re/us_and_china_end_trade_talks_for_the_night_will/)
+- [$WMT earnings](https://www.reddit.com/r/wallstreetbets/comments/1kjhok2/wmt_earnings/)
+- [Mercardo Liberated!!](https://www.reddit.com/r/wallstreetbets/comments/1kjghyt/mercardo_liberated/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
