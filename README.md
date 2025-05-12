@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$30k $HOOD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1kjo749/30k_hood_yolo/)
-- [BTC correlation to market](https://www.reddit.com/r/wallstreetbets/comments/1kjmpzo/btc_correlation_to_market/)
-- [US and China end trade talks for the night, will continue talks on Sunday.](https://www.reddit.com/r/wallstreetbets/comments/1kji1re/us_and_china_end_trade_talks_for_the_night_will/)
-- [$WMT earnings](https://www.reddit.com/r/wallstreetbets/comments/1kjhok2/wmt_earnings/)
-- [Mercardo Liberated!!](https://www.reddit.com/r/wallstreetbets/comments/1kjghyt/mercardo_liberated/)
+- [DISNEY WILL FEED FAMILIES](https://www.reddit.com/r/wallstreetbets/comments/1kkfl42/disney_will_feed_families/)
+- [$15K YOLO on Coinbase](https://www.reddit.com/r/wallstreetbets/comments/1kkfh6s/15k_yolo_on_coinbase/)
+- [bill ackman is my papi: $HTZ $15c](https://www.reddit.com/r/wallstreetbets/comments/1kkff4i/bill_ackman_is_my_papi_htz_15c/)
+- [Trump executive order: Prescription drug prices to be reduced by 30% to 80% almost immediately](https://www.reddit.com/r/wallstreetbets/comments/1kkdhbo/trump_executive_order_prescription_drug_prices_to/)
+- [Thanks TTD](https://www.reddit.com/r/wallstreetbets/comments/1kkdaif/thanks_ttd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
