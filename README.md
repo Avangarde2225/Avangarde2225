@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DISNEY WILL FEED FAMILIES](https://www.reddit.com/r/wallstreetbets/comments/1kkfl42/disney_will_feed_families/)
-- [$15K YOLO on Coinbase](https://www.reddit.com/r/wallstreetbets/comments/1kkfh6s/15k_yolo_on_coinbase/)
-- [bill ackman is my papi: $HTZ $15c](https://www.reddit.com/r/wallstreetbets/comments/1kkff4i/bill_ackman_is_my_papi_htz_15c/)
-- [Trump executive order: Prescription drug prices to be reduced by 30% to 80% almost immediately](https://www.reddit.com/r/wallstreetbets/comments/1kkdhbo/trump_executive_order_prescription_drug_prices_to/)
-- [Thanks TTD](https://www.reddit.com/r/wallstreetbets/comments/1kkdaif/thanks_ttd/)
+- [Do I belong here?](https://www.reddit.com/r/wallstreetbets/comments/1kl7gqi/do_i_belong_here/)
+- [Was expecting to lose all of the calls I bought on Friday….](https://www.reddit.com/r/wallstreetbets/comments/1kl57is/was_expecting_to_lose_all_of_the_calls_i_bought/)
+- [CoinBase will be added to the S&amp;P 500, effective May 19th.](https://www.reddit.com/r/wallstreetbets/comments/1kl4jsr/coinbase_will_be_added_to_the_sp_500_effective/)
+- [Got rekt today](https://www.reddit.com/r/wallstreetbets/comments/1kl4cdy/got_rekt_today/)
+- [McDonald’s announces plans to hire 375,000 workers](https://www.reddit.com/r/wallstreetbets/comments/1kl3efg/mcdonalds_announces_plans_to_hire_375000_workers/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
