@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Do I belong here?](https://www.reddit.com/r/wallstreetbets/comments/1kl7gqi/do_i_belong_here/)
-- [Was expecting to lose all of the calls I bought on Friday….](https://www.reddit.com/r/wallstreetbets/comments/1kl57is/was_expecting_to_lose_all_of_the_calls_i_bought/)
-- [CoinBase will be added to the S&amp;P 500, effective May 19th.](https://www.reddit.com/r/wallstreetbets/comments/1kl4jsr/coinbase_will_be_added_to_the_sp_500_effective/)
-- [Got rekt today](https://www.reddit.com/r/wallstreetbets/comments/1kl4cdy/got_rekt_today/)
-- [McDonald’s announces plans to hire 375,000 workers](https://www.reddit.com/r/wallstreetbets/comments/1kl3efg/mcdonalds_announces_plans_to_hire_375000_workers/)
+- [This is my single day record for any one position. $smci](https://www.reddit.com/r/wallstreetbets/comments/1km1jnm/this_is_my_single_day_record_for_any_one_position/)
+- [40k up from $UNH puts](https://www.reddit.com/r/wallstreetbets/comments/1km044i/40k_up_from_unh_puts/)
+- [Supermicro &amp; Datavolt „announced“ 20bn $ partnership](https://www.reddit.com/r/wallstreetbets/comments/1klxx1t/supermicro_datavolt_announced_20bn_partnership/)
+- [PLTR new ATH! Keep crying over valuation while the palantards get rich. Shout out to the OG&#39;s holders from 2020](https://www.reddit.com/r/wallstreetbets/comments/1klxv0m/pltr_new_ath_keep_crying_over_valuation_while_the/)
+- [$13,000 in 1.5 hours. THANK YOU NVDA](https://www.reddit.com/r/wallstreetbets/comments/1klxcoe/13000_in_15_hours_thank_you_nvda/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
