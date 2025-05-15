@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [This is my single day record for any one position. $smci](https://www.reddit.com/r/wallstreetbets/comments/1km1jnm/this_is_my_single_day_record_for_any_one_position/)
-- [40k up from $UNH puts](https://www.reddit.com/r/wallstreetbets/comments/1km044i/40k_up_from_unh_puts/)
-- [Supermicro &amp; Datavolt „announced“ 20bn $ partnership](https://www.reddit.com/r/wallstreetbets/comments/1klxx1t/supermicro_datavolt_announced_20bn_partnership/)
-- [PLTR new ATH! Keep crying over valuation while the palantards get rich. Shout out to the OG&#39;s holders from 2020](https://www.reddit.com/r/wallstreetbets/comments/1klxv0m/pltr_new_ath_keep_crying_over_valuation_while_the/)
-- [$13,000 in 1.5 hours. THANK YOU NVDA](https://www.reddit.com/r/wallstreetbets/comments/1klxcoe/13000_in_15_hours_thank_you_nvda/)
+- [UNH loss porn](https://www.reddit.com/r/wallstreetbets/comments/1kmu7rf/unh_loss_porn/)
+- [Mike Johnson Argues Congress Needs Stock Trading to &#39;Support Their Families&#39; Due to &#39;Frozen&#39; Salaries](https://www.reddit.com/r/wallstreetbets/comments/1kmu0oq/mike_johnson_argues_congress_needs_stock_trading/)
+- [welfare check: still retarded. doubled down on $UNH and $HTZ](https://www.reddit.com/r/wallstreetbets/comments/1kmtx8j/welfare_check_still_retarded_doubled_down_on_unh/)
+- [UnitedHealth Group Is Under Criminal Investigation for Possible Medicare Fraud](https://www.reddit.com/r/wallstreetbets/comments/1kmtqe6/unitedhealth_group_is_under_criminal/)
+- [United Health Group, possible Medicare Fraud](https://www.reddit.com/r/wallstreetbets/comments/1kmtksa/united_health_group_possible_medicare_fraud/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
