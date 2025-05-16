@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [UNH loss porn](https://www.reddit.com/r/wallstreetbets/comments/1kmu7rf/unh_loss_porn/)
-- [Mike Johnson Argues Congress Needs Stock Trading to &#39;Support Their Families&#39; Due to &#39;Frozen&#39; Salaries](https://www.reddit.com/r/wallstreetbets/comments/1kmu0oq/mike_johnson_argues_congress_needs_stock_trading/)
-- [welfare check: still retarded. doubled down on $UNH and $HTZ](https://www.reddit.com/r/wallstreetbets/comments/1kmtx8j/welfare_check_still_retarded_doubled_down_on_unh/)
-- [UnitedHealth Group Is Under Criminal Investigation for Possible Medicare Fraud](https://www.reddit.com/r/wallstreetbets/comments/1kmtqe6/unitedhealth_group_is_under_criminal/)
-- [United Health Group, possible Medicare Fraud](https://www.reddit.com/r/wallstreetbets/comments/1kmtksa/united_health_group_possible_medicare_fraud/)
+- [SPY’d on the market… and got assassinated.](https://www.reddit.com/r/wallstreetbets/comments/1knkwnk/spyd_on_the_market_and_got_assassinated/)
+- [Huge Loss followed by gain from couple of days ago.](https://www.reddit.com/r/wallstreetbets/comments/1knj9zc/huge_loss_followed_by_gain_from_couple_of_days_ago/)
+- [My dad gave me 10k to invest for him thinking I’m good with stocks, lost half then took remaining and dumped it into UNH. 5k -&gt; 30k gains](https://www.reddit.com/r/wallstreetbets/comments/1knhuvx/my_dad_gave_me_10k_to_invest_for_him_thinking_im/)
+- [What Are Your Moves Tomorrow, May 16, 2025](https://www.reddit.com/r/wallstreetbets/comments/1knhq9d/what_are_your_moves_tomorrow_may_16_2025/)
+- [Crazy week $8k-$44k in 4 days](https://www.reddit.com/r/wallstreetbets/comments/1knhlm3/crazy_week_8k44k_in_4_days/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
