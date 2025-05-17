@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPY’d on the market… and got assassinated.](https://www.reddit.com/r/wallstreetbets/comments/1knkwnk/spyd_on_the_market_and_got_assassinated/)
-- [Huge Loss followed by gain from couple of days ago.](https://www.reddit.com/r/wallstreetbets/comments/1knj9zc/huge_loss_followed_by_gain_from_couple_of_days_ago/)
-- [My dad gave me 10k to invest for him thinking I’m good with stocks, lost half then took remaining and dumped it into UNH. 5k -&gt; 30k gains](https://www.reddit.com/r/wallstreetbets/comments/1knhuvx/my_dad_gave_me_10k_to_invest_for_him_thinking_im/)
-- [What Are Your Moves Tomorrow, May 16, 2025](https://www.reddit.com/r/wallstreetbets/comments/1knhq9d/what_are_your_moves_tomorrow_may_16_2025/)
-- [Crazy week $8k-$44k in 4 days](https://www.reddit.com/r/wallstreetbets/comments/1knhlm3/crazy_week_8k44k_in_4_days/)
+- [Biggest Loss or Gain Porn on Monday. 250k Puts on QQQ.](https://www.reddit.com/r/wallstreetbets/comments/1koec8p/biggest_loss_or_gain_porn_on_monday_250k_puts_on/)
+- [Last week it was instant noodles, this week TSLA has me eating steak 🥩💸](https://www.reddit.com/r/wallstreetbets/comments/1koea7f/last_week_it_was_instant_noodles_this_week_tsla/)
+- [So you’re telling me there’s a chance?](https://www.reddit.com/r/wallstreetbets/comments/1koct6q/so_youre_telling_me_theres_a_chance/)
+- [+25k - Bought at 3:59pm a minute before market close](https://www.reddit.com/r/wallstreetbets/comments/1kocrvu/25k_bought_at_359pm_a_minute_before_market_close/)
+- [Banks are sitting on $500 billion in unrealized losses, and stagflation could cause another Silicon Valley Bank-like crisis](https://www.reddit.com/r/wallstreetbets/comments/1kobx4n/banks_are_sitting_on_500_billion_in_unrealized/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
