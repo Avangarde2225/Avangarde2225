@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Biggest Loss or Gain Porn on Monday. 250k Puts on QQQ.](https://www.reddit.com/r/wallstreetbets/comments/1koec8p/biggest_loss_or_gain_porn_on_monday_250k_puts_on/)
-- [Last week it was instant noodles, this week TSLA has me eating steak 🥩💸](https://www.reddit.com/r/wallstreetbets/comments/1koea7f/last_week_it_was_instant_noodles_this_week_tsla/)
-- [So you’re telling me there’s a chance?](https://www.reddit.com/r/wallstreetbets/comments/1koct6q/so_youre_telling_me_theres_a_chance/)
-- [+25k - Bought at 3:59pm a minute before market close](https://www.reddit.com/r/wallstreetbets/comments/1kocrvu/25k_bought_at_359pm_a_minute_before_market_close/)
-- [Banks are sitting on $500 billion in unrealized losses, and stagflation could cause another Silicon Valley Bank-like crisis](https://www.reddit.com/r/wallstreetbets/comments/1kobx4n/banks_are_sitting_on_500_billion_in_unrealized/)
+- [3rd account blown on soxs calls, don&#39;t play with options, don&#39;t short, and always set a stop loss with an exit plan.](https://www.reddit.com/r/wallstreetbets/comments/1koxhcs/3rd_account_blown_on_soxs_calls_dont_play_with/)
+- [My wife’s boyfriend loaned me money. I want to lose it all but it keeps going up.](https://www.reddit.com/r/wallstreetbets/comments/1kovbjc/my_wifes_boyfriend_loaned_me_money_i_want_to_lose/)
+- [Decent day with the SPY calls](https://www.reddit.com/r/wallstreetbets/comments/1kouvqi/decent_day_with_the_spy_calls/)
+- [I’m ready to be hurt again](https://www.reddit.com/r/wallstreetbets/comments/1kouuzk/im_ready_to_be_hurt_again/)
+- [Will this print on Monday?](https://www.reddit.com/r/wallstreetbets/comments/1kotzoj/will_this_print_on_monday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
