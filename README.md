@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [3rd account blown on soxs calls, don&#39;t play with options, don&#39;t short, and always set a stop loss with an exit plan.](https://www.reddit.com/r/wallstreetbets/comments/1koxhcs/3rd_account_blown_on_soxs_calls_dont_play_with/)
-- [My wife’s boyfriend loaned me money. I want to lose it all but it keeps going up.](https://www.reddit.com/r/wallstreetbets/comments/1kovbjc/my_wifes_boyfriend_loaned_me_money_i_want_to_lose/)
-- [Decent day with the SPY calls](https://www.reddit.com/r/wallstreetbets/comments/1kouvqi/decent_day_with_the_spy_calls/)
-- [I’m ready to be hurt again](https://www.reddit.com/r/wallstreetbets/comments/1kouuzk/im_ready_to_be_hurt_again/)
-- [Will this print on Monday?](https://www.reddit.com/r/wallstreetbets/comments/1kotzoj/will_this_print_on_monday/)
+- [MAKE MY SLEEP GREAT AGAIN](https://www.reddit.com/r/wallstreetbets/comments/1kpz0r0/make_my_sleep_great_again/)
+- [$UNH](https://www.reddit.com/r/wallstreetbets/comments/1kpyv0r/unh/)
+- [Moody’s Rating And Why You Shouldn’t Care Explained Degenerately](https://www.reddit.com/r/wallstreetbets/comments/1kpyu04/moodys_rating_and_why_you_shouldnt_care_explained/)
+- [What a UAE Deal Might Mean For SMCI](https://www.reddit.com/r/wallstreetbets/comments/1kpxyze/what_a_uae_deal_might_mean_for_smci/)
+- [What Are Your Moves Tomorrow, May 19, 2025](https://www.reddit.com/r/wallstreetbets/comments/1kpsvxl/what_are_your_moves_tomorrow_may_19_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
