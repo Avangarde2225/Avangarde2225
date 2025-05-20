@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [MAKE MY SLEEP GREAT AGAIN](https://www.reddit.com/r/wallstreetbets/comments/1kpz0r0/make_my_sleep_great_again/)
-- [$UNH](https://www.reddit.com/r/wallstreetbets/comments/1kpyv0r/unh/)
-- [Moody’s Rating And Why You Shouldn’t Care Explained Degenerately](https://www.reddit.com/r/wallstreetbets/comments/1kpyu04/moodys_rating_and_why_you_shouldnt_care_explained/)
-- [What a UAE Deal Might Mean For SMCI](https://www.reddit.com/r/wallstreetbets/comments/1kpxyze/what_a_uae_deal_might_mean_for_smci/)
-- [What Are Your Moves Tomorrow, May 19, 2025](https://www.reddit.com/r/wallstreetbets/comments/1kpsvxl/what_are_your_moves_tomorrow_may_19_2025/)
+- [$RIVN Moonshot](https://www.reddit.com/r/wallstreetbets/comments/1kqr03o/rivn_moonshot/)
+- [Sell or hold?](https://www.reddit.com/r/wallstreetbets/comments/1kqql9j/sell_or_hold/)
+- [Up $11K on UNH Calls in 2 Days. May Buy More.](https://www.reddit.com/r/wallstreetbets/comments/1kqq0s4/up_11k_on_unh_calls_in_2_days_may_buy_more/)
+- [$7M into LCID across 3 accounts. Betting Tesla stumbles, Lucid wakes up. Am I early or cooked?](https://www.reddit.com/r/wallstreetbets/comments/1kqprov/7m_into_lcid_across_3_accounts_betting_tesla/)
+- [My first 10x](https://www.reddit.com/r/wallstreetbets/comments/1kqp5u4/my_first_10x/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
