@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$RIVN Moonshot](https://www.reddit.com/r/wallstreetbets/comments/1kqr03o/rivn_moonshot/)
-- [Sell or hold?](https://www.reddit.com/r/wallstreetbets/comments/1kqql9j/sell_or_hold/)
-- [Up $11K on UNH Calls in 2 Days. May Buy More.](https://www.reddit.com/r/wallstreetbets/comments/1kqq0s4/up_11k_on_unh_calls_in_2_days_may_buy_more/)
-- [$7M into LCID across 3 accounts. Betting Tesla stumbles, Lucid wakes up. Am I early or cooked?](https://www.reddit.com/r/wallstreetbets/comments/1kqprov/7m_into_lcid_across_3_accounts_betting_tesla/)
-- [My first 10x](https://www.reddit.com/r/wallstreetbets/comments/1kqp5u4/my_first_10x/)
+- [Recession is in](https://www.reddit.com/r/wallstreetbets/comments/1krkvey/recession_is_in/)
+- [My first &lpar;-&rpar; 3,675% gain](https://www.reddit.com/r/wallstreetbets/comments/1krjahx/my_first_3675_gain/)
+- [I hate GOOG](https://www.reddit.com/r/wallstreetbets/comments/1krixsc/i_hate_goog/)
+- [Wolfspeed Prepares to File for Bankruptcy Within Weeks](https://www.reddit.com/r/wallstreetbets/comments/1krh6rp/wolfspeed_prepares_to_file_for_bankruptcy_within/)
+- [Why market recovered in the last hour? What happened?](https://www.reddit.com/r/wallstreetbets/comments/1krh4ss/why_market_recovered_in_the_last_hour_what/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
