@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Recession is in](https://www.reddit.com/r/wallstreetbets/comments/1krkvey/recession_is_in/)
-- [My first &lpar;-&rpar; 3,675% gain](https://www.reddit.com/r/wallstreetbets/comments/1krjahx/my_first_3675_gain/)
-- [I hate GOOG](https://www.reddit.com/r/wallstreetbets/comments/1krixsc/i_hate_goog/)
-- [Wolfspeed Prepares to File for Bankruptcy Within Weeks](https://www.reddit.com/r/wallstreetbets/comments/1krh6rp/wolfspeed_prepares_to_file_for_bankruptcy_within/)
-- [Why market recovered in the last hour? What happened?](https://www.reddit.com/r/wallstreetbets/comments/1krh4ss/why_market_recovered_in_the_last_hour_what/)
+- [Congress will shit this tax bill through its constipated anus, so what should we do in preparation &lpar;h&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/1ksdiyx/congress_will_shit_this_tax_bill_through_its/)
+- [GOOGL Calls YOLO - $1 million in gains](https://www.reddit.com/r/wallstreetbets/comments/1ksclxk/googl_calls_yolo_1_million_in_gains/)
+- [Walmart to Cut 1,500 Jobs](https://www.reddit.com/r/wallstreetbets/comments/1ksa6th/walmart_to_cut_1500_jobs/)
+- [30 Year Treasury crosses 5% and continues to rise](https://www.reddit.com/r/wallstreetbets/comments/1ks952k/30_year_treasury_crosses_5_and_continues_to_rise/)
+- [Decide to stop holding out and sell to see a profit](https://www.reddit.com/r/wallstreetbets/comments/1ks89rk/decide_to_stop_holding_out_and_sell_to_see_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
