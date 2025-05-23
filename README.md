@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Congress will shit this tax bill through its constipated anus, so what should we do in preparation &lpar;h&rpar;?](https://www.reddit.com/r/wallstreetbets/comments/1ksdiyx/congress_will_shit_this_tax_bill_through_its/)
-- [GOOGL Calls YOLO - $1 million in gains](https://www.reddit.com/r/wallstreetbets/comments/1ksclxk/googl_calls_yolo_1_million_in_gains/)
-- [Walmart to Cut 1,500 Jobs](https://www.reddit.com/r/wallstreetbets/comments/1ksa6th/walmart_to_cut_1500_jobs/)
-- [30 Year Treasury crosses 5% and continues to rise](https://www.reddit.com/r/wallstreetbets/comments/1ks952k/30_year_treasury_crosses_5_and_continues_to_rise/)
-- [Decide to stop holding out and sell to see a profit](https://www.reddit.com/r/wallstreetbets/comments/1ks89rk/decide_to_stop_holding_out_and_sell_to_see_a/)
+- [Guys! The casino has a 24/7 mode now!](https://www.reddit.com/r/wallstreetbets/comments/1kt5kih/guys_the_casino_has_a_247_mode_now/)
+- [Thank you papa karp](https://www.reddit.com/r/wallstreetbets/comments/1kt3u4r/thank_you_papa_karp/)
+- [Trump to sign orders to boost nuclear power &amp; uranium mining](https://www.reddit.com/r/wallstreetbets/comments/1kt3lwm/trump_to_sign_orders_to_boost_nuclear_power/)
+- [Blew my account again](https://www.reddit.com/r/wallstreetbets/comments/1kt1d4t/blew_my_account_again/)
+- [When you believe. You believe. Five years in the making.](https://www.reddit.com/r/wallstreetbets/comments/1kt16os/when_you_believe_you_believe_five_years_in_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
