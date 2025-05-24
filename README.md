@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Guys! The casino has a 24/7 mode now!](https://www.reddit.com/r/wallstreetbets/comments/1kt5kih/guys_the_casino_has_a_247_mode_now/)
-- [Thank you papa karp](https://www.reddit.com/r/wallstreetbets/comments/1kt3u4r/thank_you_papa_karp/)
-- [Trump to sign orders to boost nuclear power &amp; uranium mining](https://www.reddit.com/r/wallstreetbets/comments/1kt3lwm/trump_to_sign_orders_to_boost_nuclear_power/)
-- [Blew my account again](https://www.reddit.com/r/wallstreetbets/comments/1kt1d4t/blew_my_account_again/)
-- [When you believe. You believe. Five years in the making.](https://www.reddit.com/r/wallstreetbets/comments/1kt16os/when_you_believe_you_believe_five_years_in_the/)
+- [Trump said he would not approve the US steel merger multiple times so I went all in after many. Should I hold in case something changes?](https://www.reddit.com/r/wallstreetbets/comments/1kty8kk/trump_said_he_would_not_approve_the_us_steel/)
+- [$3,625.88 profit so far for the month of May trading SPY. One week left to hit $10,000 target.](https://www.reddit.com/r/wallstreetbets/comments/1ktwjtz/362588_profit_so_far_for_the_month_of_may_trading/)
+- [US steel gainz](https://www.reddit.com/r/wallstreetbets/comments/1ktw6u1/us_steel_gainz/)
+- [THE NAME THAT SHALL NOT BE NAMED, A YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ktvq9u/the_name_that_shall_not_be_named_a_yolo/)
+- [98% of gamblers quit before their big win](https://www.reddit.com/r/wallstreetbets/comments/1kttf25/98_of_gamblers_quit_before_their_big_win/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
