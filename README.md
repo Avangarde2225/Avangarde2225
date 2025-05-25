@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump said he would not approve the US steel merger multiple times so I went all in after many. Should I hold in case something changes?](https://www.reddit.com/r/wallstreetbets/comments/1kty8kk/trump_said_he_would_not_approve_the_us_steel/)
-- [$3,625.88 profit so far for the month of May trading SPY. One week left to hit $10,000 target.](https://www.reddit.com/r/wallstreetbets/comments/1ktwjtz/362588_profit_so_far_for_the_month_of_may_trading/)
-- [US steel gainz](https://www.reddit.com/r/wallstreetbets/comments/1ktw6u1/us_steel_gainz/)
-- [THE NAME THAT SHALL NOT BE NAMED, A YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ktvq9u/the_name_that_shall_not_be_named_a_yolo/)
-- [98% of gamblers quit before their big win](https://www.reddit.com/r/wallstreetbets/comments/1kttf25/98_of_gamblers_quit_before_their_big_win/)
+- [Who riding the $UNH train with me 🚂🚂🚂](https://www.reddit.com/r/wallstreetbets/comments/1kupmur/who_riding_the_unh_train_with_me/)
+- [[With Clear Positions] Analysts Expect First EPS Drop Since 2022!? Why They&#39;re Dead Wrong](https://www.reddit.com/r/wallstreetbets/comments/1kuoxss/with_clear_positions_analysts_expect_first_eps/)
+- [Mapping Trump Announcement impacts on stock market since January 2025. Most of them happen in the Wednesday and Thursday Morning](https://www.reddit.com/r/wallstreetbets/comments/1kuox31/mapping_trump_announcement_impacts_on_stock/)
+- [Sold puts on NVDA, got assigned, now have $250,000 on 2X leveraged NVDA ETF - will hold into earnings - If Tuesday holds.](https://www.reddit.com/r/wallstreetbets/comments/1kuo4zl/sold_puts_on_nvda_got_assigned_now_have_250000_on/)
+- [ALL OR NOTHING.](https://www.reddit.com/r/wallstreetbets/comments/1kun2oc/all_or_nothing/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
