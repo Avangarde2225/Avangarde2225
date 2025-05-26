@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Who riding the $UNH train with me 🚂🚂🚂](https://www.reddit.com/r/wallstreetbets/comments/1kupmur/who_riding_the_unh_train_with_me/)
-- [[With Clear Positions] Analysts Expect First EPS Drop Since 2022!? Why They&#39;re Dead Wrong](https://www.reddit.com/r/wallstreetbets/comments/1kuoxss/with_clear_positions_analysts_expect_first_eps/)
-- [Mapping Trump Announcement impacts on stock market since January 2025. Most of them happen in the Wednesday and Thursday Morning](https://www.reddit.com/r/wallstreetbets/comments/1kuox31/mapping_trump_announcement_impacts_on_stock/)
-- [Sold puts on NVDA, got assigned, now have $250,000 on 2X leveraged NVDA ETF - will hold into earnings - If Tuesday holds.](https://www.reddit.com/r/wallstreetbets/comments/1kuo4zl/sold_puts_on_nvda_got_assigned_now_have_250000_on/)
-- [ALL OR NOTHING.](https://www.reddit.com/r/wallstreetbets/comments/1kun2oc/all_or_nothing/)
+- [Prediction: Crowdstrike will need to CRUSH earnings above and beyond guidance to avoid a post-earnings crash](https://www.reddit.com/r/wallstreetbets/comments/1kvfqeo/prediction_crowdstrike_will_need_to_crush/)
+- [NVDA to $160](https://www.reddit.com/r/wallstreetbets/comments/1kvcvlc/nvda_to_160/)
+- [What Are Your Moves Tomorrow, May 26, 2025](https://www.reddit.com/r/wallstreetbets/comments/1kvbize/what_are_your_moves_tomorrow_may_26_2025/)
+- [Are gamblers welcome?](https://www.reddit.com/r/wallstreetbets/comments/1kvahxn/are_gamblers_welcome/)
+- [$UNH CALL$](https://www.reddit.com/r/wallstreetbets/comments/1kv7he1/unh_call/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
