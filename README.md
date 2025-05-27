@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Prediction: Crowdstrike will need to CRUSH earnings above and beyond guidance to avoid a post-earnings crash](https://www.reddit.com/r/wallstreetbets/comments/1kvfqeo/prediction_crowdstrike_will_need_to_crush/)
-- [NVDA to $160](https://www.reddit.com/r/wallstreetbets/comments/1kvcvlc/nvda_to_160/)
-- [What Are Your Moves Tomorrow, May 26, 2025](https://www.reddit.com/r/wallstreetbets/comments/1kvbize/what_are_your_moves_tomorrow_may_26_2025/)
-- [Are gamblers welcome?](https://www.reddit.com/r/wallstreetbets/comments/1kvahxn/are_gamblers_welcome/)
-- [$UNH CALL$](https://www.reddit.com/r/wallstreetbets/comments/1kv7he1/unh_call/)
+- [Businesses Aren&#39;t Front-Loading - Port of LA Import Volume](https://www.reddit.com/r/wallstreetbets/comments/1kw9p9s/businesses_arent_frontloading_port_of_la_import/)
+- [SPY Magnificent 15 - Summary for the past week May 19–23, 2025, before jumping into the unknown](https://www.reddit.com/r/wallstreetbets/comments/1kw9dyz/spy_magnificent_15_summary_for_the_past_week_may/)
+- [Zscaler earnings](https://www.reddit.com/r/wallstreetbets/comments/1kw8y4x/zscaler_earnings/)
+- [Thanks Google](https://www.reddit.com/r/wallstreetbets/comments/1kw86is/thanks_google/)
+- [30k TSLA Puts](https://www.reddit.com/r/wallstreetbets/comments/1kw6ss1/30k_tsla_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
