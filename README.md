@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I think I’ll ride this out a little longer](https://www.reddit.com/r/wallstreetbets/comments/1kx3kto/i_think_ill_ride_this_out_a_little_longer/)
-- [What are the actuals thoughts about NVDA earnings?](https://www.reddit.com/r/wallstreetbets/comments/1kx2t42/what_are_the_actuals_thoughts_about_nvda_earnings/)
-- [DoorDash is taking on debt to buy puts on itself](https://www.reddit.com/r/wallstreetbets/comments/1kx1tyj/doordash_is_taking_on_debt_to_buy_puts_on_itself/)
-- [How fucked am I](https://www.reddit.com/r/wallstreetbets/comments/1kx0unr/how_fucked_am_i/)
-- [$RKLB up 18% after hours post Geost acqusition](https://www.reddit.com/r/wallstreetbets/comments/1kwzm1q/rklb_up_18_after_hours_post_geost_acqusition/)
+- [Trump has appealed against the court ruling blocking his tariffs.](https://www.reddit.com/r/wallstreetbets/comments/1kxxei4/trump_has_appealed_against_the_court_ruling/)
+- [Live: Dow futures jump 400 points as court blocks Trump tariffs, Nvidia posts earnings beat](https://www.reddit.com/r/wallstreetbets/comments/1kxx3wg/live_dow_futures_jump_400_points_as_court_blocks/)
+- [US trade court rules Trump overstepped his authority with global tariffs](https://www.reddit.com/r/wallstreetbets/comments/1kxwsy2/us_trade_court_rules_trump_overstepped_his/)
+- [FUTURES RISE AS FEDERAL TRADE COURT BLOCKS TRUMP&#39;S GLOBAL TARIFFS](https://www.reddit.com/r/wallstreetbets/comments/1kxvp18/futures_rise_as_federal_trade_court_blocks_trumps/)
+- [Should I exit or Let them assigned at expiration?](https://www.reddit.com/r/wallstreetbets/comments/1kxunjm/should_i_exit_or_let_them_assigned_at_expiration/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
