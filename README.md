@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump has appealed against the court ruling blocking his tariffs.](https://www.reddit.com/r/wallstreetbets/comments/1kxxei4/trump_has_appealed_against_the_court_ruling/)
-- [Live: Dow futures jump 400 points as court blocks Trump tariffs, Nvidia posts earnings beat](https://www.reddit.com/r/wallstreetbets/comments/1kxx3wg/live_dow_futures_jump_400_points_as_court_blocks/)
-- [US trade court rules Trump overstepped his authority with global tariffs](https://www.reddit.com/r/wallstreetbets/comments/1kxwsy2/us_trade_court_rules_trump_overstepped_his/)
-- [FUTURES RISE AS FEDERAL TRADE COURT BLOCKS TRUMP&#39;S GLOBAL TARIFFS](https://www.reddit.com/r/wallstreetbets/comments/1kxvp18/futures_rise_as_federal_trade_court_blocks_trumps/)
-- [Should I exit or Let them assigned at expiration?](https://www.reddit.com/r/wallstreetbets/comments/1kxunjm/should_i_exit_or_let_them_assigned_at_expiration/)
+- [When my wife’s boyfriend deposits more play money in my account after I blow it up.](https://www.reddit.com/r/wallstreetbets/comments/1kyqcm7/when_my_wifes_boyfriend_deposits_more_play_money/)
+- [Tariffs will cost Gap up to $300 million](https://www.reddit.com/r/wallstreetbets/comments/1kyoer7/tariffs_will_cost_gap_up_to_300_million/)
+- [NVIDIA&#39;s AI dominance is solid! Q1 data center business carries the flag, demand remains strong, the second half of the year may usher in a](https://www.reddit.com/r/wallstreetbets/comments/1kyneiw/nvidias_ai_dominance_is_solid_q1_data_center/)
+- [Could this be a money printer at market open ? 👀](https://www.reddit.com/r/wallstreetbets/comments/1kyn1v1/could_this_be_a_money_printer_at_market_open/)
+- [I did it again. ULTA put credit spread 22K.](https://www.reddit.com/r/wallstreetbets/comments/1kylzvc/i_did_it_again_ulta_put_credit_spread_22k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
