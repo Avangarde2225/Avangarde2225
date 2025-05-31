@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When my wife’s boyfriend deposits more play money in my account after I blow it up.](https://www.reddit.com/r/wallstreetbets/comments/1kyqcm7/when_my_wifes_boyfriend_deposits_more_play_money/)
-- [Tariffs will cost Gap up to $300 million](https://www.reddit.com/r/wallstreetbets/comments/1kyoer7/tariffs_will_cost_gap_up_to_300_million/)
-- [NVIDIA&#39;s AI dominance is solid! Q1 data center business carries the flag, demand remains strong, the second half of the year may usher in a](https://www.reddit.com/r/wallstreetbets/comments/1kyneiw/nvidias_ai_dominance_is_solid_q1_data_center/)
-- [Could this be a money printer at market open ? 👀](https://www.reddit.com/r/wallstreetbets/comments/1kyn1v1/could_this_be_a_money_printer_at_market_open/)
-- [I did it again. ULTA put credit spread 22K.](https://www.reddit.com/r/wallstreetbets/comments/1kylzvc/i_did_it_again_ulta_put_credit_spread_22k/)
+- [Never Forget](https://www.reddit.com/r/wallstreetbets/comments/1kzk2w8/never_forget/)
+- [Unite for UNH](https://www.reddit.com/r/wallstreetbets/comments/1kzjpmr/unite_for_unh/)
+- [Shout out to all the bad girls for spending this quarter 💅](https://www.reddit.com/r/wallstreetbets/comments/1kziji9/shout_out_to_all_the_bad_girls_for_spending_this/)
+- [You never know unless you YOLO](https://www.reddit.com/r/wallstreetbets/comments/1kzhjyv/you_never_know_unless_you_yolo/)
+- [Beer money](https://www.reddit.com/r/wallstreetbets/comments/1kzexyp/beer_money/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
