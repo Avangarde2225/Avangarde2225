@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Never Forget](https://www.reddit.com/r/wallstreetbets/comments/1kzk2w8/never_forget/)
-- [Unite for UNH](https://www.reddit.com/r/wallstreetbets/comments/1kzjpmr/unite_for_unh/)
-- [Shout out to all the bad girls for spending this quarter 💅](https://www.reddit.com/r/wallstreetbets/comments/1kziji9/shout_out_to_all_the_bad_girls_for_spending_this/)
-- [You never know unless you YOLO](https://www.reddit.com/r/wallstreetbets/comments/1kzhjyv/you_never_know_unless_you_yolo/)
-- [Beer money](https://www.reddit.com/r/wallstreetbets/comments/1kzexyp/beer_money/)
+- [36k CLBR yolo](https://www.reddit.com/r/wallstreetbets/comments/1l0c249/36k_clbr_yolo/)
+- [Thanks for the gains Vlad!](https://www.reddit.com/r/wallstreetbets/comments/1l09l4i/thanks_for_the_gains_vlad/)
+- [YOLO nvda calls](https://www.reddit.com/r/wallstreetbets/comments/1l04uvu/yolo_nvda_calls/)
+- [What a week 😮‍💨](https://www.reddit.com/r/wallstreetbets/comments/1kzzo4v/what_a_week/)
+- [Started scalping once I hit 25k. No looking back now! 2 days of trading](https://www.reddit.com/r/wallstreetbets/comments/1kzwtlu/started_scalping_once_i_hit_25k_no_looking_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
