@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What Are Your Moves Tomorrow, June 02, 2025](https://www.reddit.com/r/wallstreetbets/comments/1l0y90d/what_are_your_moves_tomorrow_june_02_2025/)
-- [WSB Emoij collection for people who want to keep using these after June 4TH](https://www.reddit.com/r/wallstreetbets/comments/1l0xg7l/wsb_emoij_collection_for_people_who_want_to_keep/)
-- [How to force yourself to stop gambling](https://www.reddit.com/r/wallstreetbets/comments/1l0vzvu/how_to_force_yourself_to_stop_gambling/)
-- [$JACK recovery? Or insolvency?](https://www.reddit.com/r/wallstreetbets/comments/1l0tpfk/jack_recovery_or_insolvency/)
-- [$UNH YOLO](https://www.reddit.com/r/wallstreetbets/comments/1l0tmn7/unh_yolo/)
+- [Need to turn $500 into $3500 tomorrow to pay an attorney. Give me a trade to make at open.](https://www.reddit.com/r/wallstreetbets/comments/1l1yl7k/need_to_turn_500_into_3500_tomorrow_to_pay_an/)
+- [Wendys or Jack in the Box?](https://www.reddit.com/r/wallstreetbets/comments/1l1xner/wendys_or_jack_in_the_box/)
+- [My CLBR YOLO](https://www.reddit.com/r/wallstreetbets/comments/1l1whs2/my_clbr_yolo/)
+- [Put all my eggs in to one basket and got rewarded APLD](https://www.reddit.com/r/wallstreetbets/comments/1l1vbnz/put_all_my_eggs_in_to_one_basket_and_got_rewarded/)
+- [All in on CLBR. Hoping for some magic](https://www.reddit.com/r/wallstreetbets/comments/1l1v0ka/all_in_on_clbr_hoping_for_some_magic/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
