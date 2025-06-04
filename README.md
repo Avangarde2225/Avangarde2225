@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Need to turn $500 into $3500 tomorrow to pay an attorney. Give me a trade to make at open.](https://www.reddit.com/r/wallstreetbets/comments/1l1yl7k/need_to_turn_500_into_3500_tomorrow_to_pay_an/)
-- [Wendys or Jack in the Box?](https://www.reddit.com/r/wallstreetbets/comments/1l1xner/wendys_or_jack_in_the_box/)
-- [My CLBR YOLO](https://www.reddit.com/r/wallstreetbets/comments/1l1whs2/my_clbr_yolo/)
-- [Put all my eggs in to one basket and got rewarded APLD](https://www.reddit.com/r/wallstreetbets/comments/1l1vbnz/put_all_my_eggs_in_to_one_basket_and_got_rewarded/)
-- [All in on CLBR. Hoping for some magic](https://www.reddit.com/r/wallstreetbets/comments/1l1v0ka/all_in_on_clbr_hoping_for_some_magic/)
+- [5 years of grinding. Back to 0 baby](https://www.reddit.com/r/wallstreetbets/comments/1l2qm36/5_years_of_grinding_back_to_0_baby/)
+- [Dollar General is the grocer of my ancestors &lpar;too poor for Walmart&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1l2oqcb/dollar_general_is_the_grocer_of_my_ancestors_too/)
+- [First option trade....Coreweave](https://www.reddit.com/r/wallstreetbets/comments/1l2of3b/first_option_tradecoreweave/)
+- [CrowdStrike drops 6.7% on weak Q2 forecast amid soft tech spending](https://www.reddit.com/r/wallstreetbets/comments/1l2n70h/crowdstrike_drops_67_on_weak_q2_forecast_amid/)
+- [Thank you Coreweave!](https://www.reddit.com/r/wallstreetbets/comments/1l2mhcc/thank_you_coreweave/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
