@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [5 years of grinding. Back to 0 baby](https://www.reddit.com/r/wallstreetbets/comments/1l2qm36/5_years_of_grinding_back_to_0_baby/)
-- [Dollar General is the grocer of my ancestors &lpar;too poor for Walmart&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1l2oqcb/dollar_general_is_the_grocer_of_my_ancestors_too/)
-- [First option trade....Coreweave](https://www.reddit.com/r/wallstreetbets/comments/1l2of3b/first_option_tradecoreweave/)
-- [CrowdStrike drops 6.7% on weak Q2 forecast amid soft tech spending](https://www.reddit.com/r/wallstreetbets/comments/1l2n70h/crowdstrike_drops_67_on_weak_q2_forecast_amid/)
-- [Thank you Coreweave!](https://www.reddit.com/r/wallstreetbets/comments/1l2mhcc/thank_you_coreweave/)
+- [I will win](https://www.reddit.com/r/wallstreetbets/comments/1l3k4ab/i_will_win/)
+- [Inflation over - Bull market confirmed](https://www.reddit.com/r/wallstreetbets/comments/1l3jyhu/inflation_over_bull_market_confirmed/)
+- [In Honor of Losing Emojis - Upscaled Thomas for You to Print, Frame, and Put on Your Desk to Help Watch You Lose Money.](https://www.reddit.com/r/wallstreetbets/comments/1l3ijn6/in_honor_of_losing_emojis_upscaled_thomas_for_you/)
+- [I think it’s time for PLTR to come back to earth for a bit](https://www.reddit.com/r/wallstreetbets/comments/1l3ih7p/i_think_its_time_for_pltr_to_come_back_to_earth/)
+- [Dollar Tree Falls 10% on Tariff-Driven Earnings Warning Despite Higher-Income Shopper Surge](https://www.reddit.com/r/wallstreetbets/comments/1l3gwp0/dollar_tree_falls_10_on_tariffdriven_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
