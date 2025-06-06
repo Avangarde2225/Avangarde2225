@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I will win](https://www.reddit.com/r/wallstreetbets/comments/1l3k4ab/i_will_win/)
-- [Inflation over - Bull market confirmed](https://www.reddit.com/r/wallstreetbets/comments/1l3jyhu/inflation_over_bull_market_confirmed/)
-- [In Honor of Losing Emojis - Upscaled Thomas for You to Print, Frame, and Put on Your Desk to Help Watch You Lose Money.](https://www.reddit.com/r/wallstreetbets/comments/1l3ijn6/in_honor_of_losing_emojis_upscaled_thomas_for_you/)
-- [I think it’s time for PLTR to come back to earth for a bit](https://www.reddit.com/r/wallstreetbets/comments/1l3ih7p/i_think_its_time_for_pltr_to_come_back_to_earth/)
-- [Dollar Tree Falls 10% on Tariff-Driven Earnings Warning Despite Higher-Income Shopper Surge](https://www.reddit.com/r/wallstreetbets/comments/1l3gwp0/dollar_tree_falls_10_on_tariffdriven_earnings/)
+- [$72.7K Profit on TSLA Puts Today Because Elon Can’t Help Himself and TSLA Bulls are in a Cult](https://www.reddit.com/r/wallstreetbets/comments/1l4dy03/727k_profit_on_tsla_puts_today_because_elon_cant/)
+- [Am I a regard?](https://www.reddit.com/r/wallstreetbets/comments/1l4d9wn/am_i_a_regard/)
+- [TSLA 45K gain. Thanks Elmo. Holding overnight.](https://www.reddit.com/r/wallstreetbets/comments/1l4awl5/tsla_45k_gain_thanks_elmo_holding_overnight/)
+- [RKLB go brrrrrr](https://www.reddit.com/r/wallstreetbets/comments/1l4amgp/rklb_go_brrrrrr/)
+- [Electric](https://www.reddit.com/r/wallstreetbets/comments/1l4afr9/electric/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
