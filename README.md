@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$72.7K Profit on TSLA Puts Today Because Elon Can’t Help Himself and TSLA Bulls are in a Cult](https://www.reddit.com/r/wallstreetbets/comments/1l4dy03/727k_profit_on_tsla_puts_today_because_elon_cant/)
-- [Am I a regard?](https://www.reddit.com/r/wallstreetbets/comments/1l4d9wn/am_i_a_regard/)
-- [TSLA 45K gain. Thanks Elmo. Holding overnight.](https://www.reddit.com/r/wallstreetbets/comments/1l4awl5/tsla_45k_gain_thanks_elmo_holding_overnight/)
-- [RKLB go brrrrrr](https://www.reddit.com/r/wallstreetbets/comments/1l4amgp/rklb_go_brrrrrr/)
-- [Electric](https://www.reddit.com/r/wallstreetbets/comments/1l4afr9/electric/)
+- [As it turns out, buying the dip has consequences](https://www.reddit.com/r/wallstreetbets/comments/1l56wg9/as_it_turns_out_buying_the_dip_has_consequences/)
+- [S&amp;P Dow Jones Makes No Changes to S&amp;P 500 in Quarterly Rebalance](https://www.reddit.com/r/wallstreetbets/comments/1l56ecw/sp_dow_jones_makes_no_changes_to_sp_500_in/)
+- [Did i find a money glitch](https://www.reddit.com/r/wallstreetbets/comments/1l55obq/did_i_find_a_money_glitch/)
+- [SP added dow jones](https://www.reddit.com/r/wallstreetbets/comments/1l5570v/sp_added_dow_jones/)
+- [Tesla’s Head of Optimus Program Leaves Company](https://www.reddit.com/r/wallstreetbets/comments/1l52s61/teslas_head_of_optimus_program_leaves_company/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
