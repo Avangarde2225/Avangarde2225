@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [As it turns out, buying the dip has consequences](https://www.reddit.com/r/wallstreetbets/comments/1l56wg9/as_it_turns_out_buying_the_dip_has_consequences/)
-- [S&amp;P Dow Jones Makes No Changes to S&amp;P 500 in Quarterly Rebalance](https://www.reddit.com/r/wallstreetbets/comments/1l56ecw/sp_dow_jones_makes_no_changes_to_sp_500_in/)
-- [Did i find a money glitch](https://www.reddit.com/r/wallstreetbets/comments/1l55obq/did_i_find_a_money_glitch/)
-- [SP added dow jones](https://www.reddit.com/r/wallstreetbets/comments/1l5570v/sp_added_dow_jones/)
-- [Tesla’s Head of Optimus Program Leaves Company](https://www.reddit.com/r/wallstreetbets/comments/1l52s61/teslas_head_of_optimus_program_leaves_company/)
+- [NEW trying to grow account](https://www.reddit.com/r/wallstreetbets/comments/1l5zsna/new_trying_to_grow_account/)
+- [NASA, Pentagon push for SpaceEx alternatives amid Trump’s feud with Musk.](https://www.reddit.com/r/wallstreetbets/comments/1l5z01c/nasa_pentagon_push_for_spaceex_alternatives_amid/)
+- [Thank you orange man!](https://www.reddit.com/r/wallstreetbets/comments/1l5yrvm/thank_you_orange_man/)
+- [Why so Bullish? AI of course](https://www.reddit.com/r/wallstreetbets/comments/1l5v4l8/why_so_bullish_ai_of_course/)
+- [This has been a grind.](https://www.reddit.com/r/wallstreetbets/comments/1l5t4t8/this_has_been_a_grind/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
