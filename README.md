@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NEW trying to grow account](https://www.reddit.com/r/wallstreetbets/comments/1l5zsna/new_trying_to_grow_account/)
-- [NASA, Pentagon push for SpaceEx alternatives amid Trump’s feud with Musk.](https://www.reddit.com/r/wallstreetbets/comments/1l5z01c/nasa_pentagon_push_for_spaceex_alternatives_amid/)
-- [Thank you orange man!](https://www.reddit.com/r/wallstreetbets/comments/1l5yrvm/thank_you_orange_man/)
-- [Why so Bullish? AI of course](https://www.reddit.com/r/wallstreetbets/comments/1l5v4l8/why_so_bullish_ai_of_course/)
-- [This has been a grind.](https://www.reddit.com/r/wallstreetbets/comments/1l5t4t8/this_has_been_a_grind/)
+- [Why I Believe Sweetgreen is Undervalued](https://www.reddit.com/r/wallstreetbets/comments/1l6r262/why_i_believe_sweetgreen_is_undervalued/)
+- [I’ll catch a nice dividend and bump in the next couple weeks. Argue with me](https://www.reddit.com/r/wallstreetbets/comments/1l6nsr8/ill_catch_a_nice_dividend_and_bump_in_the_next/)
+- [What Are Your Moves Tomorrow, June 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1l6lb09/what_are_your_moves_tomorrow_june_09_2025/)
+- [Loss of a kidney](https://www.reddit.com/r/wallstreetbets/comments/1l6gwrq/loss_of_a_kidney/)
+- [Godzilla and Shower Formation spotted on Bitcoin Chart, Bought $350k in IBIT Calls](https://www.reddit.com/r/wallstreetbets/comments/1l6dm8d/godzilla_and_shower_formation_spotted_on_bitcoin/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
