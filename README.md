@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why I Believe Sweetgreen is Undervalued](https://www.reddit.com/r/wallstreetbets/comments/1l6r262/why_i_believe_sweetgreen_is_undervalued/)
-- [I’ll catch a nice dividend and bump in the next couple weeks. Argue with me](https://www.reddit.com/r/wallstreetbets/comments/1l6nsr8/ill_catch_a_nice_dividend_and_bump_in_the_next/)
-- [What Are Your Moves Tomorrow, June 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1l6lb09/what_are_your_moves_tomorrow_june_09_2025/)
-- [Loss of a kidney](https://www.reddit.com/r/wallstreetbets/comments/1l6gwrq/loss_of_a_kidney/)
-- [Godzilla and Shower Formation spotted on Bitcoin Chart, Bought $350k in IBIT Calls](https://www.reddit.com/r/wallstreetbets/comments/1l6dm8d/godzilla_and_shower_formation_spotted_on_bitcoin/)
+- [Welp, Good Bye!](https://www.reddit.com/r/wallstreetbets/comments/1l7krfz/welp_good_bye/)
+- [ACHR](https://www.reddit.com/r/wallstreetbets/comments/1l7iwtu/achr/)
+- [Nearly $10K Profit on HOOD Today: Puts and Calls](https://www.reddit.com/r/wallstreetbets/comments/1l7hth1/nearly_10k_profit_on_hood_today_puts_and_calls/)
+- [RIP](https://www.reddit.com/r/wallstreetbets/comments/1l7hrfy/rip/)
+- [My $4K Day](https://www.reddit.com/r/wallstreetbets/comments/1l7hhir/my_4k_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
