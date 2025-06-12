@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Mr. Nimbus](https://www.reddit.com/r/wallstreetbets/comments/1l8f2y5/mr_nimbus/)
-- [US and China Agree to a Framework for Talks about Ideas for Talks for Negotiations on Frameworks for Starting Talks About a Deal](https://www.reddit.com/r/wallstreetbets/comments/1l8e5h9/us_and_china_agree_to_a_framework_for_talks_about/)
-- [Thank you again tesler](https://www.reddit.com/r/wallstreetbets/comments/1l8drpg/thank_you_again_tesler/)
-- [I like the stock](https://www.reddit.com/r/wallstreetbets/comments/1l8dl6f/i_like_the_stock/)
-- [Are Robotaxis overhyped?](https://www.reddit.com/r/wallstreetbets/comments/1l8d4i6/are_robotaxis_overhyped/)
+- [I’m loyal to the game, and the game is loyal to me too](https://www.reddit.com/r/wallstreetbets/comments/1l97twb/im_loyal_to_the_game_and_the_game_is_loyal_to_me/)
+- [SPY YOLO](https://www.reddit.com/r/wallstreetbets/comments/1l971yz/spy_yolo/)
+- [Oracle shares climb 8% as earnings, revenue top estimates](https://www.reddit.com/r/wallstreetbets/comments/1l95o5n/oracle_shares_climb_8_as_earnings_revenue_top/)
+- [Promised myself i would diamond hand my SQQQ YOLO no matter what after the April 9 extension. &lpar;Also Canadian so add another -8% to that&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1l94py0/promised_myself_i_would_diamond_hand_my_sqqq_yolo/)
+- [IONQ CEO just sold every single one of his shares &lpar;$103M&rpar; today after hyping the stock endlessly the last 2 months.](https://www.reddit.com/r/wallstreetbets/comments/1l94eqq/ionq_ceo_just_sold_every_single_one_of_his_shares/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
