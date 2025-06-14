@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought some puts midday today](https://www.reddit.com/r/wallstreetbets/comments/1la2qi2/bought_some_puts_midday_today/)
-- [From $3k to almost $100k in a month. What next?](https://www.reddit.com/r/wallstreetbets/comments/1la2p22/from_3k_to_almost_100k_in_a_month_what_next/)
-- [[Axios] Israel strikes Iran: Explosions in Tehran, sirens in Israel](https://www.reddit.com/r/wallstreetbets/comments/1la297k/axios_israel_strikes_iran_explosions_in_tehran/)
-- [I borrowed $5M to invest. Should I borrow more?](https://www.reddit.com/r/wallstreetbets/comments/1l9z4yl/i_borrowed_5m_to_invest_should_i_borrow_more/)
-- [UNH $$$ day gain $50 K](https://www.reddit.com/r/wallstreetbets/comments/1l9yr2p/unh_day_gain_50_k/)
+- [Using CVNA puts to buy a V10 R8 in August](https://www.reddit.com/r/wallstreetbets/comments/1lat0s3/using_cvna_puts_to_buy_a_v10_r8_in_august/)
+- [Am I cooked](https://www.reddit.com/r/wallstreetbets/comments/1lasgmi/am_i_cooked/)
+- [Hit 100k the hard way today](https://www.reddit.com/r/wallstreetbets/comments/1las0sv/hit_100k_the_hard_way_today/)
+- [Road to Recovery - 70.8% DAY](https://www.reddit.com/r/wallstreetbets/comments/1larewn/road_to_recovery_708_day/)
+- [Buy the dip](https://www.reddit.com/r/wallstreetbets/comments/1laqqgf/buy_the_dip/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
