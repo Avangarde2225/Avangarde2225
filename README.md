@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Using CVNA puts to buy a V10 R8 in August](https://www.reddit.com/r/wallstreetbets/comments/1lat0s3/using_cvna_puts_to_buy_a_v10_r8_in_august/)
-- [Am I cooked](https://www.reddit.com/r/wallstreetbets/comments/1lasgmi/am_i_cooked/)
-- [Hit 100k the hard way today](https://www.reddit.com/r/wallstreetbets/comments/1las0sv/hit_100k_the_hard_way_today/)
-- [Road to Recovery - 70.8% DAY](https://www.reddit.com/r/wallstreetbets/comments/1larewn/road_to_recovery_708_day/)
-- [Buy the dip](https://www.reddit.com/r/wallstreetbets/comments/1laqqgf/buy_the_dip/)
+- [Will it print?](https://www.reddit.com/r/wallstreetbets/comments/1lbmxih/will_it_print/)
+- [&quot;The way up and the way down are one and the same.&quot; Which way are you going? UNH calls. QQQ puts.](https://www.reddit.com/r/wallstreetbets/comments/1lbmrug/the_way_up_and_the_way_down_are_one_and_the_same/)
+- [Went for round 2 on Friday](https://www.reddit.com/r/wallstreetbets/comments/1lbm3gu/went_for_round_2_on_friday/)
+- [Ready for Monday](https://www.reddit.com/r/wallstreetbets/comments/1lblf3k/ready_for_monday/)
+- [What do y&#39;all think](https://www.reddit.com/r/wallstreetbets/comments/1lbl89x/what_do_yall_think/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
