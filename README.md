@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Will it print?](https://www.reddit.com/r/wallstreetbets/comments/1lbmxih/will_it_print/)
-- [&quot;The way up and the way down are one and the same.&quot; Which way are you going? UNH calls. QQQ puts.](https://www.reddit.com/r/wallstreetbets/comments/1lbmrug/the_way_up_and_the_way_down_are_one_and_the_same/)
-- [Went for round 2 on Friday](https://www.reddit.com/r/wallstreetbets/comments/1lbm3gu/went_for_round_2_on_friday/)
-- [Ready for Monday](https://www.reddit.com/r/wallstreetbets/comments/1lblf3k/ready_for_monday/)
-- [What do y&#39;all think](https://www.reddit.com/r/wallstreetbets/comments/1lbl89x/what_do_yall_think/)
+- [Finally profitable after 8 years and losing 30k. Hang in there boys.](https://www.reddit.com/r/wallstreetbets/comments/1lcaehv/finally_profitable_after_8_years_and_losing_30k/)
+- [What Are Your Moves Tomorrow, June 16, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lc9g9h/what_are_your_moves_tomorrow_june_16_2025/)
+- [Cooked? Banking on a Monday draw down to spy 590 and QQQ 520](https://www.reddit.com/r/wallstreetbets/comments/1lc4oo5/cooked_banking_on_a_monday_draw_down_to_spy_590/)
+- [What&#39;s the smartest &lpar;or dumbest-but-it-worked&rpar; way you&#39;ve ever made money in the stock market?](https://www.reddit.com/r/wallstreetbets/comments/1lbxsji/whats_the_smartest_or_dumbestbutitworked_way/)
+- [Am I worthy to be here?](https://www.reddit.com/r/wallstreetbets/comments/1lbpnza/am_i_worthy_to_be_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
