@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Finally profitable after 8 years and losing 30k. Hang in there boys.](https://www.reddit.com/r/wallstreetbets/comments/1lcaehv/finally_profitable_after_8_years_and_losing_30k/)
-- [What Are Your Moves Tomorrow, June 16, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lc9g9h/what_are_your_moves_tomorrow_june_16_2025/)
-- [Cooked? Banking on a Monday draw down to spy 590 and QQQ 520](https://www.reddit.com/r/wallstreetbets/comments/1lc4oo5/cooked_banking_on_a_monday_draw_down_to_spy_590/)
-- [What&#39;s the smartest &lpar;or dumbest-but-it-worked&rpar; way you&#39;ve ever made money in the stock market?](https://www.reddit.com/r/wallstreetbets/comments/1lbxsji/whats_the_smartest_or_dumbestbutitworked_way/)
-- [Am I worthy to be here?](https://www.reddit.com/r/wallstreetbets/comments/1lbpnza/am_i_worthy_to_be_here/)
+- [It went down so I doubled up today..](https://www.reddit.com/r/wallstreetbets/comments/1ld9lvk/it_went_down_so_i_doubled_up_today/)
+- [$614 -&gt; $18,700 in 3 months with SPY/RDDT/VXX calls. Taking a break and withdrawing.](https://www.reddit.com/r/wallstreetbets/comments/1ld88js/614_18700_in_3_months_with_spyrddtvxx_calls/)
+- [Gambling](https://www.reddit.com/r/wallstreetbets/comments/1ld72ao/gambling/)
+- [Closed out my 1000 share PLTR position](https://www.reddit.com/r/wallstreetbets/comments/1ld5za9/closed_out_my_1000_share_pltr_position/)
+- [ACHR YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ld3vev/achr_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
