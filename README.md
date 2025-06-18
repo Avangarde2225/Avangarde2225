@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It went down so I doubled up today..](https://www.reddit.com/r/wallstreetbets/comments/1ld9lvk/it_went_down_so_i_doubled_up_today/)
-- [$614 -&gt; $18,700 in 3 months with SPY/RDDT/VXX calls. Taking a break and withdrawing.](https://www.reddit.com/r/wallstreetbets/comments/1ld88js/614_18700_in_3_months_with_spyrddtvxx_calls/)
-- [Gambling](https://www.reddit.com/r/wallstreetbets/comments/1ld72ao/gambling/)
-- [Closed out my 1000 share PLTR position](https://www.reddit.com/r/wallstreetbets/comments/1ld5za9/closed_out_my_1000_share_pltr_position/)
-- [ACHR YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ld3vev/achr_yolo/)
+- [RIP my Trading Career 6/13-6/27](https://www.reddit.com/r/wallstreetbets/comments/1le1cjg/rip_my_trading_career_613627/)
+- [Who caught the $SPX Put today?](https://www.reddit.com/r/wallstreetbets/comments/1ldzzbd/who_caught_the_spx_put_today/)
+- [YOLO’d my way through Nvidia highs, Boeing lows, and Dell’s emotional support. 😎📉💀](https://www.reddit.com/r/wallstreetbets/comments/1ldy1b4/yolod_my_way_through_nvidia_highs_boeing_lows_and/)
+- [Been a lucky June so far](https://www.reddit.com/r/wallstreetbets/comments/1ldxe7i/been_a_lucky_june_so_far/)
+- [Man](https://www.reddit.com/r/wallstreetbets/comments/1ldxe5n/man/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
