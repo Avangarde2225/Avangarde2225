@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RIP my Trading Career 6/13-6/27](https://www.reddit.com/r/wallstreetbets/comments/1le1cjg/rip_my_trading_career_613627/)
-- [Who caught the $SPX Put today?](https://www.reddit.com/r/wallstreetbets/comments/1ldzzbd/who_caught_the_spx_put_today/)
-- [YOLO’d my way through Nvidia highs, Boeing lows, and Dell’s emotional support. 😎📉💀](https://www.reddit.com/r/wallstreetbets/comments/1ldy1b4/yolod_my_way_through_nvidia_highs_boeing_lows_and/)
-- [Been a lucky June so far](https://www.reddit.com/r/wallstreetbets/comments/1ldxe7i/been_a_lucky_june_so_far/)
-- [Man](https://www.reddit.com/r/wallstreetbets/comments/1ldxe5n/man/)
+- [I top blasted $CRCL at $110 and it keeps going up. Don’t be scared to jump into the ponzi](https://www.reddit.com/r/wallstreetbets/comments/1lewr68/i_top_blasted_crcl_at_110_and_it_keeps_going_up/)
+- [The joke that I might be able to pay off the mortgage in 5-10 years with 2k might be a real thing &lpar;$1.8k —&gt; $48k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lewpgq/the_joke_that_i_might_be_able_to_pay_off_the/)
+- [ASTS YOLO +50k so far](https://www.reddit.com/r/wallstreetbets/comments/1lev73h/asts_yolo_50k_so_far/)
+- [Do you guys think I might get rekt on the PMCC strategies](https://www.reddit.com/r/wallstreetbets/comments/1leu94t/do_you_guys_think_i_might_get_rekt_on_the_pmcc/)
+- [thank you Jesus &lpar;CRCL&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1leu66w/thank_you_jesus_crcl/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
