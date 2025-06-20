@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I top blasted $CRCL at $110 and it keeps going up. Don’t be scared to jump into the ponzi](https://www.reddit.com/r/wallstreetbets/comments/1lewr68/i_top_blasted_crcl_at_110_and_it_keeps_going_up/)
-- [The joke that I might be able to pay off the mortgage in 5-10 years with 2k might be a real thing &lpar;$1.8k —&gt; $48k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lewpgq/the_joke_that_i_might_be_able_to_pay_off_the/)
-- [ASTS YOLO +50k so far](https://www.reddit.com/r/wallstreetbets/comments/1lev73h/asts_yolo_50k_so_far/)
-- [Do you guys think I might get rekt on the PMCC strategies](https://www.reddit.com/r/wallstreetbets/comments/1leu94t/do_you_guys_think_i_might_get_rekt_on_the_pmcc/)
-- [thank you Jesus &lpar;CRCL&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1leu66w/thank_you_jesus_crcl/)
+- [Jumping on the ASTS post train.](https://www.reddit.com/r/wallstreetbets/comments/1lfphgm/jumping_on_the_asts_post_train/)
+- [BuT iT&#39;s A MeME sToCk &lpar;$ASTS&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lfpb7a/but_its_a_meme_stock_asts/)
+- [It&#39;s not much, but its honest work. $ASTS🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1lfnz1y/its_not_much_but_its_honest_work_asts/)
+- [Is this spelling that on purpose?](https://www.reddit.com/r/wallstreetbets/comments/1lfm0e2/is_this_spelling_that_on_purpose/)
+- [$ASTS position evolved into unrecognizable monstrosity](https://www.reddit.com/r/wallstreetbets/comments/1lfkv2v/asts_position_evolved_into_unrecognizable/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
