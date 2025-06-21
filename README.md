@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Jumping on the ASTS post train.](https://www.reddit.com/r/wallstreetbets/comments/1lfphgm/jumping_on_the_asts_post_train/)
-- [BuT iT&#39;s A MeME sToCk &lpar;$ASTS&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lfpb7a/but_its_a_meme_stock_asts/)
-- [It&#39;s not much, but its honest work. $ASTS🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1lfnz1y/its_not_much_but_its_honest_work_asts/)
-- [Is this spelling that on purpose?](https://www.reddit.com/r/wallstreetbets/comments/1lfm0e2/is_this_spelling_that_on_purpose/)
-- [$ASTS position evolved into unrecognizable monstrosity](https://www.reddit.com/r/wallstreetbets/comments/1lfkv2v/asts_position_evolved_into_unrecognizable/)
+- [Made 65 trades in 2 hours on CRCL for net of 5.5K gains](https://www.reddit.com/r/wallstreetbets/comments/1lgiyiq/made_65_trades_in_2_hours_on_crcl_for_net_of_55k/)
+- [17 consecutive days of gains.](https://www.reddit.com/r/wallstreetbets/comments/1lgegnm/17_consecutive_days_of_gains/)
+- [Where&#39;s the COIN gains at?](https://www.reddit.com/r/wallstreetbets/comments/1lge73h/wheres_the_coin_gains_at/)
+- [YOLO: All in on $CLBR](https://www.reddit.com/r/wallstreetbets/comments/1lgdl3z/yolo_all_in_on_clbr/)
+- [Weekend Discussion Thread for the Weekend of June 20, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lgdft5/weekend_discussion_thread_for_the_weekend_of_june/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
