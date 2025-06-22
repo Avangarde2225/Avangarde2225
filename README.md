@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Made 65 trades in 2 hours on CRCL for net of 5.5K gains](https://www.reddit.com/r/wallstreetbets/comments/1lgiyiq/made_65_trades_in_2_hours_on_crcl_for_net_of_55k/)
-- [17 consecutive days of gains.](https://www.reddit.com/r/wallstreetbets/comments/1lgegnm/17_consecutive_days_of_gains/)
-- [Where&#39;s the COIN gains at?](https://www.reddit.com/r/wallstreetbets/comments/1lge73h/wheres_the_coin_gains_at/)
-- [YOLO: All in on $CLBR](https://www.reddit.com/r/wallstreetbets/comments/1lgdl3z/yolo_all_in_on_clbr/)
-- [Weekend Discussion Thread for the Weekend of June 20, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lgdft5/weekend_discussion_thread_for_the_weekend_of_june/)
+- [Telesat - $TSAT - Insider DD and generational opportunity](https://www.reddit.com/r/wallstreetbets/comments/1lh7g31/telesat_tsat_insider_dd_and_generational/)
+- [I would like to sincerely thank everyone for overreacting to tariffs 🙏](https://www.reddit.com/r/wallstreetbets/comments/1lh0u36/i_would_like_to_sincerely_thank_everyone_for/)
+- [Crude Futures Options - They Work!](https://www.reddit.com/r/wallstreetbets/comments/1lgpguj/crude_futures_options_they_work/)
+- [Last YOLO to make it all back](https://www.reddit.com/r/wallstreetbets/comments/1lgo5dm/last_yolo_to_make_it_all_back/)
+- [GOOGLE CALL HOLDER HOTLINE](https://www.reddit.com/r/wallstreetbets/comments/1lgjyv6/google_call_holder_hotline/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
