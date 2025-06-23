@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Telesat - $TSAT - Insider DD and generational opportunity](https://www.reddit.com/r/wallstreetbets/comments/1lh7g31/telesat_tsat_insider_dd_and_generational/)
-- [I would like to sincerely thank everyone for overreacting to tariffs 🙏](https://www.reddit.com/r/wallstreetbets/comments/1lh0u36/i_would_like_to_sincerely_thank_everyone_for/)
-- [Crude Futures Options - They Work!](https://www.reddit.com/r/wallstreetbets/comments/1lgpguj/crude_futures_options_they_work/)
-- [Last YOLO to make it all back](https://www.reddit.com/r/wallstreetbets/comments/1lgo5dm/last_yolo_to_make_it_all_back/)
-- [GOOGLE CALL HOLDER HOTLINE](https://www.reddit.com/r/wallstreetbets/comments/1lgjyv6/google_call_holder_hotline/)
+- [So who is the poor soul that paid &gt;$15 asking price for Tesla at the open? No way you aren&#39;t in here.](https://www.reddit.com/r/wallstreetbets/comments/1li2rav/so_who_is_the_poor_soul_that_paid_15_asking_price/)
+- [Calls on Logitech &lpar;LOGI&rpar; thanks to Robotaxi](https://www.reddit.com/r/wallstreetbets/comments/1li2c7t/calls_on_logitech_logi_thanks_to_robotaxi/)
+- [Waiting](https://www.reddit.com/r/wallstreetbets/comments/1lhzbk9/waiting/)
+- [What Are Your Moves Tomorrow, June 23, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lhx158/what_are_your_moves_tomorrow_june_23_2025/)
+- [Believe it or not](https://www.reddit.com/r/wallstreetbets/comments/1lhwz01/believe_it_or_not/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
