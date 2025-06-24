@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [So who is the poor soul that paid &gt;$15 asking price for Tesla at the open? No way you aren&#39;t in here.](https://www.reddit.com/r/wallstreetbets/comments/1li2rav/so_who_is_the_poor_soul_that_paid_15_asking_price/)
-- [Calls on Logitech &lpar;LOGI&rpar; thanks to Robotaxi](https://www.reddit.com/r/wallstreetbets/comments/1li2c7t/calls_on_logitech_logi_thanks_to_robotaxi/)
-- [Waiting](https://www.reddit.com/r/wallstreetbets/comments/1lhzbk9/waiting/)
-- [What Are Your Moves Tomorrow, June 23, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lhx158/what_are_your_moves_tomorrow_june_23_2025/)
-- [Believe it or not](https://www.reddit.com/r/wallstreetbets/comments/1lhwz01/believe_it_or_not/)
+- [when universe conspires against you](https://www.reddit.com/r/wallstreetbets/comments/1liwzi6/when_universe_conspires_against_you/)
+- [I am down like 150k overall and am 25](https://www.reddit.com/r/wallstreetbets/comments/1livqik/i_am_down_like_150k_overall_and_am_25/)
+- [Off to Popeyes I go](https://www.reddit.com/r/wallstreetbets/comments/1liurd3/off_to_popeyes_i_go/)
+- [My biggest YOLO [HIMs &amp; AMD]](https://www.reddit.com/r/wallstreetbets/comments/1liul3z/my_biggest_yolo_hims_amd/)
+- [Covered calls fail](https://www.reddit.com/r/wallstreetbets/comments/1liqsr3/covered_calls_fail/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
