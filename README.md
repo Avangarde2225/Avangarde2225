@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [when universe conspires against you](https://www.reddit.com/r/wallstreetbets/comments/1liwzi6/when_universe_conspires_against_you/)
-- [I am down like 150k overall and am 25](https://www.reddit.com/r/wallstreetbets/comments/1livqik/i_am_down_like_150k_overall_and_am_25/)
-- [Off to Popeyes I go](https://www.reddit.com/r/wallstreetbets/comments/1liurd3/off_to_popeyes_i_go/)
-- [My biggest YOLO [HIMs &amp; AMD]](https://www.reddit.com/r/wallstreetbets/comments/1liul3z/my_biggest_yolo_hims_amd/)
-- [Covered calls fail](https://www.reddit.com/r/wallstreetbets/comments/1liqsr3/covered_calls_fail/)
+- [Advanced Money Doubler](https://www.reddit.com/r/wallstreetbets/comments/1ljrlvw/advanced_money_doubler/)
+- [Am I highly regarded?](https://www.reddit.com/r/wallstreetbets/comments/1ljp6e9/am_i_highly_regarded/)
+- [+$8,149.21 mostly from SunRun call options. Just the beginning 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1ljov67/814921_mostly_from_sunrun_call_options_just_the/)
+- [Still waiting on the Dip](https://www.reddit.com/r/wallstreetbets/comments/1ljnivl/still_waiting_on_the_dip/)
+- [Staying Nice and Patient wins again](https://www.reddit.com/r/wallstreetbets/comments/1ljn16c/staying_nice_and_patient_wins_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
