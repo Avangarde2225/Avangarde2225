@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Advanced Money Doubler](https://www.reddit.com/r/wallstreetbets/comments/1ljrlvw/advanced_money_doubler/)
-- [Am I highly regarded?](https://www.reddit.com/r/wallstreetbets/comments/1ljp6e9/am_i_highly_regarded/)
-- [+$8,149.21 mostly from SunRun call options. Just the beginning 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1ljov67/814921_mostly_from_sunrun_call_options_just_the/)
-- [Still waiting on the Dip](https://www.reddit.com/r/wallstreetbets/comments/1ljnivl/still_waiting_on_the_dip/)
-- [Staying Nice and Patient wins again](https://www.reddit.com/r/wallstreetbets/comments/1ljn16c/staying_nice_and_patient_wins_again/)
+- [Am I doing this right?](https://www.reddit.com/r/wallstreetbets/comments/1lkkhnv/am_i_doing_this_right/)
+- [Diamond Hands Babyyyyy 💎💎💎](https://www.reddit.com/r/wallstreetbets/comments/1lkj0zp/diamond_hands_babyyyyy/)
+- [Fannie Mae, Freddie Mac ordered to consider crypto as an asset when buying mortgages](https://www.reddit.com/r/wallstreetbets/comments/1lkhwfl/fannie_mae_freddie_mac_ordered_to_consider_crypto/)
+- [Playing my part 26M](https://www.reddit.com/r/wallstreetbets/comments/1lkg2fv/playing_my_part_26m/)
+- [What Are Your Moves Tomorrow, June 26, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lkfsm8/what_are_your_moves_tomorrow_june_26_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
