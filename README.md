@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Am I doing this right?](https://www.reddit.com/r/wallstreetbets/comments/1lkkhnv/am_i_doing_this_right/)
-- [Diamond Hands Babyyyyy 💎💎💎](https://www.reddit.com/r/wallstreetbets/comments/1lkj0zp/diamond_hands_babyyyyy/)
-- [Fannie Mae, Freddie Mac ordered to consider crypto as an asset when buying mortgages](https://www.reddit.com/r/wallstreetbets/comments/1lkhwfl/fannie_mae_freddie_mac_ordered_to_consider_crypto/)
-- [Playing my part 26M](https://www.reddit.com/r/wallstreetbets/comments/1lkg2fv/playing_my_part_26m/)
-- [What Are Your Moves Tomorrow, June 26, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lkfsm8/what_are_your_moves_tomorrow_june_26_2025/)
+- [CRCL Losses](https://www.reddit.com/r/wallstreetbets/comments/1llfl75/crcl_losses/)
+- [“I sold Monday morning after the Iran bombings this weekend”](https://www.reddit.com/r/wallstreetbets/comments/1lldzk7/i_sold_monday_morning_after_the_iran_bombings/)
+- [How much did I print](https://www.reddit.com/r/wallstreetbets/comments/1lldkuh/how_much_did_i_print/)
+- [Nike says tariffs will cost it $1 billion before price increases, supply chain shifts](https://www.reddit.com/r/wallstreetbets/comments/1lldieu/nike_says_tariffs_will_cost_it_1_billion_before/)
+- [All in for KOHLS!](https://www.reddit.com/r/wallstreetbets/comments/1llcofe/all_in_for_kohls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
