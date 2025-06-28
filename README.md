@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CRCL Losses](https://www.reddit.com/r/wallstreetbets/comments/1llfl75/crcl_losses/)
-- [“I sold Monday morning after the Iran bombings this weekend”](https://www.reddit.com/r/wallstreetbets/comments/1lldzk7/i_sold_monday_morning_after_the_iran_bombings/)
-- [How much did I print](https://www.reddit.com/r/wallstreetbets/comments/1lldkuh/how_much_did_i_print/)
-- [Nike says tariffs will cost it $1 billion before price increases, supply chain shifts](https://www.reddit.com/r/wallstreetbets/comments/1lldieu/nike_says_tariffs_will_cost_it_1_billion_before/)
-- [All in for KOHLS!](https://www.reddit.com/r/wallstreetbets/comments/1llcofe/all_in_for_kohls/)
+- [Thanks Robinhood, still won’t use your fucking app though](https://www.reddit.com/r/wallstreetbets/comments/1lm9b9z/thanks_robinhood_still_wont_use_your_fucking_app/)
+- [Sold 18 puts on PLTR right before close…](https://www.reddit.com/r/wallstreetbets/comments/1lm6y82/sold_18_puts_on_pltr_right_before_close/)
+- [If you talked shit, you better apologize. $NKE](https://www.reddit.com/r/wallstreetbets/comments/1lm5srr/if_you_talked_shit_you_better_apologize_nke/)
+- [Carvana won’t go past 355](https://www.reddit.com/r/wallstreetbets/comments/1lm5qof/carvana_wont_go_past_355/)
+- [Not the most degen shit you’ll see](https://www.reddit.com/r/wallstreetbets/comments/1lm5k21/not_the_most_degen_shit_youll_see/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
