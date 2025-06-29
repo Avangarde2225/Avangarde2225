@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks Robinhood, still won’t use your fucking app though](https://www.reddit.com/r/wallstreetbets/comments/1lm9b9z/thanks_robinhood_still_wont_use_your_fucking_app/)
-- [Sold 18 puts on PLTR right before close…](https://www.reddit.com/r/wallstreetbets/comments/1lm6y82/sold_18_puts_on_pltr_right_before_close/)
-- [If you talked shit, you better apologize. $NKE](https://www.reddit.com/r/wallstreetbets/comments/1lm5srr/if_you_talked_shit_you_better_apologize_nke/)
-- [Carvana won’t go past 355](https://www.reddit.com/r/wallstreetbets/comments/1lm5qof/carvana_wont_go_past_355/)
-- [Not the most degen shit you’ll see](https://www.reddit.com/r/wallstreetbets/comments/1lm5k21/not_the_most_degen_shit_youll_see/)
+- [First time messing with options](https://www.reddit.com/r/wallstreetbets/comments/1ln1xqz/first_time_messing_with_options/)
+- [Google me](https://www.reddit.com/r/wallstreetbets/comments/1lmz9wg/google_me/)
+- [I forgive you Robinhood](https://www.reddit.com/r/wallstreetbets/comments/1lmtoal/i_forgive_you_robinhood/)
+- [NuScale Power Corporation &lpar;NYSE: SMR&rpar; Special Situation Analysis](https://www.reddit.com/r/wallstreetbets/comments/1lmq32d/nuscale_power_corporation_nyse_smr_special/)
+- [Halfway point of 2025. Share your Wins/Losses](https://www.reddit.com/r/wallstreetbets/comments/1lmpgd9/halfway_point_of_2025_share_your_winslosses/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
