@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [First time messing with options](https://www.reddit.com/r/wallstreetbets/comments/1ln1xqz/first_time_messing_with_options/)
-- [Google me](https://www.reddit.com/r/wallstreetbets/comments/1lmz9wg/google_me/)
-- [I forgive you Robinhood](https://www.reddit.com/r/wallstreetbets/comments/1lmtoal/i_forgive_you_robinhood/)
-- [NuScale Power Corporation &lpar;NYSE: SMR&rpar; Special Situation Analysis](https://www.reddit.com/r/wallstreetbets/comments/1lmq32d/nuscale_power_corporation_nyse_smr_special/)
-- [Halfway point of 2025. Share your Wins/Losses](https://www.reddit.com/r/wallstreetbets/comments/1lmpgd9/halfway_point_of_2025_share_your_winslosses/)
+- [Trump says he&#39;s not planning to extend a tariffs pause beyond July 9 | AP News](https://www.reddit.com/r/wallstreetbets/comments/1lnuf51/trump_says_hes_not_planning_to_extend_a_tariffs/)
+- [What Are Your Moves Tomorrow, June 30, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lnu4zi/what_are_your_moves_tomorrow_june_30_2025/)
+- [What Are Your Moves Tomorrow, June 30, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lnr5az/what_are_your_moves_tomorrow_june_30_2025/)
+- [Goog calls, pltr puts 10 min before the close on Friday.](https://www.reddit.com/r/wallstreetbets/comments/1lnpgxr/goog_calls_pltr_puts_10_min_before_the_close_on/)
+- [Port Gains🚀](https://www.reddit.com/r/wallstreetbets/comments/1ln9lyu/port_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
