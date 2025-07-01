@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump says he&#39;s not planning to extend a tariffs pause beyond July 9 | AP News](https://www.reddit.com/r/wallstreetbets/comments/1lnuf51/trump_says_hes_not_planning_to_extend_a_tariffs/)
-- [What Are Your Moves Tomorrow, June 30, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lnu4zi/what_are_your_moves_tomorrow_june_30_2025/)
-- [What Are Your Moves Tomorrow, June 30, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lnr5az/what_are_your_moves_tomorrow_june_30_2025/)
-- [Goog calls, pltr puts 10 min before the close on Friday.](https://www.reddit.com/r/wallstreetbets/comments/1lnpgxr/goog_calls_pltr_puts_10_min_before_the_close_on/)
-- [Port Gains🚀](https://www.reddit.com/r/wallstreetbets/comments/1ln9lyu/port_gains/)
+- [HOOD buy and hold since last April](https://www.reddit.com/r/wallstreetbets/comments/1loo43d/hood_buy_and_hold_since_last_april/)
+- [$BULL](https://www.reddit.com/r/wallstreetbets/comments/1lol4rj/bull/)
+- [Can someone explain the Carvana nonsense to me?](https://www.reddit.com/r/wallstreetbets/comments/1lokt8b/can_someone_explain_the_carvana_nonsense_to_me/)
+- [YOLO on HOOD](https://www.reddit.com/r/wallstreetbets/comments/1lojr7s/yolo_on_hood/)
+- [-$8500 Coreweave Loss. We Will Get Em Next Time Boys!](https://www.reddit.com/r/wallstreetbets/comments/1lojhqh/8500_coreweave_loss_we_will_get_em_next_time_boys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
