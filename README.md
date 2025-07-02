@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [HOOD buy and hold since last April](https://www.reddit.com/r/wallstreetbets/comments/1loo43d/hood_buy_and_hold_since_last_april/)
-- [$BULL](https://www.reddit.com/r/wallstreetbets/comments/1lol4rj/bull/)
-- [Can someone explain the Carvana nonsense to me?](https://www.reddit.com/r/wallstreetbets/comments/1lokt8b/can_someone_explain_the_carvana_nonsense_to_me/)
-- [YOLO on HOOD](https://www.reddit.com/r/wallstreetbets/comments/1lojr7s/yolo_on_hood/)
-- [-$8500 Coreweave Loss. We Will Get Em Next Time Boys!](https://www.reddit.com/r/wallstreetbets/comments/1lojhqh/8500_coreweave_loss_we_will_get_em_next_time_boys/)
+- [I just can&#39;t get it up](https://www.reddit.com/r/wallstreetbets/comments/1lphv10/i_just_cant_get_it_up/)
+- [TSLA puts have been fun this month](https://www.reddit.com/r/wallstreetbets/comments/1lpgoai/tsla_puts_have_been_fun_this_month/)
+- [Figma S1 Filed](https://www.reddit.com/r/wallstreetbets/comments/1lpgn5w/figma_s1_filed/)
+- [Good enough to post good enough to sell](https://www.reddit.com/r/wallstreetbets/comments/1lpdx6h/good_enough_to_post_good_enough_to_sell/)
+- [I just love the green sub headings](https://www.reddit.com/r/wallstreetbets/comments/1lpd8pn/i_just_love_the_green_sub_headings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
