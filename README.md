@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I just can&#39;t get it up](https://www.reddit.com/r/wallstreetbets/comments/1lphv10/i_just_cant_get_it_up/)
-- [TSLA puts have been fun this month](https://www.reddit.com/r/wallstreetbets/comments/1lpgoai/tsla_puts_have_been_fun_this_month/)
-- [Figma S1 Filed](https://www.reddit.com/r/wallstreetbets/comments/1lpgn5w/figma_s1_filed/)
-- [Good enough to post good enough to sell](https://www.reddit.com/r/wallstreetbets/comments/1lpdx6h/good_enough_to_post_good_enough_to_sell/)
-- [I just love the green sub headings](https://www.reddit.com/r/wallstreetbets/comments/1lpd8pn/i_just_love_the_green_sub_headings/)
+- [Celebrating big time today, thanks BULL &lpar;$7.5k gains&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lqbr68/celebrating_big_time_today_thanks_bull_75k_gains/)
+- [Possible Tesla price collapse](https://www.reddit.com/r/wallstreetbets/comments/1lqb6la/possible_tesla_price_collapse/)
+- [Centene Drop 40% as Medicaid Cuts and Coverage Dropouts Slam Earnings](https://www.reddit.com/r/wallstreetbets/comments/1lqb1ov/centene_drop_40_as_medicaid_cuts_and_coverage/)
+- [Meta calls will be glorious printing machines](https://www.reddit.com/r/wallstreetbets/comments/1lqazla/meta_calls_will_be_glorious_printing_machines/)
+- [You can’t rugpull me if the rug doesn’t exist 😎](https://www.reddit.com/r/wallstreetbets/comments/1lqavg3/you_cant_rugpull_me_if_the_rug_doesnt_exist/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
