@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Celebrating big time today, thanks BULL &lpar;$7.5k gains&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lqbr68/celebrating_big_time_today_thanks_bull_75k_gains/)
-- [Possible Tesla price collapse](https://www.reddit.com/r/wallstreetbets/comments/1lqb6la/possible_tesla_price_collapse/)
-- [Centene Drop 40% as Medicaid Cuts and Coverage Dropouts Slam Earnings](https://www.reddit.com/r/wallstreetbets/comments/1lqb1ov/centene_drop_40_as_medicaid_cuts_and_coverage/)
-- [Meta calls will be glorious printing machines](https://www.reddit.com/r/wallstreetbets/comments/1lqazla/meta_calls_will_be_glorious_printing_machines/)
-- [You can’t rugpull me if the rug doesn’t exist 😎](https://www.reddit.com/r/wallstreetbets/comments/1lqavg3/you_cant_rugpull_me_if_the_rug_doesnt_exist/)
+- [Don’t worry bulls I will protect you during the tariffs next week.](https://www.reddit.com/r/wallstreetbets/comments/1lr59rq/dont_worry_bulls_i_will_protect_you_during_the/)
+- [Saw Tom Lee on CNBC Monday morning and just said YOLO - BMNR](https://www.reddit.com/r/wallstreetbets/comments/1lr2z2x/saw_tom_lee_on_cnbc_monday_morning_and_just_said/)
+- [41k in a week 🦧](https://www.reddit.com/r/wallstreetbets/comments/1lr265n/41k_in_a_week/)
+- [IREN gains](https://www.reddit.com/r/wallstreetbets/comments/1lr1spk/iren_gains/)
+- [$TSLA puts for the weekend](https://www.reddit.com/r/wallstreetbets/comments/1lr1c2n/tsla_puts_for_the_weekend/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
