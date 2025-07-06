@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TSSI From -30% to moon in 2 months](https://www.reddit.com/r/wallstreetbets/comments/1lrt8h1/tssi_from_30_to_moon_in_2_months/)
-- [How NOT to scalp 0DTE SPY, 28K loss](https://www.reddit.com/r/wallstreetbets/comments/1lrt3ex/how_not_to_scalp_0dte_spy_28k_loss/)
-- [Weekend Discussion Thread for the Weekend of July 04, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lrrw3i/weekend_discussion_thread_for_the_weekend_of_july/)
-- [I am long copper.](https://www.reddit.com/r/wallstreetbets/comments/1lrq1pj/i_am_long_copper/)
-- [Need a strong futures opening on Monday](https://www.reddit.com/r/wallstreetbets/comments/1lroi6j/need_a_strong_futures_opening_on_monday/)
+- [Anyone else long gold stocks? I’m holding this through earnings.](https://www.reddit.com/r/wallstreetbets/comments/1lsn88j/anyone_else_long_gold_stocks_im_holding_this/)
+- [$60K on TSLA Puts…Upped it to $72K](https://www.reddit.com/r/wallstreetbets/comments/1lsltkl/60k_on_tsla_putsupped_it_to_72k/)
+- [How many wsb regards actually outperform the indexes?](https://www.reddit.com/r/wallstreetbets/comments/1lsj8qp/how_many_wsb_regards_actually_outperform_the/)
+- [I love the side quests](https://www.reddit.com/r/wallstreetbets/comments/1lshsub/i_love_the_side_quests/)
+- [I don’t know who pick this stocks but like him](https://www.reddit.com/r/wallstreetbets/comments/1lsenng/i_dont_know_who_pick_this_stocks_but_like_him/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
