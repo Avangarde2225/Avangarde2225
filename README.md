@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anyone else long gold stocks? I’m holding this through earnings.](https://www.reddit.com/r/wallstreetbets/comments/1lsn88j/anyone_else_long_gold_stocks_im_holding_this/)
-- [$60K on TSLA Puts…Upped it to $72K](https://www.reddit.com/r/wallstreetbets/comments/1lsltkl/60k_on_tsla_putsupped_it_to_72k/)
-- [How many wsb regards actually outperform the indexes?](https://www.reddit.com/r/wallstreetbets/comments/1lsj8qp/how_many_wsb_regards_actually_outperform_the/)
-- [I love the side quests](https://www.reddit.com/r/wallstreetbets/comments/1lshsub/i_love_the_side_quests/)
-- [I don’t know who pick this stocks but like him](https://www.reddit.com/r/wallstreetbets/comments/1lsenng/i_dont_know_who_pick_this_stocks_but_like_him/)
+- [What Are Your Moves Tomorrow, July 07, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ltafx3/what_are_your_moves_tomorrow_july_07_2025/)
+- [HOOD and all the OpenAI FUD](https://www.reddit.com/r/wallstreetbets/comments/1lt71mb/hood_and_all_the_openai_fud/)
+- [ALT and HIMS](https://www.reddit.com/r/wallstreetbets/comments/1lt4cb0/alt_and_hims/)
+- [Tariff Deadline Delayed to August 1st](https://www.reddit.com/r/wallstreetbets/comments/1lt3faw/tariff_deadline_delayed_to_august_1st/)
+- [Watch DJT this week](https://www.reddit.com/r/wallstreetbets/comments/1lt2rcy/watch_djt_this_week/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
