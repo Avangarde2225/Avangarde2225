@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Baby’s first gamble](https://www.reddit.com/r/wallstreetbets/comments/1luaeqr/babys_first_gamble/)
-- [$AMPX💰💰💰](https://www.reddit.com/r/wallstreetbets/comments/1lua5bv/ampx/)
-- [What Are Your Moves Tomorrow, July 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lu49cj/what_are_your_moves_tomorrow_july_08_2025/)
-- [Hero or Zero 😫](https://www.reddit.com/r/wallstreetbets/comments/1lu3zac/hero_or_zero/)
-- [She kept givin me the gang signs so I dipped &lpar;+20K, TSLA&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lu306e/she_kept_givin_me_the_gang_signs_so_i_dipped_20k/)
+- [Jeff Bezos sells $666 million in Amazon stock as part of plan to unload 25 million shares. Coincidence? The Church Lady Thinks Not.](https://www.reddit.com/r/wallstreetbets/comments/1lv1scq/jeff_bezos_sells_666_million_in_amazon_stock_as/)
+- [CRISPY Gains](https://www.reddit.com/r/wallstreetbets/comments/1lv1r0j/crispy_gains/)
+- [3K return on SPY 0DTE scalp](https://www.reddit.com/r/wallstreetbets/comments/1lv081f/3k_return_on_spy_0dte_scalp/)
+- [What Are Your Moves Tomorrow, July 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1luyl77/what_are_your_moves_tomorrow_july_09_2025/)
+- [Margin always better than buying leverage etf](https://www.reddit.com/r/wallstreetbets/comments/1luxmf9/margin_always_better_than_buying_leverage_etf/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
