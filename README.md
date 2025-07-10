@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Jeff Bezos sells $666 million in Amazon stock as part of plan to unload 25 million shares. Coincidence? The Church Lady Thinks Not.](https://www.reddit.com/r/wallstreetbets/comments/1lv1scq/jeff_bezos_sells_666_million_in_amazon_stock_as/)
-- [CRISPY Gains](https://www.reddit.com/r/wallstreetbets/comments/1lv1r0j/crispy_gains/)
-- [3K return on SPY 0DTE scalp](https://www.reddit.com/r/wallstreetbets/comments/1lv081f/3k_return_on_spy_0dte_scalp/)
-- [What Are Your Moves Tomorrow, July 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1luyl77/what_are_your_moves_tomorrow_july_09_2025/)
-- [Margin always better than buying leverage etf](https://www.reddit.com/r/wallstreetbets/comments/1luxmf9/margin_always_better_than_buying_leverage_etf/)
+- [Brazil will respond to Trump’s 50% tariff with ‘reciprocity,’ says da Silva](https://www.reddit.com/r/wallstreetbets/comments/1lvz47i/brazil_will_respond_to_trumps_50_tariff_with/)
+- [Added $70k of calls to my position of the greatest company on earth $SPOT](https://www.reddit.com/r/wallstreetbets/comments/1lvxbsz/added_70k_of_calls_to_my_position_of_the_greatest/)
+- [PUTS were logical, but I’m joining the momentum train &lpar;42k calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lvw1hy/puts_were_logical_but_im_joining_the_momentum/)
+- [Bathe me in it](https://www.reddit.com/r/wallstreetbets/comments/1lvvm27/bathe_me_in_it/)
+- [Someone help me crawl out the depths of hell](https://www.reddit.com/r/wallstreetbets/comments/1lvvhvd/someone_help_me_crawl_out_the_depths_of_hell/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
