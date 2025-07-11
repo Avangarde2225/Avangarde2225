@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Brazil will respond to Trump’s 50% tariff with ‘reciprocity,’ says da Silva](https://www.reddit.com/r/wallstreetbets/comments/1lvz47i/brazil_will_respond_to_trumps_50_tariff_with/)
-- [Added $70k of calls to my position of the greatest company on earth $SPOT](https://www.reddit.com/r/wallstreetbets/comments/1lvxbsz/added_70k_of_calls_to_my_position_of_the_greatest/)
-- [PUTS were logical, but I’m joining the momentum train &lpar;42k calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1lvw1hy/puts_were_logical_but_im_joining_the_momentum/)
-- [Bathe me in it](https://www.reddit.com/r/wallstreetbets/comments/1lvvm27/bathe_me_in_it/)
-- [Someone help me crawl out the depths of hell](https://www.reddit.com/r/wallstreetbets/comments/1lvvhvd/someone_help_me_crawl_out_the_depths_of_hell/)
+- [Trump announces 35% tariffs on Canada](https://www.reddit.com/r/wallstreetbets/comments/1lwsy1f/trump_announces_35_tariffs_on_canada/)
+- [SPAC is back? CLBR YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1lwstj6/spac_is_back_clbr_yolo/)
+- [I Love Drones](https://www.reddit.com/r/wallstreetbets/comments/1lwqyd3/i_love_drones/)
+- [BREAKING: Jeff Bezos just sold another $108 million in Amazon stock. Two days ago he sold worth $665 million.](https://www.reddit.com/r/wallstreetbets/comments/1lwqrxu/breaking_jeff_bezos_just_sold_another_108_million/)
+- [$468 to 10k in 3 days](https://www.reddit.com/r/wallstreetbets/comments/1lwohwn/468_to_10k_in_3_days/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
