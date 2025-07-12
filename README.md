@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump announces 35% tariffs on Canada](https://www.reddit.com/r/wallstreetbets/comments/1lwsy1f/trump_announces_35_tariffs_on_canada/)
-- [SPAC is back? CLBR YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1lwstj6/spac_is_back_clbr_yolo/)
-- [I Love Drones](https://www.reddit.com/r/wallstreetbets/comments/1lwqyd3/i_love_drones/)
-- [BREAKING: Jeff Bezos just sold another $108 million in Amazon stock. Two days ago he sold worth $665 million.](https://www.reddit.com/r/wallstreetbets/comments/1lwqrxu/breaking_jeff_bezos_just_sold_another_108_million/)
-- [$468 to 10k in 3 days](https://www.reddit.com/r/wallstreetbets/comments/1lwohwn/468_to_10k_in_3_days/)
+- [$RDDT Has Monopoly on Regards](https://www.reddit.com/r/wallstreetbets/comments/1lxmcpi/rddt_has_monopoly_on_regards/)
+- [I thought Americans were the regardest. Then I discovered the Indian derivatives trading market](https://www.reddit.com/r/wallstreetbets/comments/1lxl4b5/i_thought_americans_were_the_regardest_then_i/)
+- [YOLO’d 500 $CRWV 150 Calls for Next Friday! No Hedge, No Braincells, Just AI-Induced Delusion](https://www.reddit.com/r/wallstreetbets/comments/1lxl1gc/yolod_500_crwv_150_calls_for_next_friday_no_hedge/)
+- [Rocket and lunar lander company Firefly Aerospace files for IPO under $FLY ticker](https://www.reddit.com/r/wallstreetbets/comments/1lxknun/rocket_and_lunar_lander_company_firefly_aerospace/)
+- [TESLER STRIKES AGAIN 😡😡😡😡😡😡😡😡😡](https://www.reddit.com/r/wallstreetbets/comments/1lxkk9t/tesler_strikes_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
