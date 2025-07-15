@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What Are Your Moves Tomorrow, July 14, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lz276l/what_are_your_moves_tomorrow_july_14_2025/)
-- [$NVDA - 38 164$ Puts 19th of September, 2025](https://www.reddit.com/r/wallstreetbets/comments/1lyxvee/nvda_38_164_puts_19th_of_september_2025/)
-- [NVDA puts 160P July 18th](https://www.reddit.com/r/wallstreetbets/comments/1lyxit9/nvda_puts_160p_july_18th/)
-- [Can someone provide me some clarity on bitcoin? What is the end game here?](https://www.reddit.com/r/wallstreetbets/comments/1lyvcg4/can_someone_provide_me_some_clarity_on_bitcoin/)
-- [The EU is delaying retaliatory tariffs on U.S. goods, in hopes of reaching a deal by Aug. 1](https://www.reddit.com/r/wallstreetbets/comments/1lyu91r/the_eu_is_delaying_retaliatory_tariffs_on_us/)
+- [Diamond hands](https://www.reddit.com/r/wallstreetbets/comments/1m01kje/diamond_hands/)
+- [LULULULU](https://www.reddit.com/r/wallstreetbets/comments/1m00tiy/lulululu/)
+- [Big boys have joined the party! LMT adds support to TMC&#39;s thesis.](https://www.reddit.com/r/wallstreetbets/comments/1m00kx9/big_boys_have_joined_the_party_lmt_adds_support/)
+- [TTD _anybody else in the bottom here! Just got added to S&amp;P 500](https://www.reddit.com/r/wallstreetbets/comments/1lzzupk/ttd_anybody_else_in_the_bottom_here_just_got/)
+- [WCGW](https://www.reddit.com/r/wallstreetbets/comments/1lzztwf/wcgw/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
