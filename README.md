@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Idk what AI is, but I loved Allen Iverson growing up 📈📈📈](https://www.reddit.com/r/wallstreetbets/comments/1m0y8d3/idk_what_ai_is_but_i_loved_allen_iverson_growing/)
-- [$250 to $3.2K](https://www.reddit.com/r/wallstreetbets/comments/1m0xg4j/250_to_32k/)
-- [Don’t give up on your dreams](https://www.reddit.com/r/wallstreetbets/comments/1m0wxiy/dont_give_up_on_your_dreams/)
-- [Bought AMD and forgot about it. Came back to +299%. Who needs 0DTE?](https://www.reddit.com/r/wallstreetbets/comments/1m0ut83/bought_amd_and_forgot_about_it_came_back_to_299/)
-- [Wish me luck](https://www.reddit.com/r/wallstreetbets/comments/1m0uc1k/wish_me_luck/)
+- [$OPEN All the reasons it’ll go to $10](https://www.reddit.com/r/wallstreetbets/comments/1m1ssnf/open_all_the_reasons_itll_go_to_10/)
+- [We going YOLO on $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m1slls/we_going_yolo_on_open/)
+- [Amd](https://www.reddit.com/r/wallstreetbets/comments/1m1sh0z/amd/)
+- [Big option trade for me](https://www.reddit.com/r/wallstreetbets/comments/1m1rec2/big_option_trade_for_me/)
+- [Bought $3.4k OPEN calls at close](https://www.reddit.com/r/wallstreetbets/comments/1m1qy4o/bought_34k_open_calls_at_close/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
