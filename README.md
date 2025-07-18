@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$OPEN All the reasons it’ll go to $10](https://www.reddit.com/r/wallstreetbets/comments/1m1ssnf/open_all_the_reasons_itll_go_to_10/)
-- [We going YOLO on $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m1slls/we_going_yolo_on_open/)
-- [Amd](https://www.reddit.com/r/wallstreetbets/comments/1m1sh0z/amd/)
-- [Big option trade for me](https://www.reddit.com/r/wallstreetbets/comments/1m1rec2/big_option_trade_for_me/)
-- [Bought $3.4k OPEN calls at close](https://www.reddit.com/r/wallstreetbets/comments/1m1qy4o/bought_34k_open_calls_at_close/)
+- [Open just getting started 💯](https://www.reddit.com/r/wallstreetbets/comments/1m2mdax/open_just_getting_started/)
+- [Comeback of a risk-averse options trader: 28k —&gt; 180k —&gt; 22k —&gt; 6M](https://www.reddit.com/r/wallstreetbets/comments/1m2k2ml/comeback_of_a_riskaverse_options_trader_28k_180k/)
+- [What Are Your Moves Tomorrow, July 18, 2025](https://www.reddit.com/r/wallstreetbets/comments/1m2hlod/what_are_your_moves_tomorrow_july_18_2025/)
+- [2X Inverse NVDA](https://www.reddit.com/r/wallstreetbets/comments/1m2gp7f/2x_inverse_nvda/)
+- [$U Ready Yet?](https://www.reddit.com/r/wallstreetbets/comments/1m2ge9w/u_ready_yet/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
