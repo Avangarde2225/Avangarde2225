@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Open just getting started 💯](https://www.reddit.com/r/wallstreetbets/comments/1m2mdax/open_just_getting_started/)
-- [Comeback of a risk-averse options trader: 28k —&gt; 180k —&gt; 22k —&gt; 6M](https://www.reddit.com/r/wallstreetbets/comments/1m2k2ml/comeback_of_a_riskaverse_options_trader_28k_180k/)
-- [What Are Your Moves Tomorrow, July 18, 2025](https://www.reddit.com/r/wallstreetbets/comments/1m2hlod/what_are_your_moves_tomorrow_july_18_2025/)
-- [2X Inverse NVDA](https://www.reddit.com/r/wallstreetbets/comments/1m2gp7f/2x_inverse_nvda/)
-- [$U Ready Yet?](https://www.reddit.com/r/wallstreetbets/comments/1m2ge9w/u_ready_yet/)
+- [Which one of you started this restaurant??](https://www.reddit.com/r/wallstreetbets/comments/1m3ie7r/which_one_of_you_started_this_restaurant/)
+- [Sold my webull calls 10 min before the bell](https://www.reddit.com/r/wallstreetbets/comments/1m3gk0h/sold_my_webull_calls_10_min_before_the_bell/)
+- [$OPEN door](https://www.reddit.com/r/wallstreetbets/comments/1m3gcmp/open_door/)
+- [$OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m3g64o/open/)
+- [$OPEN YOLO GAINS &lpar;so far&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1m3g2uc/open_yolo_gains_so_far/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
