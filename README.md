@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Which one of you started this restaurant??](https://www.reddit.com/r/wallstreetbets/comments/1m3ie7r/which_one_of_you_started_this_restaurant/)
-- [Sold my webull calls 10 min before the bell](https://www.reddit.com/r/wallstreetbets/comments/1m3gk0h/sold_my_webull_calls_10_min_before_the_bell/)
-- [$OPEN door](https://www.reddit.com/r/wallstreetbets/comments/1m3gcmp/open_door/)
-- [$OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m3g64o/open/)
-- [$OPEN YOLO GAINS &lpar;so far&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1m3g2uc/open_yolo_gains_so_far/)
+- [I wanna be a regard. Let’s see if she fills her $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m4bmje/i_wanna_be_a_regard_lets_see_if_she_fills_her_open/)
+- [You did what??](https://www.reddit.com/r/wallstreetbets/comments/1m4bmag/you_did_what/)
+- [A little long dated? Yes, but I had no idea the floodgates would OPEN this soon](https://www.reddit.com/r/wallstreetbets/comments/1m4biwg/a_little_long_dated_yes_but_i_had_no_idea_the/)
+- [This week was amazing](https://www.reddit.com/r/wallstreetbets/comments/1m49l0v/this_week_was_amazing/)
+- [Wanted to Join the Fun $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m484wv/wanted_to_join_the_fun_open/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
