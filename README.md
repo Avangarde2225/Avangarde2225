@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I wanna be a regard. Let’s see if she fills her $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m4bmje/i_wanna_be_a_regard_lets_see_if_she_fills_her_open/)
-- [You did what??](https://www.reddit.com/r/wallstreetbets/comments/1m4bmag/you_did_what/)
-- [A little long dated? Yes, but I had no idea the floodgates would OPEN this soon](https://www.reddit.com/r/wallstreetbets/comments/1m4biwg/a_little_long_dated_yes_but_i_had_no_idea_the/)
-- [This week was amazing](https://www.reddit.com/r/wallstreetbets/comments/1m49l0v/this_week_was_amazing/)
-- [Wanted to Join the Fun $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m484wv/wanted_to_join_the_fun_open/)
+- [Shorting UPS... Long on New Gold.](https://www.reddit.com/r/wallstreetbets/comments/1m52hj5/shorting_ups_long_on_new_gold/)
+- [What Are Your Moves Tomorrow, July 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1m4yfwb/what_are_your_moves_tomorrow_july_21_2025/)
+- [London Stock Exchange Group considers launch of 24-hour trading](https://www.reddit.com/r/wallstreetbets/comments/1m4uvp5/london_stock_exchange_group_considers_launch_of/)
+- [America just opened its 1st rare earth mine in 70 years](https://www.reddit.com/r/wallstreetbets/comments/1m4ufrb/america_just_opened_its_1st_rare_earth_mine_in_70/)
+- [OPEN DD](https://www.reddit.com/r/wallstreetbets/comments/1m4uajz/open_dd/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
