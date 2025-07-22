@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Shorting UPS... Long on New Gold.](https://www.reddit.com/r/wallstreetbets/comments/1m52hj5/shorting_ups_long_on_new_gold/)
-- [What Are Your Moves Tomorrow, July 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1m4yfwb/what_are_your_moves_tomorrow_july_21_2025/)
-- [London Stock Exchange Group considers launch of 24-hour trading](https://www.reddit.com/r/wallstreetbets/comments/1m4uvp5/london_stock_exchange_group_considers_launch_of/)
-- [America just opened its 1st rare earth mine in 70 years](https://www.reddit.com/r/wallstreetbets/comments/1m4ufrb/america_just_opened_its_1st_rare_earth_mine_in_70/)
-- [OPEN DD](https://www.reddit.com/r/wallstreetbets/comments/1m4uajz/open_dd/)
+- [$OPENing my mind to autism](https://www.reddit.com/r/wallstreetbets/comments/1m5wq3e/opening_my_mind_to_autism/)
+- [Open it! $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1m5vk87/open_it_open/)
+- [Sold 40 minutes before the drop. Bullet dodged](https://www.reddit.com/r/wallstreetbets/comments/1m5veeg/sold_40_minutes_before_the_drop_bullet_dodged/)
+- [just started last week, is it always this easy?](https://www.reddit.com/r/wallstreetbets/comments/1m5tmu6/just_started_last_week_is_it_always_this_easy/)
+- [What Are Your Moves Tomorrow, July 22, 2025](https://www.reddit.com/r/wallstreetbets/comments/1m5t74u/what_are_your_moves_tomorrow_july_22_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
