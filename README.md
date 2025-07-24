@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RKT to Valhalla](https://www.reddit.com/r/wallstreetbets/comments/1m6ubu3/rkt_to_valhalla/)
-- [DNUT = Most I ever made in 1 day 🍩](https://www.reddit.com/r/wallstreetbets/comments/1m6trty/dnut_most_i_ever_made_in_1_day/)
-- [Posted about $KSS yesterday and got downvoted.](https://www.reddit.com/r/wallstreetbets/comments/1m6t615/posted_about_kss_yesterday_and_got_downvoted/)
-- [$15k YOLO, let’s squeeze DNUTz 🚀🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1m6szt4/15k_yolo_lets_squeeze_dnutz/)
-- [$RKT 140K ALL IN YOLO](https://www.reddit.com/r/wallstreetbets/comments/1m6qhuz/rkt_140k_all_in_yolo/)
+- [Been a long week here at WSB and it&#39;s only Wednesday. Stopped at walmart on the way home and figured I&#39;d try this new cereal.](https://www.reddit.com/r/wallstreetbets/comments/1m7pwe8/been_a_long_week_here_at_wsb_and_its_only/)
+- [23k profit from OPEN shares](https://www.reddit.com/r/wallstreetbets/comments/1m7phr1/23k_profit_from_open_shares/)
+- [I heard you guys love dying companies 50% gain eBay](https://www.reddit.com/r/wallstreetbets/comments/1m7ogf6/i_heard_you_guys_love_dying_companies_50_gain_ebay/)
+- [Let’s ride RKT](https://www.reddit.com/r/wallstreetbets/comments/1m7l9uq/lets_ride_rkt/)
+- [Fools, I have already nutted &lpar;dnut&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1m7l9oz/fools_i_have_already_nutted_dnut/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
