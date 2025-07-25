@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Been a long week here at WSB and it&#39;s only Wednesday. Stopped at walmart on the way home and figured I&#39;d try this new cereal.](https://www.reddit.com/r/wallstreetbets/comments/1m7pwe8/been_a_long_week_here_at_wsb_and_its_only/)
-- [23k profit from OPEN shares](https://www.reddit.com/r/wallstreetbets/comments/1m7phr1/23k_profit_from_open_shares/)
-- [I heard you guys love dying companies 50% gain eBay](https://www.reddit.com/r/wallstreetbets/comments/1m7ogf6/i_heard_you_guys_love_dying_companies_50_gain_ebay/)
-- [Let’s ride RKT](https://www.reddit.com/r/wallstreetbets/comments/1m7l9uq/lets_ride_rkt/)
-- [Fools, I have already nutted &lpar;dnut&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1m7l9oz/fools_i_have_already_nutted_dnut/)
+- [Sure... why not](https://www.reddit.com/r/wallstreetbets/comments/1m8kvyj/sure_why_not/)
+- [Intel reveals it will shed 24,000 employees this year and retreat in Germany, Poland, and Costa Rica](https://www.reddit.com/r/wallstreetbets/comments/1m8kuwn/intel_reveals_it_will_shed_24000_employees_this/)
+- [Full Port QQQ Puts for Tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1m8jhf4/full_port_qqq_puts_for_tomorrow/)
+- [First Ever Option Trade GOOGL $175 Call 9/19 wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/1m8j5ab/first_ever_option_trade_googl_175_call_919_wish/)
+- [800K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1m8iclg/800k_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
