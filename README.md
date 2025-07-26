@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sure... why not](https://www.reddit.com/r/wallstreetbets/comments/1m8kvyj/sure_why_not/)
-- [Intel reveals it will shed 24,000 employees this year and retreat in Germany, Poland, and Costa Rica](https://www.reddit.com/r/wallstreetbets/comments/1m8kuwn/intel_reveals_it_will_shed_24000_employees_this/)
-- [Full Port QQQ Puts for Tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1m8jhf4/full_port_qqq_puts_for_tomorrow/)
-- [First Ever Option Trade GOOGL $175 Call 9/19 wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/1m8j5ab/first_ever_option_trade_googl_175_call_919_wish/)
-- [800K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1m8iclg/800k_yolo/)
+- [Thanks INTC](https://www.reddit.com/r/wallstreetbets/comments/1m9eht7/thanks_intc/)
+- [$PLTR is ready for a BIG drop! [50K+ YOLO]](https://www.reddit.com/r/wallstreetbets/comments/1m9di6j/pltr_is_ready_for_a_big_drop_50k_yolo/)
+- [JPow please save me from the bulls next week.](https://www.reddit.com/r/wallstreetbets/comments/1m9b1vj/jpow_please_save_me_from_the_bulls_next_week/)
+- [Yolo swaggins TSLA +30k in minutes](https://www.reddit.com/r/wallstreetbets/comments/1m9at8v/yolo_swaggins_tsla_30k_in_minutes/)
+- [Meme stocks are harder than options](https://www.reddit.com/r/wallstreetbets/comments/1m9arq0/meme_stocks_are_harder_than_options/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
