@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thanks INTC](https://www.reddit.com/r/wallstreetbets/comments/1m9eht7/thanks_intc/)
-- [$PLTR is ready for a BIG drop! [50K+ YOLO]](https://www.reddit.com/r/wallstreetbets/comments/1m9di6j/pltr_is_ready_for_a_big_drop_50k_yolo/)
-- [JPow please save me from the bulls next week.](https://www.reddit.com/r/wallstreetbets/comments/1m9b1vj/jpow_please_save_me_from_the_bulls_next_week/)
-- [Yolo swaggins TSLA +30k in minutes](https://www.reddit.com/r/wallstreetbets/comments/1m9at8v/yolo_swaggins_tsla_30k_in_minutes/)
-- [Meme stocks are harder than options](https://www.reddit.com/r/wallstreetbets/comments/1m9arq0/meme_stocks_are_harder_than_options/)
+- [On a scale from 1 to 69, how fuk’ed am I?](https://www.reddit.com/r/wallstreetbets/comments/1ma8zuo/on_a_scale_from_1_to_69_how_fuked_am_i/)
+- [SPX 🎢 on friday](https://www.reddit.com/r/wallstreetbets/comments/1ma8r4i/spx_on_friday/)
+- [Rate Cuts At Next FOMC?](https://www.reddit.com/r/wallstreetbets/comments/1m9zqmd/rate_cuts_at_next_fomc/)
+- [sent this to my CPA](https://www.reddit.com/r/wallstreetbets/comments/1m9vfpn/sent_this_to_my_cpa/)
+- [Does it make economic sense for Energy Fuels $UUUU to ship Monazite all the way from Madagascar or Australia to a facility in Utah?](https://www.reddit.com/r/wallstreetbets/comments/1m9v0ja/does_it_make_economic_sense_for_energy_fuels_uuuu/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
