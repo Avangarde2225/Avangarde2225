@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [On a scale from 1 to 69, how fuk’ed am I?](https://www.reddit.com/r/wallstreetbets/comments/1ma8zuo/on_a_scale_from_1_to_69_how_fuked_am_i/)
-- [SPX 🎢 on friday](https://www.reddit.com/r/wallstreetbets/comments/1ma8r4i/spx_on_friday/)
-- [Rate Cuts At Next FOMC?](https://www.reddit.com/r/wallstreetbets/comments/1m9zqmd/rate_cuts_at_next_fomc/)
-- [sent this to my CPA](https://www.reddit.com/r/wallstreetbets/comments/1m9vfpn/sent_this_to_my_cpa/)
-- [Does it make economic sense for Energy Fuels $UUUU to ship Monazite all the way from Madagascar or Australia to a facility in Utah?](https://www.reddit.com/r/wallstreetbets/comments/1m9v0ja/does_it_make_economic_sense_for_energy_fuels_uuuu/)
+- [Tarrifs on Aug 1. What your thoughts?](https://www.reddit.com/r/wallstreetbets/comments/1mb2ivm/tarrifs_on_aug_1_what_your_thoughts/)
+- [What Are Your Moves Tomorrow, July 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mavwkb/what_are_your_moves_tomorrow_july_28_2025/)
+- [Trump says he has a tariff deal with European Union as reported by WSJ.](https://www.reddit.com/r/wallstreetbets/comments/1masjd7/trump_says_he_has_a_tariff_deal_with_european/)
+- [$GOOGL | Reports of Search’s Death Have Been Greatly Exaggerated, NEW ATH INCOMING](https://www.reddit.com/r/wallstreetbets/comments/1mapebj/googl_reports_of_searchs_death_have_been_greatly/)
+- [Is META cooked?](https://www.reddit.com/r/wallstreetbets/comments/1map359/is_meta_cooked/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
