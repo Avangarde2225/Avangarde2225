@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tarrifs on Aug 1. What your thoughts?](https://www.reddit.com/r/wallstreetbets/comments/1mb2ivm/tarrifs_on_aug_1_what_your_thoughts/)
-- [What Are Your Moves Tomorrow, July 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mavwkb/what_are_your_moves_tomorrow_july_28_2025/)
-- [Trump says he has a tariff deal with European Union as reported by WSJ.](https://www.reddit.com/r/wallstreetbets/comments/1masjd7/trump_says_he_has_a_tariff_deal_with_european/)
-- [$GOOGL | Reports of Search’s Death Have Been Greatly Exaggerated, NEW ATH INCOMING](https://www.reddit.com/r/wallstreetbets/comments/1mapebj/googl_reports_of_searchs_death_have_been_greatly/)
-- [Is META cooked?](https://www.reddit.com/r/wallstreetbets/comments/1map359/is_meta_cooked/)
+- [Still here, SMCI isn&#39;t done yet](https://www.reddit.com/r/wallstreetbets/comments/1mbxga8/still_here_smci_isnt_done_yet/)
+- [Over 7 years to break even](https://www.reddit.com/r/wallstreetbets/comments/1mbx6bi/over_7_years_to_break_even/)
+- [On tilt after getting denied from another job, aped my savings into $SPOT calls for the earnings play](https://www.reddit.com/r/wallstreetbets/comments/1mbx5y3/on_tilt_after_getting_denied_from_another_job/)
+- [$WEN moon. Oversold plus they&#39;re opening a restaurant right by my house. Expanding and not downsizing. Next wsb run starts now](https://www.reddit.com/r/wallstreetbets/comments/1mbw2sl/wen_moon_oversold_plus_theyre_opening_a/)
+- [SRPT up $21 after hours](https://www.reddit.com/r/wallstreetbets/comments/1mbv9um/srpt_up_21_after_hours/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
