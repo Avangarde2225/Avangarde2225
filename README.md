@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Still here, SMCI isn&#39;t done yet](https://www.reddit.com/r/wallstreetbets/comments/1mbxga8/still_here_smci_isnt_done_yet/)
-- [Over 7 years to break even](https://www.reddit.com/r/wallstreetbets/comments/1mbx6bi/over_7_years_to_break_even/)
-- [On tilt after getting denied from another job, aped my savings into $SPOT calls for the earnings play](https://www.reddit.com/r/wallstreetbets/comments/1mbx5y3/on_tilt_after_getting_denied_from_another_job/)
-- [$WEN moon. Oversold plus they&#39;re opening a restaurant right by my house. Expanding and not downsizing. Next wsb run starts now](https://www.reddit.com/r/wallstreetbets/comments/1mbw2sl/wen_moon_oversold_plus_theyre_opening_a/)
-- [SRPT up $21 after hours](https://www.reddit.com/r/wallstreetbets/comments/1mbv9um/srpt_up_21_after_hours/)
+- [[DD] You Should Probably Not Listen to Most DD Posts Here](https://www.reddit.com/r/wallstreetbets/comments/1mcsdo2/dd_you_should_probably_not_listen_to_most_dd/)
+- [Always Making Dough](https://www.reddit.com/r/wallstreetbets/comments/1mcqwv9/always_making_dough/)
+- [First 100% gains, almost 200% on QS puts](https://www.reddit.com/r/wallstreetbets/comments/1mcpji2/first_100_gains_almost_200_on_qs_puts/)
+- [OPENed](https://www.reddit.com/r/wallstreetbets/comments/1mcodx2/opened/)
+- [Is this a catastrophic crashout?](https://www.reddit.com/r/wallstreetbets/comments/1mcobld/is_this_a_catastrophic_crashout/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
