@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [[DD] You Should Probably Not Listen to Most DD Posts Here](https://www.reddit.com/r/wallstreetbets/comments/1mcsdo2/dd_you_should_probably_not_listen_to_most_dd/)
-- [Always Making Dough](https://www.reddit.com/r/wallstreetbets/comments/1mcqwv9/always_making_dough/)
-- [First 100% gains, almost 200% on QS puts](https://www.reddit.com/r/wallstreetbets/comments/1mcpji2/first_100_gains_almost_200_on_qs_puts/)
-- [OPENed](https://www.reddit.com/r/wallstreetbets/comments/1mcodx2/opened/)
-- [Is this a catastrophic crashout?](https://www.reddit.com/r/wallstreetbets/comments/1mcobld/is_this_a_catastrophic_crashout/)
+- [NVIDIA isn&#39;t over It&#39;s evolving](https://www.reddit.com/r/wallstreetbets/comments/1mdm2b7/nvidia_isnt_over_its_evolving/)
+- [7k+ agreed. Quality DD](https://www.reddit.com/r/wallstreetbets/comments/1mdkupd/7k_agreed_quality_dd/)
+- [Figma Prices IPO above Expected Range @ $33 after Raising the Expected Range Previously](https://www.reddit.com/r/wallstreetbets/comments/1mdk8ve/figma_prices_ipo_above_expected_range_33_after/)
+- [Bought EOM calls for SPY at the most recent dip, easiest gain so far for me](https://www.reddit.com/r/wallstreetbets/comments/1mdk48v/bought_eom_calls_for_spy_at_the_most_recent_dip/)
+- [Thank You, Jerome Powell!](https://www.reddit.com/r/wallstreetbets/comments/1mdi83m/thank_you_jerome_powell/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
