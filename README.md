@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVIDIA isn&#39;t over It&#39;s evolving](https://www.reddit.com/r/wallstreetbets/comments/1mdm2b7/nvidia_isnt_over_its_evolving/)
-- [7k+ agreed. Quality DD](https://www.reddit.com/r/wallstreetbets/comments/1mdkupd/7k_agreed_quality_dd/)
-- [Figma Prices IPO above Expected Range @ $33 after Raising the Expected Range Previously](https://www.reddit.com/r/wallstreetbets/comments/1mdk8ve/figma_prices_ipo_above_expected_range_33_after/)
-- [Bought EOM calls for SPY at the most recent dip, easiest gain so far for me](https://www.reddit.com/r/wallstreetbets/comments/1mdk48v/bought_eom_calls_for_spy_at_the_most_recent_dip/)
-- [Thank You, Jerome Powell!](https://www.reddit.com/r/wallstreetbets/comments/1mdi83m/thank_you_jerome_powell/)
+- [Trump Hikes Tariffs to 15–40% on 70+ Countries; 35% on Canada, 50% on Copper](https://www.reddit.com/r/wallstreetbets/comments/1mei0fc/trump_hikes_tariffs_to_1540_on_70_countries_35_on/)
+- [Canada-U.S. trade: Trump increases tariff on Canada to 35%](https://www.reddit.com/r/wallstreetbets/comments/1mehhum/canadaus_trade_trump_increases_tariff_on_canada/)
+- [$62K gain from $5K in 4 days 🚀](https://www.reddit.com/r/wallstreetbets/comments/1mefpwm/62k_gain_from_5k_in_4_days/)
+- [This describes everyone in here… minus being economists](https://www.reddit.com/r/wallstreetbets/comments/1mefm6c/this_describes_everyone_in_here_minus_being/)
+- [POV: Incredible earnings but you bought calls](https://www.reddit.com/r/wallstreetbets/comments/1meflkt/pov_incredible_earnings_but_you_bought_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
