@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump Hikes Tariffs to 15–40% on 70+ Countries; 35% on Canada, 50% on Copper](https://www.reddit.com/r/wallstreetbets/comments/1mei0fc/trump_hikes_tariffs_to_1540_on_70_countries_35_on/)
-- [Canada-U.S. trade: Trump increases tariff on Canada to 35%](https://www.reddit.com/r/wallstreetbets/comments/1mehhum/canadaus_trade_trump_increases_tariff_on_canada/)
-- [$62K gain from $5K in 4 days 🚀](https://www.reddit.com/r/wallstreetbets/comments/1mefpwm/62k_gain_from_5k_in_4_days/)
-- [This describes everyone in here… minus being economists](https://www.reddit.com/r/wallstreetbets/comments/1mefm6c/this_describes_everyone_in_here_minus_being/)
-- [POV: Incredible earnings but you bought calls](https://www.reddit.com/r/wallstreetbets/comments/1meflkt/pov_incredible_earnings_but_you_bought_calls/)
+- [I’m straight up not having a good time anymore](https://www.reddit.com/r/wallstreetbets/comments/1mfb6cm/im_straight_up_not_having_a_good_time_anymore/)
+- [$19k —&gt; $39k in two trades and 13 minutes](https://www.reddit.com/r/wallstreetbets/comments/1mf9d67/19k_39k_in_two_trades_and_13_minutes/)
+- [Got my retirement back today](https://www.reddit.com/r/wallstreetbets/comments/1mf8tyr/got_my_retirement_back_today/)
+- [Done with options. Put my last $79k to my name in Apple shares.](https://www.reddit.com/r/wallstreetbets/comments/1mf8bsn/done_with_options_put_my_last_79k_to_my_name_in/)
+- [Everything in UNH](https://www.reddit.com/r/wallstreetbets/comments/1mf7y3g/everything_in_unh/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
