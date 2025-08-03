@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I’m straight up not having a good time anymore](https://www.reddit.com/r/wallstreetbets/comments/1mfb6cm/im_straight_up_not_having_a_good_time_anymore/)
-- [$19k —&gt; $39k in two trades and 13 minutes](https://www.reddit.com/r/wallstreetbets/comments/1mf9d67/19k_39k_in_two_trades_and_13_minutes/)
-- [Got my retirement back today](https://www.reddit.com/r/wallstreetbets/comments/1mf8tyr/got_my_retirement_back_today/)
-- [Done with options. Put my last $79k to my name in Apple shares.](https://www.reddit.com/r/wallstreetbets/comments/1mf8bsn/done_with_options_put_my_last_79k_to_my_name_in/)
-- [Everything in UNH](https://www.reddit.com/r/wallstreetbets/comments/1mf7y3g/everything_in_unh/)
+- [Who has the biggest port in r/wallstreetbets ?](https://www.reddit.com/r/wallstreetbets/comments/1mg61vk/who_has_the_biggest_port_in_rwallstreetbets/)
+- [Don’t forget the Oreo DD!](https://www.reddit.com/r/wallstreetbets/comments/1mg5n5p/dont_forget_the_oreo_dd/)
+- [Potential contrarian bet](https://www.reddit.com/r/wallstreetbets/comments/1mg53y6/potential_contrarian_bet/)
+- [Am I a stupid](https://www.reddit.com/r/wallstreetbets/comments/1mg44vm/am_i_a_stupid/)
+- [Momma ain’t raise a quitter](https://www.reddit.com/r/wallstreetbets/comments/1mg2q6j/momma_aint_raise_a_quitter/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
