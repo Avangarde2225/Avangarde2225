@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [UNH FULL PORT YOLO](https://www.reddit.com/r/wallstreetbets/comments/1mgzoh0/unh_full_port_yolo/)
-- [Not stopping until we reach half a mili](https://www.reddit.com/r/wallstreetbets/comments/1mgzoa6/not_stopping_until_we_reach_half_a_mili/)
-- [ALL IN and Max Margins on SMCI !! My Rent Money, Dog&#39;s Eye Surgery Fund, Jacked to the Tits! Either A5 or Instantaneous Ramen](https://www.reddit.com/r/wallstreetbets/comments/1mgxblh/all_in_and_max_margins_on_smci_my_rent_money_dogs/)
-- [Oil slips after OPEC+ agrees to hike output in September](https://www.reddit.com/r/wallstreetbets/comments/1mgx3qz/oil_slips_after_opec_agrees_to_hike_output_in/)
-- [Anyone want to ride my RKT?](https://www.reddit.com/r/wallstreetbets/comments/1mgupjb/anyone_want_to_ride_my_rkt/)
+- [COIN buy the dip they said](https://www.reddit.com/r/wallstreetbets/comments/1mipb6f/coin_buy_the_dip_they_said/)
+- [AMD - Always A Massive Disappointment](https://www.reddit.com/r/wallstreetbets/comments/1mip2e2/amd_always_a_massive_disappointment/)
+- [Super Micro &lpar;SMCI&rpar; plunges 17% AH after Q4 miss; FY26 outlook strong at $33B vs $29.9B est](https://www.reddit.com/r/wallstreetbets/comments/1mimfx8/super_micro_smci_plunges_17_ah_after_q4_miss_fy26/)
+- [I’m feeling a little lightheaded](https://www.reddit.com/r/wallstreetbets/comments/1mikx1g/im_feeling_a_little_lightheaded/)
+- [AMD posts $7.7B revenue; China export charges dent margins, but says Q3 outlook strong at $8.7B.](https://www.reddit.com/r/wallstreetbets/comments/1mikbq0/amd_posts_77b_revenue_china_export_charges_dent/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
