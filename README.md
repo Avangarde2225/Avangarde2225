@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [COIN buy the dip they said](https://www.reddit.com/r/wallstreetbets/comments/1mipb6f/coin_buy_the_dip_they_said/)
-- [AMD - Always A Massive Disappointment](https://www.reddit.com/r/wallstreetbets/comments/1mip2e2/amd_always_a_massive_disappointment/)
-- [Super Micro &lpar;SMCI&rpar; plunges 17% AH after Q4 miss; FY26 outlook strong at $33B vs $29.9B est](https://www.reddit.com/r/wallstreetbets/comments/1mimfx8/super_micro_smci_plunges_17_ah_after_q4_miss_fy26/)
-- [I’m feeling a little lightheaded](https://www.reddit.com/r/wallstreetbets/comments/1mikx1g/im_feeling_a_little_lightheaded/)
-- [AMD posts $7.7B revenue; China export charges dent margins, but says Q3 outlook strong at $8.7B.](https://www.reddit.com/r/wallstreetbets/comments/1mikbq0/amd_posts_77b_revenue_china_export_charges_dent/)
+- [Guh moment. If $AMD goes to $165 tomorrow I will be saved!!!!](https://www.reddit.com/r/wallstreetbets/comments/1mjkeqx/guh_moment_if_amd_goes_to_165_tomorrow_i_will_be/)
+- [SRPT Stock - The Meta of 2025 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1mjk4xm/srpt_stock_the_meta_of_2025/)
+- [GLW - Corning - Manufacturing 100% of iPhone and Apple Watch Glass Go-Forward](https://www.reddit.com/r/wallstreetbets/comments/1mjjed6/glw_corning_manufacturing_100_of_iphone_and_apple/)
+- [Made back all my yearly losses in 3 days](https://www.reddit.com/r/wallstreetbets/comments/1mjhm1f/made_back_all_my_yearly_losses_in_3_days/)
+- [For the $BROS](https://www.reddit.com/r/wallstreetbets/comments/1mjh0dj/for_the_bros/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
