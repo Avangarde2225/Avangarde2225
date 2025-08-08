@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Guh moment. If $AMD goes to $165 tomorrow I will be saved!!!!](https://www.reddit.com/r/wallstreetbets/comments/1mjkeqx/guh_moment_if_amd_goes_to_165_tomorrow_i_will_be/)
-- [SRPT Stock - The Meta of 2025 🚀🚀](https://www.reddit.com/r/wallstreetbets/comments/1mjk4xm/srpt_stock_the_meta_of_2025/)
-- [GLW - Corning - Manufacturing 100% of iPhone and Apple Watch Glass Go-Forward](https://www.reddit.com/r/wallstreetbets/comments/1mjjed6/glw_corning_manufacturing_100_of_iphone_and_apple/)
-- [Made back all my yearly losses in 3 days](https://www.reddit.com/r/wallstreetbets/comments/1mjhm1f/made_back_all_my_yearly_losses_in_3_days/)
-- [For the $BROS](https://www.reddit.com/r/wallstreetbets/comments/1mjh0dj/for_the_bros/)
+- [oops I did it again. $70k gain since last Friday](https://www.reddit.com/r/wallstreetbets/comments/1mkbp9n/oops_i_did_it_again_70k_gain_since_last_friday/)
+- [All in RKLB before earning, let’s see how this plays](https://www.reddit.com/r/wallstreetbets/comments/1mkanv4/all_in_rklb_before_earning_lets_see_how_this_plays/)
+- [Trade desk yolo!](https://www.reddit.com/r/wallstreetbets/comments/1mkafsn/trade_desk_yolo/)
+- [What Are Your Moves Tomorrow, August 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mkaadm/what_are_your_moves_tomorrow_august_08_2025/)
+- [🚨$FIGMA = LIGMA BALLZ — SHORT THIS DESIGNER CLOWN STOCK🚨](https://www.reddit.com/r/wallstreetbets/comments/1mk7dye/figma_ligma_ballz_short_this_designer_clown_stock/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
