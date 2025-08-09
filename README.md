@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [oops I did it again. $70k gain since last Friday](https://www.reddit.com/r/wallstreetbets/comments/1mkbp9n/oops_i_did_it_again_70k_gain_since_last_friday/)
-- [All in RKLB before earning, let’s see how this plays](https://www.reddit.com/r/wallstreetbets/comments/1mkanv4/all_in_rklb_before_earning_lets_see_how_this_plays/)
-- [Trade desk yolo!](https://www.reddit.com/r/wallstreetbets/comments/1mkafsn/trade_desk_yolo/)
-- [What Are Your Moves Tomorrow, August 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mkaadm/what_are_your_moves_tomorrow_august_08_2025/)
-- [🚨$FIGMA = LIGMA BALLZ — SHORT THIS DESIGNER CLOWN STOCK🚨](https://www.reddit.com/r/wallstreetbets/comments/1mk7dye/figma_ligma_ballz_short_this_designer_clown_stock/)
+- [$600,000 $AMD call option trade + $1.2m hedge](https://www.reddit.com/r/wallstreetbets/comments/1mlap84/600000_amd_call_option_trade_12m_hedge/)
+- [Gains: Bought RKLB before earnings](https://www.reddit.com/r/wallstreetbets/comments/1ml7kmj/gains_bought_rklb_before_earnings/)
+- [9k TTD call yolo](https://www.reddit.com/r/wallstreetbets/comments/1ml6t5x/9k_ttd_call_yolo/)
+- [Spend it well boys](https://www.reddit.com/r/wallstreetbets/comments/1ml6lp0/spend_it_well_boys/)
+- [Road to the 500k goal going well.](https://www.reddit.com/r/wallstreetbets/comments/1ml66yo/road_to_the_500k_goal_going_well/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
