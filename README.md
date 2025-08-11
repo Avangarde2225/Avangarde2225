@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What happen when 401k become net seller](https://www.reddit.com/r/wallstreetbets/comments/1mm53hu/what_happen_when_401k_become_net_seller/)
-- [From $20K to $170k. YTD 771%](https://www.reddit.com/r/wallstreetbets/comments/1mlzzlb/from_20k_to_170k_ytd_771/)
-- [Rate my regarded portfolio](https://www.reddit.com/r/wallstreetbets/comments/1mlyxgg/rate_my_regarded_portfolio/)
-- [I bought puts... Apparently everyone else did too](https://www.reddit.com/r/wallstreetbets/comments/1mlykqp/i_bought_puts_apparently_everyone_else_did_too/)
-- [WE DID IT!!!](https://www.reddit.com/r/wallstreetbets/comments/1mlyk81/we_did_it/)
+- [My biggest trade yet, doesn’t feel real to be doing this at 22 years old.](https://www.reddit.com/r/wallstreetbets/comments/1mmz3e7/my_biggest_trade_yet_doesnt_feel_real_to_be_doing/)
+- [Chat am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1mmywxv/chat_am_i_cooked/)
+- [Sold 100k GOOG to buy 100k AIDX. As a fellow retard, I hope I fit in. Wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/1mmy280/sold_100k_goog_to_buy_100k_aidx_as_a_fellow/)
+- [NVDA and AMD hit with 15% Tariff on China Revenues](https://www.reddit.com/r/wallstreetbets/comments/1mmuggu/nvda_and_amd_hit_with_15_tariff_on_china_revenues/)
+- [What Are Your Moves Tomorrow, August 11, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mmse64/what_are_your_moves_tomorrow_august_11_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
