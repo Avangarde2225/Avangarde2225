@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My biggest trade yet, doesn’t feel real to be doing this at 22 years old.](https://www.reddit.com/r/wallstreetbets/comments/1mmz3e7/my_biggest_trade_yet_doesnt_feel_real_to_be_doing/)
-- [Chat am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1mmywxv/chat_am_i_cooked/)
-- [Sold 100k GOOG to buy 100k AIDX. As a fellow retard, I hope I fit in. Wish me luck!](https://www.reddit.com/r/wallstreetbets/comments/1mmy280/sold_100k_goog_to_buy_100k_aidx_as_a_fellow/)
-- [NVDA and AMD hit with 15% Tariff on China Revenues](https://www.reddit.com/r/wallstreetbets/comments/1mmuggu/nvda_and_amd_hit_with_15_tariff_on_china_revenues/)
-- [What Are Your Moves Tomorrow, August 11, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mmse64/what_are_your_moves_tomorrow_august_11_2025/)
+- [Trump signs order granting another 90-day extension on harshest China tariffs](https://www.reddit.com/r/wallstreetbets/comments/1mnu9mn/trump_signs_order_granting_another_90day/)
+- [I hate it here](https://www.reddit.com/r/wallstreetbets/comments/1mntrof/i_hate_it_here/)
+- [Last ditch effort](https://www.reddit.com/r/wallstreetbets/comments/1mntew7/last_ditch_effort/)
+- [ASTS earnings report](https://www.reddit.com/r/wallstreetbets/comments/1mntag5/asts_earnings_report/)
+- [Something about being fearful when others are greedy](https://www.reddit.com/r/wallstreetbets/comments/1mnqf91/something_about_being_fearful_when_others_are/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
