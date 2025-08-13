@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump signs order granting another 90-day extension on harshest China tariffs](https://www.reddit.com/r/wallstreetbets/comments/1mnu9mn/trump_signs_order_granting_another_90day/)
-- [I hate it here](https://www.reddit.com/r/wallstreetbets/comments/1mntrof/i_hate_it_here/)
-- [Last ditch effort](https://www.reddit.com/r/wallstreetbets/comments/1mntew7/last_ditch_effort/)
-- [ASTS earnings report](https://www.reddit.com/r/wallstreetbets/comments/1mntag5/asts_earnings_report/)
-- [Something about being fearful when others are greedy](https://www.reddit.com/r/wallstreetbets/comments/1mnqf91/something_about_being_fearful_when_others_are/)
+- [Reddit truly knows what this sub is about](https://www.reddit.com/r/wallstreetbets/comments/1mop2ay/reddit_truly_knows_what_this_sub_is_about/)
+- [Going all into CAVA](https://www.reddit.com/r/wallstreetbets/comments/1moo36d/going_all_into_cava/)
+- [Thank you Reddit!](https://www.reddit.com/r/wallstreetbets/comments/1momyo4/thank_you_reddit/)
+- [Guys is the chest pain normal after seeing this?](https://www.reddit.com/r/wallstreetbets/comments/1momh0h/guys_is_the_chest_pain_normal_after_seeing_this/)
+- [CoreWeave drops 10% after hours. Q2 revenue $1.21B beats by 12%, backlog $30.1B, expenses surge 3.7x YoY to $1.19B](https://www.reddit.com/r/wallstreetbets/comments/1momcq6/coreweave_drops_10_after_hours_q2_revenue_121b/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
