@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Reddit truly knows what this sub is about](https://www.reddit.com/r/wallstreetbets/comments/1mop2ay/reddit_truly_knows_what_this_sub_is_about/)
-- [Going all into CAVA](https://www.reddit.com/r/wallstreetbets/comments/1moo36d/going_all_into_cava/)
-- [Thank you Reddit!](https://www.reddit.com/r/wallstreetbets/comments/1momyo4/thank_you_reddit/)
-- [Guys is the chest pain normal after seeing this?](https://www.reddit.com/r/wallstreetbets/comments/1momh0h/guys_is_the_chest_pain_normal_after_seeing_this/)
-- [CoreWeave drops 10% after hours. Q2 revenue $1.21B beats by 12%, backlog $30.1B, expenses surge 3.7x YoY to $1.19B](https://www.reddit.com/r/wallstreetbets/comments/1momcq6/coreweave_drops_10_after_hours_q2_revenue_121b/)
+- [Think I’m done for the year](https://www.reddit.com/r/wallstreetbets/comments/1mpl4t6/think_im_done_for_the_year/)
+- [Lost 8k so far being bearish. Final 10k bet holding until 0 or Valhalla](https://www.reddit.com/r/wallstreetbets/comments/1mpkzxd/lost_8k_so_far_being_bearish_final_10k_bet/)
+- [$AMD calls just getting started](https://www.reddit.com/r/wallstreetbets/comments/1mpjtmf/amd_calls_just_getting_started/)
+- [$BULL 160K ALL IN YOLO](https://www.reddit.com/r/wallstreetbets/comments/1mpjhac/bull_160k_all_in_yolo/)
+- [I should’ve had more $PSKY 😩](https://www.reddit.com/r/wallstreetbets/comments/1mpi5w1/i_shouldve_had_more_psky/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
