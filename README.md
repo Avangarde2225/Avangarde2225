@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Think I’m done for the year](https://www.reddit.com/r/wallstreetbets/comments/1mpl4t6/think_im_done_for_the_year/)
-- [Lost 8k so far being bearish. Final 10k bet holding until 0 or Valhalla](https://www.reddit.com/r/wallstreetbets/comments/1mpkzxd/lost_8k_so_far_being_bearish_final_10k_bet/)
-- [$AMD calls just getting started](https://www.reddit.com/r/wallstreetbets/comments/1mpjtmf/amd_calls_just_getting_started/)
-- [$BULL 160K ALL IN YOLO](https://www.reddit.com/r/wallstreetbets/comments/1mpjhac/bull_160k_all_in_yolo/)
-- [I should’ve had more $PSKY 😩](https://www.reddit.com/r/wallstreetbets/comments/1mpi5w1/i_shouldve_had_more_psky/)
+- [UNH bagholders celebrating at breakeven after Berkshire announcement.](https://www.reddit.com/r/wallstreetbets/comments/1mqijna/unh_bagholders_celebrating_at_breakeven_after/)
+- [Intel up 20% - Nana is waking up](https://www.reddit.com/r/wallstreetbets/comments/1mqiewr/intel_up_20_nana_is_waking_up/)
+- [Opendoor Options Profit](https://www.reddit.com/r/wallstreetbets/comments/1mqhdu4/opendoor_options_profit/)
+- [Newegg just became my Nest egg](https://www.reddit.com/r/wallstreetbets/comments/1mqg60p/newegg_just_became_my_nest_egg/)
+- [YOLO OPEN](https://www.reddit.com/r/wallstreetbets/comments/1mqelgs/yolo_open/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
