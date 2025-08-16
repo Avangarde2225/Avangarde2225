@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [UNH bagholders celebrating at breakeven after Berkshire announcement.](https://www.reddit.com/r/wallstreetbets/comments/1mqijna/unh_bagholders_celebrating_at_breakeven_after/)
-- [Intel up 20% - Nana is waking up](https://www.reddit.com/r/wallstreetbets/comments/1mqiewr/intel_up_20_nana_is_waking_up/)
-- [Opendoor Options Profit](https://www.reddit.com/r/wallstreetbets/comments/1mqhdu4/opendoor_options_profit/)
-- [Newegg just became my Nest egg](https://www.reddit.com/r/wallstreetbets/comments/1mqg60p/newegg_just_became_my_nest_egg/)
-- [YOLO OPEN](https://www.reddit.com/r/wallstreetbets/comments/1mqelgs/yolo_open/)
+- [Thought they were Dusters...](https://www.reddit.com/r/wallstreetbets/comments/1mrdodt/thought_they_were_dusters/)
+- [Doubled down from $1.5M -&gt; $2.5M in SBET](https://www.reddit.com/r/wallstreetbets/comments/1mrdgbk/doubled_down_from_15m_25m_in_sbet/)
+- [UNH: $100k+ gains](https://www.reddit.com/r/wallstreetbets/comments/1mrb9kx/unh_100k_gains/)
+- [Thx to the dude earlier this week that mentioned Buffett might be in UNH. $120 to $5K.](https://www.reddit.com/r/wallstreetbets/comments/1mrah6k/thx_to_the_dude_earlier_this_week_that_mentioned/)
+- [Thanks UNH](https://www.reddit.com/r/wallstreetbets/comments/1mr9ljz/thanks_unh/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
