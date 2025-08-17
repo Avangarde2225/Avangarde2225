@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thought they were Dusters...](https://www.reddit.com/r/wallstreetbets/comments/1mrdodt/thought_they_were_dusters/)
-- [Doubled down from $1.5M -&gt; $2.5M in SBET](https://www.reddit.com/r/wallstreetbets/comments/1mrdgbk/doubled_down_from_15m_25m_in_sbet/)
-- [UNH: $100k+ gains](https://www.reddit.com/r/wallstreetbets/comments/1mrb9kx/unh_100k_gains/)
-- [Thx to the dude earlier this week that mentioned Buffett might be in UNH. $120 to $5K.](https://www.reddit.com/r/wallstreetbets/comments/1mrah6k/thx_to_the_dude_earlier_this_week_that_mentioned/)
-- [Thanks UNH](https://www.reddit.com/r/wallstreetbets/comments/1mr9ljz/thanks_unh/)
+- [Reddit gains. 1 covered call and 2 calls. Regretting selling covered calls.](https://www.reddit.com/r/wallstreetbets/comments/1mschmh/reddit_gains_1_covered_call_and_2_calls/)
+- [OPEN YOLO update — Friday, August 15th](https://www.reddit.com/r/wallstreetbets/comments/1msc97r/open_yolo_update_friday_august_15th/)
+- [Stocks that beat Nvidia and it is just getting started](https://www.reddit.com/r/wallstreetbets/comments/1msbzjx/stocks_that_beat_nvidia_and_it_is_just_getting/)
+- [Sam Altman says ‘yes,’ AI is in a bubble](https://www.reddit.com/r/wallstreetbets/comments/1msanvd/sam_altman_says_yes_ai_is_in_a_bubble/)
+- [I hate the stock but I bought calls - GEO bull case](https://www.reddit.com/r/wallstreetbets/comments/1ms8wtu/i_hate_the_stock_but_i_bought_calls_geo_bull_case/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
