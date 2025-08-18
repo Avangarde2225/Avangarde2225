@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Reddit gains. 1 covered call and 2 calls. Regretting selling covered calls.](https://www.reddit.com/r/wallstreetbets/comments/1mschmh/reddit_gains_1_covered_call_and_2_calls/)
-- [OPEN YOLO update — Friday, August 15th](https://www.reddit.com/r/wallstreetbets/comments/1msc97r/open_yolo_update_friday_august_15th/)
-- [Stocks that beat Nvidia and it is just getting started](https://www.reddit.com/r/wallstreetbets/comments/1msbzjx/stocks_that_beat_nvidia_and_it_is_just_getting/)
-- [Sam Altman says ‘yes,’ AI is in a bubble](https://www.reddit.com/r/wallstreetbets/comments/1msanvd/sam_altman_says_yes_ai_is_in_a_bubble/)
-- [I hate the stock but I bought calls - GEO bull case](https://www.reddit.com/r/wallstreetbets/comments/1ms8wtu/i_hate_the_stock_but_i_bought_calls_geo_bull_case/)
+- [Come at me bro](https://www.reddit.com/r/wallstreetbets/comments/1mt7lwt/come_at_me_bro/)
+- [Hello fellow regards, bet 50% of my HSA on UNH ITM leaps.](https://www.reddit.com/r/wallstreetbets/comments/1mt60m0/hello_fellow_regards_bet_50_of_my_hsa_on_unh_itm/)
+- [Get those job applications ready boys](https://www.reddit.com/r/wallstreetbets/comments/1mt4a9i/get_those_job_applications_ready_boys/)
+- [Just got approved for options on Fidelity. Can&#39;t wait to use *responsibly*](https://www.reddit.com/r/wallstreetbets/comments/1mt47zf/just_got_approved_for_options_on_fidelity_cant/)
+- [Jane Street barred from Indian markets as regulator freezes $566 million over Nifty 50 manipulation claims](https://www.reddit.com/r/wallstreetbets/comments/1mt2ekj/jane_street_barred_from_indian_markets_as/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
