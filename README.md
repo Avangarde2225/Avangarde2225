@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SoftBank to invest $2BN in $INTC](https://www.reddit.com/r/wallstreetbets/comments/1mu23ro/softbank_to_invest_2bn_in_intc/)
-- [SoftBank invests $2B in Intel](https://www.reddit.com/r/wallstreetbets/comments/1mu1xhx/softbank_invests_2b_in_intel/)
-- [$32k &gt; $65k in 10 days… Ride or Die to $82](https://www.reddit.com/r/wallstreetbets/comments/1mu0y7m/32k_65k_in_10_days_ride_or_die_to_82/)
-- [I bought the right stock at the right time in the wrong account 😔](https://www.reddit.com/r/wallstreetbets/comments/1mu0xem/i_bought_the_right_stock_at_the_right_time_in_the/)
-- [I&#39;m on the left, where are you?](https://www.reddit.com/r/wallstreetbets/comments/1mu0m3y/im_on_the_left_where_are_you/)
+- [Hoping for the zuck to save me](https://www.reddit.com/r/wallstreetbets/comments/1muzqov/hoping_for_the_zuck_to_save_me/)
+- [PLTR puts luv me long time](https://www.reddit.com/r/wallstreetbets/comments/1muyawu/pltr_puts_luv_me_long_time/)
+- [MIT report: 95% of generative AI pilots at companies are failing to deliver revenue impact](https://www.reddit.com/r/wallstreetbets/comments/1muwlbs/mit_report_95_of_generative_ai_pilots_at/)
+- [PLTR is going back to $7](https://www.reddit.com/r/wallstreetbets/comments/1muwecg/pltr_is_going_back_to_7/)
+- [The Oracle of Omaha Has Spoken](https://www.reddit.com/r/wallstreetbets/comments/1muwe38/the_oracle_of_omaha_has_spoken/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
