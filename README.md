@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Get ready to flip burgers at Wendy&#39;s buddy &lpar;Video by HubPointless on Twitter&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1mvvgzy/get_ready_to_flip_burgers_at_wendys_buddy_video/)
-- [LOVE VOL](https://www.reddit.com/r/wallstreetbets/comments/1mvtwao/love_vol/)
-- [Oops… I hope tomorrow doesn’t suck](https://www.reddit.com/r/wallstreetbets/comments/1mvs9w8/oops_i_hope_tomorrow_doesnt_suck/)
-- [That’s it folks](https://www.reddit.com/r/wallstreetbets/comments/1mvrzpn/thats_it_folks/)
-- [We ride at Dawn Regards](https://www.reddit.com/r/wallstreetbets/comments/1mvrn4g/we_ride_at_dawn_regards/)
+- [We all know what Powell will say](https://www.reddit.com/r/wallstreetbets/comments/1mwrsn6/we_all_know_what_powell_will_say/)
+- [The universe spoke. Regard + Root = $1.4M YOLO](https://www.reddit.com/r/wallstreetbets/comments/1mwqh34/the_universe_spoke_regard_root_14m_yolo/)
+- [Intuit drops 6% after hours as Q1 revenue growth misses 16.1% estimate, Mailchimp drags, $3.2B buyback announced](https://www.reddit.com/r/wallstreetbets/comments/1mwq4gv/intuit_drops_6_after_hours_as_q1_revenue_growth/)
+- [Prayer for the evening](https://www.reddit.com/r/wallstreetbets/comments/1mwpwm4/prayer_for_the_evening/)
+- [What Gets You Through the Trading Day?](https://www.reddit.com/r/wallstreetbets/comments/1mwps03/what_gets_you_through_the_trading_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
