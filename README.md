@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We all know what Powell will say](https://www.reddit.com/r/wallstreetbets/comments/1mwrsn6/we_all_know_what_powell_will_say/)
-- [The universe spoke. Regard + Root = $1.4M YOLO](https://www.reddit.com/r/wallstreetbets/comments/1mwqh34/the_universe_spoke_regard_root_14m_yolo/)
-- [Intuit drops 6% after hours as Q1 revenue growth misses 16.1% estimate, Mailchimp drags, $3.2B buyback announced](https://www.reddit.com/r/wallstreetbets/comments/1mwq4gv/intuit_drops_6_after_hours_as_q1_revenue_growth/)
-- [Prayer for the evening](https://www.reddit.com/r/wallstreetbets/comments/1mwpwm4/prayer_for_the_evening/)
-- [What Gets You Through the Trading Day?](https://www.reddit.com/r/wallstreetbets/comments/1mwps03/what_gets_you_through_the_trading_day/)
+- [I am glad I kept my anus OPEN](https://www.reddit.com/r/wallstreetbets/comments/1mxk6fa/i_am_glad_i_kept_my_anus_open/)
+- [am i doing it right](https://www.reddit.com/r/wallstreetbets/comments/1mxjtmo/am_i_doing_it_right/)
+- [$OPEN not selling till $500](https://www.reddit.com/r/wallstreetbets/comments/1mxicdd/open_not_selling_till_500/)
+- [Weeeee 🚀🚀$SOFI pt.2 - I didn’t sell](https://www.reddit.com/r/wallstreetbets/comments/1mxhxe9/weeeee_sofi_pt2_i_didnt_sell/)
+- [U.S. takes 10% stake in Intel, Trump administration says](https://www.reddit.com/r/wallstreetbets/comments/1mxhne2/us_takes_10_stake_in_intel_trump_administration/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
