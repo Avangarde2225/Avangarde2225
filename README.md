@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I am glad I kept my anus OPEN](https://www.reddit.com/r/wallstreetbets/comments/1mxk6fa/i_am_glad_i_kept_my_anus_open/)
-- [am i doing it right](https://www.reddit.com/r/wallstreetbets/comments/1mxjtmo/am_i_doing_it_right/)
-- [$OPEN not selling till $500](https://www.reddit.com/r/wallstreetbets/comments/1mxicdd/open_not_selling_till_500/)
-- [Weeeee 🚀🚀$SOFI pt.2 - I didn’t sell](https://www.reddit.com/r/wallstreetbets/comments/1mxhxe9/weeeee_sofi_pt2_i_didnt_sell/)
-- [U.S. takes 10% stake in Intel, Trump administration says](https://www.reddit.com/r/wallstreetbets/comments/1mxhne2/us_takes_10_stake_in_intel_trump_administration/)
+- [Alcohol consumption hits 85-year low: Molson Coors volume down 7%, Constellation down 3.3%, giants pivot to non-alcoholic growth](https://www.reddit.com/r/wallstreetbets/comments/1myhxdw/alcohol_consumption_hits_85year_low_molson_coors/)
+- [“There’s a bubble.”](https://www.reddit.com/r/wallstreetbets/comments/1myggyj/theres_a_bubble/)
+- [Will i ever recover? 😭](https://www.reddit.com/r/wallstreetbets/comments/1myd1rq/will_i_ever_recover/)
+- [Attention regarts: this AI bubble CAN&#39;T stop, here&#39;s why](https://www.reddit.com/r/wallstreetbets/comments/1my9fbl/attention_regarts_this_ai_bubble_cant_stop_heres/)
+- [NBIS &lpar;currently at 70&rpar; Gains. CRWV &lpar;currently at $92&rpar; under water but hoping it will go to $200 by EOY, not sure.](https://www.reddit.com/r/wallstreetbets/comments/1my7qta/nbis_currently_at_70_gains_crwv_currently_at_92/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
