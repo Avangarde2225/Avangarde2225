@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Alcohol consumption hits 85-year low: Molson Coors volume down 7%, Constellation down 3.3%, giants pivot to non-alcoholic growth](https://www.reddit.com/r/wallstreetbets/comments/1myhxdw/alcohol_consumption_hits_85year_low_molson_coors/)
-- [“There’s a bubble.”](https://www.reddit.com/r/wallstreetbets/comments/1myggyj/theres_a_bubble/)
-- [Will i ever recover? 😭](https://www.reddit.com/r/wallstreetbets/comments/1myd1rq/will_i_ever_recover/)
-- [Attention regarts: this AI bubble CAN&#39;T stop, here&#39;s why](https://www.reddit.com/r/wallstreetbets/comments/1my9fbl/attention_regarts_this_ai_bubble_cant_stop_heres/)
-- [NBIS &lpar;currently at 70&rpar; Gains. CRWV &lpar;currently at $92&rpar; under water but hoping it will go to $200 by EOY, not sure.](https://www.reddit.com/r/wallstreetbets/comments/1my7qta/nbis_currently_at_70_gains_crwv_currently_at_92/)
+- [Low float explosive grower ROOT](https://www.reddit.com/r/wallstreetbets/comments/1mzcjvc/low_float_explosive_grower_root/)
+- [Big YOLO on LEAP’s](https://www.reddit.com/r/wallstreetbets/comments/1mzcgtq/big_yolo_on_leaps/)
+- [PLTR call $13.5k. Regard &amp; Regarder](https://www.reddit.com/r/wallstreetbets/comments/1mzcb5e/pltr_call_135k_regard_regarder/)
+- [one for the boys](https://www.reddit.com/r/wallstreetbets/comments/1mzbtkv/one_for_the_boys/)
+- [What Are Your Moves Tomorrow, August 25, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mz5q9u/what_are_your_moves_tomorrow_august_25_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
