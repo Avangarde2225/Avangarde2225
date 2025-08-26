@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Low float explosive grower ROOT](https://www.reddit.com/r/wallstreetbets/comments/1mzcjvc/low_float_explosive_grower_root/)
-- [Big YOLO on LEAP’s](https://www.reddit.com/r/wallstreetbets/comments/1mzcgtq/big_yolo_on_leaps/)
-- [PLTR call $13.5k. Regard &amp; Regarder](https://www.reddit.com/r/wallstreetbets/comments/1mzcb5e/pltr_call_135k_regard_regarder/)
-- [one for the boys](https://www.reddit.com/r/wallstreetbets/comments/1mzbtkv/one_for_the_boys/)
-- [What Are Your Moves Tomorrow, August 25, 2025](https://www.reddit.com/r/wallstreetbets/comments/1mz5q9u/what_are_your_moves_tomorrow_august_25_2025/)
+- [Trump fired Fed Gov Lisa Cook](https://www.reddit.com/r/wallstreetbets/comments/1n07etr/trump_fired_fed_gov_lisa_cook/)
+- [$SNAP Calls!- &lpar;400K YOLO&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1n05mmx/snap_calls_400k_yolo/)
+- [The entire economy is riding on the backs of the MAG7. The S&amp;P500 would actually be down without these 7 companies. What a time to be alive.](https://www.reddit.com/r/wallstreetbets/comments/1n04jjk/the_entire_economy_is_riding_on_the_backs_of_the/)
+- [Google Antitrust YOLO](https://www.reddit.com/r/wallstreetbets/comments/1n020vi/google_antitrust_yolo/)
+- [Meren Energy is the cheapest oil company in the world $MER.TO [DD]](https://www.reddit.com/r/wallstreetbets/comments/1n01x1v/meren_energy_is_the_cheapest_oil_company_in_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
