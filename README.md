@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump fired Fed Gov Lisa Cook](https://www.reddit.com/r/wallstreetbets/comments/1n07etr/trump_fired_fed_gov_lisa_cook/)
-- [$SNAP Calls!- &lpar;400K YOLO&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1n05mmx/snap_calls_400k_yolo/)
-- [The entire economy is riding on the backs of the MAG7. The S&amp;P500 would actually be down without these 7 companies. What a time to be alive.](https://www.reddit.com/r/wallstreetbets/comments/1n04jjk/the_entire_economy_is_riding_on_the_backs_of_the/)
-- [Google Antitrust YOLO](https://www.reddit.com/r/wallstreetbets/comments/1n020vi/google_antitrust_yolo/)
-- [Meren Energy is the cheapest oil company in the world $MER.TO [DD]](https://www.reddit.com/r/wallstreetbets/comments/1n01x1v/meren_energy_is_the_cheapest_oil_company_in_the/)
+- [How a Panican Swing Trades](https://www.reddit.com/r/wallstreetbets/comments/1n12492/how_a_panican_swing_trades/)
+- [190k earnings yolo](https://www.reddit.com/r/wallstreetbets/comments/1n0yqjz/190k_earnings_yolo/)
+- [Get in on SNOW with this dope DD](https://www.reddit.com/r/wallstreetbets/comments/1n0yj3i/get_in_on_snow_with_this_dope_dd/)
+- [I Am In Deep Shit - SPX CCS](https://www.reddit.com/r/wallstreetbets/comments/1n0xpxr/i_am_in_deep_shit_spx_ccs/)
+- [If You Blindly Bet on Earnings This Week, You&#39;d Be Up 21%](https://www.reddit.com/r/wallstreetbets/comments/1n0xf9w/if_you_blindly_bet_on_earnings_this_week_youd_be/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
