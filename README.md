@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How a Panican Swing Trades](https://www.reddit.com/r/wallstreetbets/comments/1n12492/how_a_panican_swing_trades/)
-- [190k earnings yolo](https://www.reddit.com/r/wallstreetbets/comments/1n0yqjz/190k_earnings_yolo/)
-- [Get in on SNOW with this dope DD](https://www.reddit.com/r/wallstreetbets/comments/1n0yj3i/get_in_on_snow_with_this_dope_dd/)
-- [I Am In Deep Shit - SPX CCS](https://www.reddit.com/r/wallstreetbets/comments/1n0xpxr/i_am_in_deep_shit_spx_ccs/)
-- [If You Blindly Bet on Earnings This Week, You&#39;d Be Up 21%](https://www.reddit.com/r/wallstreetbets/comments/1n0xf9w/if_you_blindly_bet_on_earnings_this_week_youd_be/)
+- [I need to gamble in Asia](https://www.reddit.com/r/wallstreetbets/comments/1n1y3at/i_need_to_gamble_in_asia/)
+- [$APLD Up 200% ⬆️🤑](https://www.reddit.com/r/wallstreetbets/comments/1n1vq4e/apld_up_200/)
+- [Never listening to WSB again](https://www.reddit.com/r/wallstreetbets/comments/1n1ukb9/never_listening_to_wsb_again/)
+- [Send hopes and prayers](https://www.reddit.com/r/wallstreetbets/comments/1n1t0ht/send_hopes_and_prayers/)
+- [Probably done with trading &lpar;P2&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1n1sxwn/probably_done_with_trading_p2/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
