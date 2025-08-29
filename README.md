@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I need to gamble in Asia](https://www.reddit.com/r/wallstreetbets/comments/1n1y3at/i_need_to_gamble_in_asia/)
-- [$APLD Up 200% ⬆️🤑](https://www.reddit.com/r/wallstreetbets/comments/1n1vq4e/apld_up_200/)
-- [Never listening to WSB again](https://www.reddit.com/r/wallstreetbets/comments/1n1ukb9/never_listening_to_wsb_again/)
-- [Send hopes and prayers](https://www.reddit.com/r/wallstreetbets/comments/1n1t0ht/send_hopes_and_prayers/)
-- [Probably done with trading &lpar;P2&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1n1sxwn/probably_done_with_trading_p2/)
+- [39k Affirm Yolo.](https://www.reddit.com/r/wallstreetbets/comments/1n2rjpx/39k_affirm_yolo/)
+- [-5K Carvana Puts](https://www.reddit.com/r/wallstreetbets/comments/1n2pjpf/5k_carvana_puts/)
+- [I’m not selling $AMZN . Let it ride 🚀](https://www.reddit.com/r/wallstreetbets/comments/1n2pa72/im_not_selling_amzn_let_it_ride/)
+- [What Are Your Moves Tomorrow, August 29, 2025](https://www.reddit.com/r/wallstreetbets/comments/1n2mikq/what_are_your_moves_tomorrow_august_29_2025/)
+- [Sir, what does diversification mean? ...Obviously different expiries, #DIVERSIFIED &lpar;Rotated recent profits into shorter expiry NVO calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1n2lu0i/sir_what_does_diversification_mean_obviously/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
