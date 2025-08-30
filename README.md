@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [39k Affirm Yolo.](https://www.reddit.com/r/wallstreetbets/comments/1n2rjpx/39k_affirm_yolo/)
-- [-5K Carvana Puts](https://www.reddit.com/r/wallstreetbets/comments/1n2pjpf/5k_carvana_puts/)
-- [I’m not selling $AMZN . Let it ride 🚀](https://www.reddit.com/r/wallstreetbets/comments/1n2pa72/im_not_selling_amzn_let_it_ride/)
-- [What Are Your Moves Tomorrow, August 29, 2025](https://www.reddit.com/r/wallstreetbets/comments/1n2mikq/what_are_your_moves_tomorrow_august_29_2025/)
-- [Sir, what does diversification mean? ...Obviously different expiries, #DIVERSIFIED &lpar;Rotated recent profits into shorter expiry NVO calls&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1n2lu0i/sir_what_does_diversification_mean_obviously/)
+- [Yolo for the gold gang](https://www.reddit.com/r/wallstreetbets/comments/1n3n8bw/yolo_for_the_gold_gang/)
+- [I dreamed about AVGO last night, so I bought some today](https://www.reddit.com/r/wallstreetbets/comments/1n3kp3u/i_dreamed_about_avgo_last_night_so_i_bought_some/)
+- [Most Trump tariffs ruled illegal in blow to White House trade policy](https://www.reddit.com/r/wallstreetbets/comments/1n3k79q/most_trump_tariffs_ruled_illegal_in_blow_to_white/)
+- [Nice little print today](https://www.reddit.com/r/wallstreetbets/comments/1n3j36u/nice_little_print_today/)
+- [Expectation vs Reality [meme + storytime]](https://www.reddit.com/r/wallstreetbets/comments/1n3j0ch/expectation_vs_reality_meme_storytime/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
