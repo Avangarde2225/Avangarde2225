@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Yolo for the gold gang](https://www.reddit.com/r/wallstreetbets/comments/1n3n8bw/yolo_for_the_gold_gang/)
-- [I dreamed about AVGO last night, so I bought some today](https://www.reddit.com/r/wallstreetbets/comments/1n3kp3u/i_dreamed_about_avgo_last_night_so_i_bought_some/)
-- [Most Trump tariffs ruled illegal in blow to White House trade policy](https://www.reddit.com/r/wallstreetbets/comments/1n3k79q/most_trump_tariffs_ruled_illegal_in_blow_to_white/)
-- [Nice little print today](https://www.reddit.com/r/wallstreetbets/comments/1n3j36u/nice_little_print_today/)
-- [Expectation vs Reality [meme + storytime]](https://www.reddit.com/r/wallstreetbets/comments/1n3j0ch/expectation_vs_reality_meme_storytime/)
+- [Not a shit post, this is an actual Munger quote. Go after it regards](https://www.reddit.com/r/wallstreetbets/comments/1n4h7cc/not_a_shit_post_this_is_an_actual_munger_quote_go/)
+- [Profitability + Growth + Retail Crackhouse = WEBULL YOLO](https://www.reddit.com/r/wallstreetbets/comments/1n4gss0/profitability_growth_retail_crackhouse_webull_yolo/)
+- [$FUBO YOLO - Merger with Disney is near, Footsport season is starting, RenTech owns 4%, I&#39;m gay and your mother is a whore](https://www.reddit.com/r/wallstreetbets/comments/1n4fp0f/fubo_yolo_merger_with_disney_is_near_footsport/)
+- [200k yolo $snap am I stupid? DD](https://www.reddit.com/r/wallstreetbets/comments/1n4el9y/200k_yolo_snap_am_i_stupid_dd/)
+- [“$HE -the boring monopoly in the middle of the ocean that’s about to not be so boring”](https://www.reddit.com/r/wallstreetbets/comments/1n4dcsn/he_the_boring_monopoly_in_the_middle_of_the_ocean/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
