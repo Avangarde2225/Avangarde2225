@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Not a shit post, this is an actual Munger quote. Go after it regards](https://www.reddit.com/r/wallstreetbets/comments/1n4h7cc/not_a_shit_post_this_is_an_actual_munger_quote_go/)
-- [Profitability + Growth + Retail Crackhouse = WEBULL YOLO](https://www.reddit.com/r/wallstreetbets/comments/1n4gss0/profitability_growth_retail_crackhouse_webull_yolo/)
-- [$FUBO YOLO - Merger with Disney is near, Footsport season is starting, RenTech owns 4%, I&#39;m gay and your mother is a whore](https://www.reddit.com/r/wallstreetbets/comments/1n4fp0f/fubo_yolo_merger_with_disney_is_near_footsport/)
-- [200k yolo $snap am I stupid? DD](https://www.reddit.com/r/wallstreetbets/comments/1n4el9y/200k_yolo_snap_am_i_stupid_dd/)
-- [“$HE -the boring monopoly in the middle of the ocean that’s about to not be so boring”](https://www.reddit.com/r/wallstreetbets/comments/1n4dcsn/he_the_boring_monopoly_in_the_middle_of_the_ocean/)
+- [The Wendy&#39;s Red Head Girl is Pissed](https://www.reddit.com/r/wallstreetbets/comments/1n65kkl/the_wendys_red_head_girl_is_pissed/)
+- [Wish I never did](https://www.reddit.com/r/wallstreetbets/comments/1n63ym7/wish_i_never_did/)
+- [What Are Your Moves Tomorrow, September 02, 2025](https://www.reddit.com/r/wallstreetbets/comments/1n5yzth/what_are_your_moves_tomorrow_september_02_2025/)
+- [The bags are heavy](https://www.reddit.com/r/wallstreetbets/comments/1n5t4tg/the_bags_are_heavy/)
+- [Me on Labor Day](https://www.reddit.com/r/wallstreetbets/comments/1n5n1b5/me_on_labor_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
