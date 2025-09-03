@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Wendy&#39;s Red Head Girl is Pissed](https://www.reddit.com/r/wallstreetbets/comments/1n65kkl/the_wendys_red_head_girl_is_pissed/)
-- [Wish I never did](https://www.reddit.com/r/wallstreetbets/comments/1n63ym7/wish_i_never_did/)
-- [What Are Your Moves Tomorrow, September 02, 2025](https://www.reddit.com/r/wallstreetbets/comments/1n5yzth/what_are_your_moves_tomorrow_september_02_2025/)
-- [The bags are heavy](https://www.reddit.com/r/wallstreetbets/comments/1n5t4tg/the_bags_are_heavy/)
-- [Me on Labor Day](https://www.reddit.com/r/wallstreetbets/comments/1n5n1b5/me_on_labor_day/)
+- [I read about covered calls over the weekend and decided to try it for the first time on Google. FML](https://www.reddit.com/r/wallstreetbets/comments/1n6zryi/i_read_about_covered_calls_over_the_weekend_and/)
+- [I gave you OPEN at $.70, UPS and SNAP are the next 2-3 baggers to show your wives](https://www.reddit.com/r/wallstreetbets/comments/1n6zkhz/i_gave_you_open_at_70_ups_and_snap_are_the_next/)
+- [NGL GOOG doing some heavy lifting in my portfolio rn...](https://www.reddit.com/r/wallstreetbets/comments/1n6x46m/ngl_goog_doing_some_heavy_lifting_in_my_portfolio/)
+- [NVO $274K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1n6wez5/nvo_274k_yolo/)
+- [I told ya $GOOG will print](https://www.reddit.com/r/wallstreetbets/comments/1n6v6yj/i_told_ya_goog_will_print/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
