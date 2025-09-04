@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I read about covered calls over the weekend and decided to try it for the first time on Google. FML](https://www.reddit.com/r/wallstreetbets/comments/1n6zryi/i_read_about_covered_calls_over_the_weekend_and/)
-- [I gave you OPEN at $.70, UPS and SNAP are the next 2-3 baggers to show your wives](https://www.reddit.com/r/wallstreetbets/comments/1n6zkhz/i_gave_you_open_at_70_ups_and_snap_are_the_next/)
-- [NGL GOOG doing some heavy lifting in my portfolio rn...](https://www.reddit.com/r/wallstreetbets/comments/1n6x46m/ngl_goog_doing_some_heavy_lifting_in_my_portfolio/)
-- [NVO $274K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1n6wez5/nvo_274k_yolo/)
-- [I told ya $GOOG will print](https://www.reddit.com/r/wallstreetbets/comments/1n6v6yj/i_told_ya_goog_will_print/)
+- [They call me..Goldfinger](https://www.reddit.com/r/wallstreetbets/comments/1n7rgwi/they_call_megoldfinger/)
+- [An Apple a day, or some bull shit like that](https://www.reddit.com/r/wallstreetbets/comments/1n7quhu/an_apple_a_day_or_some_bull_shit_like_that/)
+- [50k CRDO Yolo. Shrek dildo AH](https://www.reddit.com/r/wallstreetbets/comments/1n7prmo/50k_crdo_yolo_shrek_dildo_ah/)
+- [American Eagle stock soars 20% as retailer says Sydney Sweeney campaign is &#39;best&#39; to date, beats earnings](https://www.reddit.com/r/wallstreetbets/comments/1n7prkh/american_eagle_stock_soars_20_as_retailer_says/)
+- [Is my portfolio trying to tell me something today?](https://www.reddit.com/r/wallstreetbets/comments/1n7p7i5/is_my_portfolio_trying_to_tell_me_something_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
