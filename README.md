@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [They call me..Goldfinger](https://www.reddit.com/r/wallstreetbets/comments/1n7rgwi/they_call_megoldfinger/)
-- [An Apple a day, or some bull shit like that](https://www.reddit.com/r/wallstreetbets/comments/1n7quhu/an_apple_a_day_or_some_bull_shit_like_that/)
-- [50k CRDO Yolo. Shrek dildo AH](https://www.reddit.com/r/wallstreetbets/comments/1n7prmo/50k_crdo_yolo_shrek_dildo_ah/)
-- [American Eagle stock soars 20% as retailer says Sydney Sweeney campaign is &#39;best&#39; to date, beats earnings](https://www.reddit.com/r/wallstreetbets/comments/1n7prkh/american_eagle_stock_soars_20_as_retailer_says/)
-- [Is my portfolio trying to tell me something today?](https://www.reddit.com/r/wallstreetbets/comments/1n7p7i5/is_my_portfolio_trying_to_tell_me_something_today/)
+- [Welp](https://www.reddit.com/r/wallstreetbets/comments/1n8qweo/welp/)
+- [What in the LULU](https://www.reddit.com/r/wallstreetbets/comments/1n8qnqk/what_in_the_lulu/)
+- [Im so close to 100% that its tickling my little nut sack](https://www.reddit.com/r/wallstreetbets/comments/1n8qjcz/im_so_close_to_100_that_its_tickling_my_little/)
+- [2.8k to 50k, 1800% Returns Over the Summer](https://www.reddit.com/r/wallstreetbets/comments/1n8phu8/28k_to_50k_1800_returns_over_the_summer/)
+- [Google deez nuts part 2,3,4…](https://www.reddit.com/r/wallstreetbets/comments/1n8ooli/google_deez_nuts_part_234/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
