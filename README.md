@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sydney Sweeney has good jeans](https://www.reddit.com/r/wallstreetbets/comments/1nb3vik/sydney_sweeney_has_good_jeans/)
-- [What Are Your Moves Tomorrow, September 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1nb34dp/what_are_your_moves_tomorrow_september_08_2025/)
-- [HOOD loss porn 1M to 320k](https://www.reddit.com/r/wallstreetbets/comments/1nay53o/hood_loss_porn_1m_to_320k/)
-- [Watch me panic sell Broadcom earning lotto calls](https://www.reddit.com/r/wallstreetbets/comments/1naug6v/watch_me_panic_sell_broadcom_earning_lotto_calls/)
-- [Welp, do I belong here folks? $674 into $5k overnight on $TSLA 💰](https://www.reddit.com/r/wallstreetbets/comments/1nasqno/welp_do_i_belong_here_folks_674_into_5k_overnight/)
+- [Literally sold at the bottom $UNH](https://www.reddit.com/r/wallstreetbets/comments/1nc4l9o/literally_sold_at_the_bottom_unh/)
+- [Wall Street Kid NES game](https://www.reddit.com/r/wallstreetbets/comments/1nc4ffr/wall_street_kid_nes_game/)
+- [IREN 430k bet](https://www.reddit.com/r/wallstreetbets/comments/1nc2h5z/iren_430k_bet/)
+- [$NBIS gain thanks bill](https://www.reddit.com/r/wallstreetbets/comments/1nc21qb/nbis_gain_thanks_bill/)
+- [YOLO $100K of $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1nc0lpa/yolo_100k_of_open/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
