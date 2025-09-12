@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Happy birthday to me! It&#39;s not crazy money like you guys...but a nice ~30,525% win &lpar;$6 -&gt; $1831&rpar; on ORCL](https://www.reddit.com/r/wallstreetbets/comments/1ndussy/happy_birthday_to_me_its_not_crazy_money_like_you/)
-- [2800 percent give or take](https://www.reddit.com/r/wallstreetbets/comments/1ndta5h/2800_percent_give_or_take/)
-- [YOLO’d ORCL calls, turned $5k into $95k 🚀💎🙌](https://www.reddit.com/r/wallstreetbets/comments/1ndqpay/yolod_orcl_calls_turned_5k_into_95k/)
-- [Wish me luck $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1ndozb9/wish_me_luck_open/)
-- [What Are Your Moves Tomorrow, September 11, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ndols2/what_are_your_moves_tomorrow_september_11_2025/)
+- [GOOGL day trade](https://www.reddit.com/r/wallstreetbets/comments/1nems3r/googl_day_trade/)
+- [Thanks Opendoor](https://www.reddit.com/r/wallstreetbets/comments/1nem88h/thanks_opendoor/)
+- [$OPEN Dat Ass 🫱🍩🫲](https://www.reddit.com/r/wallstreetbets/comments/1nejwwy/open_dat_ass/)
+- [$OPEN Millionaire](https://www.reddit.com/r/wallstreetbets/comments/1nejnun/open_millionaire/)
+- [Shorting Open at 2.70, what could go wrong?](https://www.reddit.com/r/wallstreetbets/comments/1nejj1y/shorting_open_at_270_what_could_go_wrong/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
