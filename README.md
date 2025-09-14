@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I was touched by the Winklevoss twins today](https://www.reddit.com/r/wallstreetbets/comments/1nfhq8k/i_was_touched_by_the_winklevoss_twins_today/)
-- [Full port 0DTE SPX blown account](https://www.reddit.com/r/wallstreetbets/comments/1nfhjrc/full_port_0dte_spx_blown_account/)
-- [Bessent is one of us.](https://www.reddit.com/r/wallstreetbets/comments/1nfgxrf/bessent_is_one_of_us/)
-- [How to lose 15% of your account in one day](https://www.reddit.com/r/wallstreetbets/comments/1nfgthx/how_to_lose_15_of_your_account_in_one_day/)
-- [Made 7k on the NDX/SPX spike at 3pm, didn’t know when to pull out and lost it 🤷🏽‍♂️](https://www.reddit.com/r/wallstreetbets/comments/1nfg05f/made_7k_on_the_ndxspx_spike_at_3pm_didnt_know/)
+- [Goal is 100k by EOY](https://www.reddit.com/r/wallstreetbets/comments/1ngcooq/goal_is_100k_by_eoy/)
+- [Just the beginning](https://www.reddit.com/r/wallstreetbets/comments/1ngajan/just_the_beginning/)
+- [Should I go all in?](https://www.reddit.com/r/wallstreetbets/comments/1ng9rfa/should_i_go_all_in/)
+- [Baby win- 1 year](https://www.reddit.com/r/wallstreetbets/comments/1ng8bn4/baby_win_1_year/)
+- [$APLD AI Hyperscaler deal imminent ⚠️](https://www.reddit.com/r/wallstreetbets/comments/1ng871c/apld_ai_hyperscaler_deal_imminent/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
