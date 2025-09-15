@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Goal is 100k by EOY](https://www.reddit.com/r/wallstreetbets/comments/1ngcooq/goal_is_100k_by_eoy/)
-- [Just the beginning](https://www.reddit.com/r/wallstreetbets/comments/1ngajan/just_the_beginning/)
-- [Should I go all in?](https://www.reddit.com/r/wallstreetbets/comments/1ng9rfa/should_i_go_all_in/)
-- [Baby win- 1 year](https://www.reddit.com/r/wallstreetbets/comments/1ng8bn4/baby_win_1_year/)
-- [$APLD AI Hyperscaler deal imminent ⚠️](https://www.reddit.com/r/wallstreetbets/comments/1ng871c/apld_ai_hyperscaler_deal_imminent/)
+- [ACHR, here we go again.](https://www.reddit.com/r/wallstreetbets/comments/1nh7pb3/achr_here_we_go_again/)
+- [Roller coaster of a year, I don’t touch options.](https://www.reddit.com/r/wallstreetbets/comments/1nh7kxx/roller_coaster_of_a_year_i_dont_touch_options/)
+- [ORCL 600 -&gt; 20k](https://www.reddit.com/r/wallstreetbets/comments/1nh7bxm/orcl_600_20k/)
+- [Please Be Right](https://www.reddit.com/r/wallstreetbets/comments/1nh79zo/please_be_right/)
+- [Blew it up again well never made anything back just drained everything I have sadly](https://www.reddit.com/r/wallstreetbets/comments/1nh6etd/blew_it_up_again_well_never_made_anything_back/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
