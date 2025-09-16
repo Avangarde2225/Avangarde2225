@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ACHR, here we go again.](https://www.reddit.com/r/wallstreetbets/comments/1nh7pb3/achr_here_we_go_again/)
-- [Roller coaster of a year, I don’t touch options.](https://www.reddit.com/r/wallstreetbets/comments/1nh7kxx/roller_coaster_of_a_year_i_dont_touch_options/)
-- [ORCL 600 -&gt; 20k](https://www.reddit.com/r/wallstreetbets/comments/1nh7bxm/orcl_600_20k/)
-- [Please Be Right](https://www.reddit.com/r/wallstreetbets/comments/1nh79zo/please_be_right/)
-- [Blew it up again well never made anything back just drained everything I have sadly](https://www.reddit.com/r/wallstreetbets/comments/1nh6etd/blew_it_up_again_well_never_made_anything_back/)
+- [Casino gains](https://www.reddit.com/r/wallstreetbets/comments/1ni2g9m/casino_gains/)
+- [My best investment yet. I’m](https://www.reddit.com/r/wallstreetbets/comments/1ni1v2h/my_best_investment_yet_im/)
+- [I like the stock.](https://www.reddit.com/r/wallstreetbets/comments/1ni13gt/i_like_the_stock/)
+- [$U in this yet?](https://www.reddit.com/r/wallstreetbets/comments/1ni0si4/u_in_this_yet/)
+- [Nobody watching APLD](https://www.reddit.com/r/wallstreetbets/comments/1nhzrer/nobody_watching_apld/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
