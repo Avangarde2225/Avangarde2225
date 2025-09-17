@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Casino gains](https://www.reddit.com/r/wallstreetbets/comments/1ni2g9m/casino_gains/)
-- [My best investment yet. I’m](https://www.reddit.com/r/wallstreetbets/comments/1ni1v2h/my_best_investment_yet_im/)
-- [I like the stock.](https://www.reddit.com/r/wallstreetbets/comments/1ni13gt/i_like_the_stock/)
-- [$U in this yet?](https://www.reddit.com/r/wallstreetbets/comments/1ni0si4/u_in_this_yet/)
-- [Nobody watching APLD](https://www.reddit.com/r/wallstreetbets/comments/1nhzrer/nobody_watching_apld/)
+- [JPOW’s favorite rapper is .50 percent! &lpar;Save me&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1niy91s/jpows_favorite_rapper_is_50_percent_save_me/)
+- [Higher unemployment is bullish.](https://www.reddit.com/r/wallstreetbets/comments/1niy740/higher_unemployment_is_bullish/)
+- [$MU Micron now on a 10 day green streak! YOLO at $362k now!](https://www.reddit.com/r/wallstreetbets/comments/1niwmgn/mu_micron_now_on_a_10_day_green_streak_yolo_at/)
+- [Michael Saylor please touch my butt](https://www.reddit.com/r/wallstreetbets/comments/1niw6sc/michael_saylor_please_touch_my_butt/)
+- [Bitcoin mining to AI hyperscaling pipeline $GLXY, $RIOT, $CSLK, $CIFR](https://www.reddit.com/r/wallstreetbets/comments/1niuwss/bitcoin_mining_to_ai_hyperscaling_pipeline_glxy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
