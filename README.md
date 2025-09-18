@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [JPOW’s favorite rapper is .50 percent! &lpar;Save me&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1niy91s/jpows_favorite_rapper_is_50_percent_save_me/)
-- [Higher unemployment is bullish.](https://www.reddit.com/r/wallstreetbets/comments/1niy740/higher_unemployment_is_bullish/)
-- [$MU Micron now on a 10 day green streak! YOLO at $362k now!](https://www.reddit.com/r/wallstreetbets/comments/1niwmgn/mu_micron_now_on_a_10_day_green_streak_yolo_at/)
-- [Michael Saylor please touch my butt](https://www.reddit.com/r/wallstreetbets/comments/1niw6sc/michael_saylor_please_touch_my_butt/)
-- [Bitcoin mining to AI hyperscaling pipeline $GLXY, $RIOT, $CSLK, $CIFR](https://www.reddit.com/r/wallstreetbets/comments/1niuwss/bitcoin_mining_to_ai_hyperscaling_pipeline_glxy/)
+- [I think I’m gonna yolo all my capital into nasdaq 100 QQQ puts over the next few days](https://www.reddit.com/r/wallstreetbets/comments/1njt6q7/i_think_im_gonna_yolo_all_my_capital_into_nasdaq/)
+- [Why I didnt buy more….😭](https://www.reddit.com/r/wallstreetbets/comments/1njshbx/why_i_didnt_buy_more/)
+- [$OPEN to the moon!](https://www.reddit.com/r/wallstreetbets/comments/1njs570/open_to_the_moon/)
+- [$OPEN is so SIGMA](https://www.reddit.com/r/wallstreetbets/comments/1njs4eo/open_is_so_sigma/)
+- [$OPEN will be $82 by EOY](https://www.reddit.com/r/wallstreetbets/comments/1njs1yk/open_will_be_82_by_eoy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
