@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I think I’m gonna yolo all my capital into nasdaq 100 QQQ puts over the next few days](https://www.reddit.com/r/wallstreetbets/comments/1njt6q7/i_think_im_gonna_yolo_all_my_capital_into_nasdaq/)
-- [Why I didnt buy more….😭](https://www.reddit.com/r/wallstreetbets/comments/1njshbx/why_i_didnt_buy_more/)
-- [$OPEN to the moon!](https://www.reddit.com/r/wallstreetbets/comments/1njs570/open_to_the_moon/)
-- [$OPEN is so SIGMA](https://www.reddit.com/r/wallstreetbets/comments/1njs4eo/open_is_so_sigma/)
-- [$OPEN will be $82 by EOY](https://www.reddit.com/r/wallstreetbets/comments/1njs1yk/open_will_be_82_by_eoy/)
+- [If you got a DM it is a scam! Reddit is stupid enough to have let someone reddit request &quot;waListreetbets&quot; and they are sending mass DMs](https://www.reddit.com/r/wallstreetbets/comments/1nkok23/if_you_got_a_dm_it_is_a_scam_reddit_is_stupid/)
+- [$10,000 of Intel bought 25 years ago is worth $10,000 today.](https://www.reddit.com/r/wallstreetbets/comments/1nkoh64/10000_of_intel_bought_25_years_ago_is_worth_10000/)
+- [All in on Archer Aviation](https://www.reddit.com/r/wallstreetbets/comments/1nkmj0t/all_in_on_archer_aviation/)
+- [50k YOLO Opendoor Open](https://www.reddit.com/r/wallstreetbets/comments/1nkkxu5/50k_yolo_opendoor_open/)
+- [From GUH…. to Valhalla](https://www.reddit.com/r/wallstreetbets/comments/1nkjwf0/from_guh_to_valhalla/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
