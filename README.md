@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [If you got a DM it is a scam! Reddit is stupid enough to have let someone reddit request &quot;waListreetbets&quot; and they are sending mass DMs](https://www.reddit.com/r/wallstreetbets/comments/1nkok23/if_you_got_a_dm_it_is_a_scam_reddit_is_stupid/)
-- [$10,000 of Intel bought 25 years ago is worth $10,000 today.](https://www.reddit.com/r/wallstreetbets/comments/1nkoh64/10000_of_intel_bought_25_years_ago_is_worth_10000/)
-- [All in on Archer Aviation](https://www.reddit.com/r/wallstreetbets/comments/1nkmj0t/all_in_on_archer_aviation/)
-- [50k YOLO Opendoor Open](https://www.reddit.com/r/wallstreetbets/comments/1nkkxu5/50k_yolo_opendoor_open/)
-- [From GUH…. to Valhalla](https://www.reddit.com/r/wallstreetbets/comments/1nkjwf0/from_guh_to_valhalla/)
+- [Been a GOOGL bull since June, it has paid well.](https://www.reddit.com/r/wallstreetbets/comments/1nlj25g/been_a_googl_bull_since_june_it_has_paid_well/)
+- [380$ -&gt; 100k We finally did it brothers. Such a milestone coming from such a deficit](https://www.reddit.com/r/wallstreetbets/comments/1nlitak/380_100k_we_finally_did_it_brothers_such_a/)
+- [$75k SPY Puts](https://www.reddit.com/r/wallstreetbets/comments/1nlimfh/75k_spy_puts/)
+- [$900k gain since April, $PATH will be my next play for you all to make fun of](https://www.reddit.com/r/wallstreetbets/comments/1nlhwor/900k_gain_since_april_path_will_be_my_next_play/)
+- [ACHR to 20 dollars lets fck. GOOOOO](https://www.reddit.com/r/wallstreetbets/comments/1nlgzva/achr_to_20_dollars_lets_fck_gooooo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
