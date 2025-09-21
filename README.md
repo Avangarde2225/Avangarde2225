@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Been a GOOGL bull since June, it has paid well.](https://www.reddit.com/r/wallstreetbets/comments/1nlj25g/been_a_googl_bull_since_june_it_has_paid_well/)
-- [380$ -&gt; 100k We finally did it brothers. Such a milestone coming from such a deficit](https://www.reddit.com/r/wallstreetbets/comments/1nlitak/380_100k_we_finally_did_it_brothers_such_a/)
-- [$75k SPY Puts](https://www.reddit.com/r/wallstreetbets/comments/1nlimfh/75k_spy_puts/)
-- [$900k gain since April, $PATH will be my next play for you all to make fun of](https://www.reddit.com/r/wallstreetbets/comments/1nlhwor/900k_gain_since_april_path_will_be_my_next_play/)
-- [ACHR to 20 dollars lets fck. GOOOOO](https://www.reddit.com/r/wallstreetbets/comments/1nlgzva/achr_to_20_dollars_lets_fck_gooooo/)
+- [Full port NVO YOLO](https://www.reddit.com/r/wallstreetbets/comments/1nmdx6n/full_port_nvo_yolo/)
+- [50K on SPY put 🌈🐻📉 LFG!!](https://www.reddit.com/r/wallstreetbets/comments/1nmcz4w/50k_on_spy_put_lfg/)
+- [I got bored and gambled on my TFSA. Please save me H1-B Visa](https://www.reddit.com/r/wallstreetbets/comments/1nmcpar/i_got_bored_and_gambled_on_my_tfsa_please_save_me/)
+- [10k spy puts 📉📉📉💎](https://www.reddit.com/r/wallstreetbets/comments/1nm73nz/10k_spy_puts/)
+- [I learned my lesson](https://www.reddit.com/r/wallstreetbets/comments/1nm46mr/i_learned_my_lesson/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
