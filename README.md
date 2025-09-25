@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wendy’s in Japan](https://www.reddit.com/r/wallstreetbets/comments/1no2t8o/wendys_in_japan/)
-- [Before and After the NVDA announcment.](https://www.reddit.com/r/wallstreetbets/comments/1no2sn0/before_and_after_the_nvda_announcment/)
-- [6.5K yolo on HIMS](https://www.reddit.com/r/wallstreetbets/comments/1no29lb/65k_yolo_on_hims/)
-- [Fat F*ck ETF](https://www.reddit.com/r/wallstreetbets/comments/1no1d1p/fat_fck_etf/)
-- [AAPL calls bagholding since May](https://www.reddit.com/r/wallstreetbets/comments/1nnxqti/aapl_calls_bagholding_since_may/)
+- [Alcohol Consumption Down](https://www.reddit.com/r/wallstreetbets/comments/1npr2f1/alcohol_consumption_down/)
+- [Let’s have some fun $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1npqimf/lets_have_some_fun_open/)
+- [I think I fucked up.](https://www.reddit.com/r/wallstreetbets/comments/1npoz8a/i_think_i_fucked_up/)
+- [OPEN, Doubled down like a degenerate](https://www.reddit.com/r/wallstreetbets/comments/1npo2b8/open_doubled_down_like_a_degenerate/)
+- [INTC ❤️](https://www.reddit.com/r/wallstreetbets/comments/1npnlpr/intc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
