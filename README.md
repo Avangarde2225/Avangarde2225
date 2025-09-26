@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Alcohol Consumption Down](https://www.reddit.com/r/wallstreetbets/comments/1npr2f1/alcohol_consumption_down/)
-- [Let’s have some fun $OPEN](https://www.reddit.com/r/wallstreetbets/comments/1npqimf/lets_have_some_fun_open/)
-- [I think I fucked up.](https://www.reddit.com/r/wallstreetbets/comments/1npoz8a/i_think_i_fucked_up/)
-- [OPEN, Doubled down like a degenerate](https://www.reddit.com/r/wallstreetbets/comments/1npo2b8/open_doubled_down_like_a_degenerate/)
-- [INTC ❤️](https://www.reddit.com/r/wallstreetbets/comments/1npnlpr/intc/)
+- [U.S. to impose 100% tariff on branded, patented drugs unless firms build plants locally](https://www.reddit.com/r/wallstreetbets/comments/1nqmfbl/us_to_impose_100_tariff_on_branded_patented_drugs/)
+- [Ladies and Gents. We are so fucking back.](https://www.reddit.com/r/wallstreetbets/comments/1nqm4bv/ladies_and_gents_we_are_so_fucking_back/)
+- [$PATH&#39;s Mammoth Run - Productize Your Workforce Away. 38k in Calls](https://www.reddit.com/r/wallstreetbets/comments/1nql21w/paths_mammoth_run_productize_your_workforce_away/)
+- [I’m not selling. NBIS](https://www.reddit.com/r/wallstreetbets/comments/1nqkqbd/im_not_selling_nbis/)
+- [$750k in NBIS, Nezuko Body Pillow Formation, $150+ PT](https://www.reddit.com/r/wallstreetbets/comments/1nqjmwv/750k_in_nbis_nezuko_body_pillow_formation_150_pt/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
