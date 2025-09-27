@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [U.S. to impose 100% tariff on branded, patented drugs unless firms build plants locally](https://www.reddit.com/r/wallstreetbets/comments/1nqmfbl/us_to_impose_100_tariff_on_branded_patented_drugs/)
-- [Ladies and Gents. We are so fucking back.](https://www.reddit.com/r/wallstreetbets/comments/1nqm4bv/ladies_and_gents_we_are_so_fucking_back/)
-- [$PATH&#39;s Mammoth Run - Productize Your Workforce Away. 38k in Calls](https://www.reddit.com/r/wallstreetbets/comments/1nql21w/paths_mammoth_run_productize_your_workforce_away/)
-- [I’m not selling. NBIS](https://www.reddit.com/r/wallstreetbets/comments/1nqkqbd/im_not_selling_nbis/)
-- [$750k in NBIS, Nezuko Body Pillow Formation, $150+ PT](https://www.reddit.com/r/wallstreetbets/comments/1nqjmwv/750k_in_nbis_nezuko_body_pillow_formation_150_pt/)
+- [Am I cooked?!](https://www.reddit.com/r/wallstreetbets/comments/1nrh3eh/am_i_cooked/)
+- [We&#39;re so back](https://www.reddit.com/r/wallstreetbets/comments/1nrgexm/were_so_back/)
+- [Apple a day keeps the doctor away](https://www.reddit.com/r/wallstreetbets/comments/1nrg8bo/apple_a_day_keeps_the_doctor_away/)
+- [Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1nrfdy6/am_i_cooked/)
+- [Am I cooked? Or am I going to win big? Short 3m puts](https://www.reddit.com/r/wallstreetbets/comments/1nrcrmm/am_i_cooked_or_am_i_going_to_win_big_short_3m_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
