@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Am I cooked?!](https://www.reddit.com/r/wallstreetbets/comments/1nrh3eh/am_i_cooked/)
-- [We&#39;re so back](https://www.reddit.com/r/wallstreetbets/comments/1nrgexm/were_so_back/)
-- [Apple a day keeps the doctor away](https://www.reddit.com/r/wallstreetbets/comments/1nrg8bo/apple_a_day_keeps_the_doctor_away/)
-- [Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1nrfdy6/am_i_cooked/)
-- [Am I cooked? Or am I going to win big? Short 3m puts](https://www.reddit.com/r/wallstreetbets/comments/1nrcrmm/am_i_cooked_or_am_i_going_to_win_big_short_3m_puts/)
+- [Biggest Trade of the year so far Risk $225, Floating profits10.4k](https://www.reddit.com/r/wallstreetbets/comments/1nsagrh/biggest_trade_of_the_year_so_far_risk_225/)
+- [Follow up on my stock market journey](https://www.reddit.com/r/wallstreetbets/comments/1ns8te3/follow_up_on_my_stock_market_journey/)
+- [The AI boom is unsustainable unless tech spending goes ‘parabolic,’ Deutsche Bank warns: ‘This is highly unlikely’](https://www.reddit.com/r/wallstreetbets/comments/1ns7tri/the_ai_boom_is_unsustainable_unless_tech_spending/)
+- [Lost it all shorting QMMM](https://www.reddit.com/r/wallstreetbets/comments/1nryvxg/lost_it_all_shorting_qmmm/)
+- [Upcoming OKLO Catalysts That Could Push It to $200+](https://www.reddit.com/r/wallstreetbets/comments/1nrvnxd/upcoming_oklo_catalysts_that_could_push_it_to_200/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
