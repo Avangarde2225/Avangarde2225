@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Biggest Trade of the year so far Risk $225, Floating profits10.4k](https://www.reddit.com/r/wallstreetbets/comments/1nsagrh/biggest_trade_of_the_year_so_far_risk_225/)
-- [Follow up on my stock market journey](https://www.reddit.com/r/wallstreetbets/comments/1ns8te3/follow_up_on_my_stock_market_journey/)
-- [The AI boom is unsustainable unless tech spending goes ‘parabolic,’ Deutsche Bank warns: ‘This is highly unlikely’](https://www.reddit.com/r/wallstreetbets/comments/1ns7tri/the_ai_boom_is_unsustainable_unless_tech_spending/)
-- [Lost it all shorting QMMM](https://www.reddit.com/r/wallstreetbets/comments/1nryvxg/lost_it_all_shorting_qmmm/)
-- [Upcoming OKLO Catalysts That Could Push It to $200+](https://www.reddit.com/r/wallstreetbets/comments/1nrvnxd/upcoming_oklo_catalysts_that_could_push_it_to_200/)
+- [The oldest stock in my portfolio](https://www.reddit.com/r/wallstreetbets/comments/1nt43iv/the_oldest_stock_in_my_portfolio/)
+- [WBD calls… cooked or do I have a chance??](https://www.reddit.com/r/wallstreetbets/comments/1nt3h7t/wbd_calls_cooked_or_do_i_have_a_chance/)
+- [What Are Your Moves Tomorrow, September 29, 2025](https://www.reddit.com/r/wallstreetbets/comments/1nsxyrq/what_are_your_moves_tomorrow_september_29_2025/)
+- [ORCL YOLO](https://www.reddit.com/r/wallstreetbets/comments/1nsu8sx/orcl_yolo/)
+- [LAC Gains 🚀](https://www.reddit.com/r/wallstreetbets/comments/1nsq5ys/lac_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
