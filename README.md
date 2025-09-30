@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The oldest stock in my portfolio](https://www.reddit.com/r/wallstreetbets/comments/1nt43iv/the_oldest_stock_in_my_portfolio/)
-- [WBD calls… cooked or do I have a chance??](https://www.reddit.com/r/wallstreetbets/comments/1nt3h7t/wbd_calls_cooked_or_do_i_have_a_chance/)
-- [What Are Your Moves Tomorrow, September 29, 2025](https://www.reddit.com/r/wallstreetbets/comments/1nsxyrq/what_are_your_moves_tomorrow_september_29_2025/)
-- [ORCL YOLO](https://www.reddit.com/r/wallstreetbets/comments/1nsu8sx/orcl_yolo/)
-- [LAC Gains 🚀](https://www.reddit.com/r/wallstreetbets/comments/1nsq5ys/lac_gains/)
+- [DD: why i am all in BITF](https://www.reddit.com/r/wallstreetbets/comments/1ntyifa/dd_why_i_am_all_in_bitf/)
+- [UPST LEVERAGED](https://www.reddit.com/r/wallstreetbets/comments/1ntx2cw/upst_leveraged/)
+- [$ABAT $66K -&gt; $226K](https://www.reddit.com/r/wallstreetbets/comments/1ntx1uu/abat_66k_226k/)
+- [Ford - Great American Company for over 120 years](https://www.reddit.com/r/wallstreetbets/comments/1ntvif5/ford_great_american_company_for_over_120_years/)
+- [SOUN 35k yolo](https://www.reddit.com/r/wallstreetbets/comments/1ntvddr/soun_35k_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
