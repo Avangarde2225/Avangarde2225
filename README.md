@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [DD: why i am all in BITF](https://www.reddit.com/r/wallstreetbets/comments/1ntyifa/dd_why_i_am_all_in_bitf/)
-- [UPST LEVERAGED](https://www.reddit.com/r/wallstreetbets/comments/1ntx2cw/upst_leveraged/)
-- [$ABAT $66K -&gt; $226K](https://www.reddit.com/r/wallstreetbets/comments/1ntx1uu/abat_66k_226k/)
-- [Ford - Great American Company for over 120 years](https://www.reddit.com/r/wallstreetbets/comments/1ntvif5/ford_great_american_company_for_over_120_years/)
-- [SOUN 35k yolo](https://www.reddit.com/r/wallstreetbets/comments/1ntvddr/soun_35k_yolo/)
+- [$SNAP - Everyone loves to hate it](https://www.reddit.com/r/wallstreetbets/comments/1nutrag/snap_everyone_loves_to_hate_it/)
+- [$RZLV - YOLO](https://www.reddit.com/r/wallstreetbets/comments/1nuqy4n/rzlv_yolo/)
+- [U.S to Take Stake in Lithium Americas $LAC](https://www.reddit.com/r/wallstreetbets/comments/1nupa7a/us_to_take_stake_in_lithium_americas_lac/)
+- [OPEN Realized Gain. One of my many profitable OPEN gains.](https://www.reddit.com/r/wallstreetbets/comments/1nup5hz/open_realized_gain_one_of_my_many_profitable_open/)
+- [Just did it. Will my NIKE print?](https://www.reddit.com/r/wallstreetbets/comments/1nuozg7/just_did_it_will_my_nike_print/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
