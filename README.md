@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$SNAP - Everyone loves to hate it](https://www.reddit.com/r/wallstreetbets/comments/1nutrag/snap_everyone_loves_to_hate_it/)
-- [$RZLV - YOLO](https://www.reddit.com/r/wallstreetbets/comments/1nuqy4n/rzlv_yolo/)
-- [U.S to Take Stake in Lithium Americas $LAC](https://www.reddit.com/r/wallstreetbets/comments/1nupa7a/us_to_take_stake_in_lithium_americas_lac/)
-- [OPEN Realized Gain. One of my many profitable OPEN gains.](https://www.reddit.com/r/wallstreetbets/comments/1nup5hz/open_realized_gain_one_of_my_many_profitable_open/)
-- [Just did it. Will my NIKE print?](https://www.reddit.com/r/wallstreetbets/comments/1nuozg7/just_did_it_will_my_nike_print/)
+- [The 10 richest people on earth are worth $2.3 trillion combined - as Elon&#39;s net worth soars to $500BN](https://www.reddit.com/r/wallstreetbets/comments/1nvowk5/the_10_richest_people_on_earth_are_worth_23/)
+- [&quot;ASTS to the moon&quot; Jim Cramer on AST SpaceMobile: “Maybe They Have Something, But it Surely isn’t Self-Evident”](https://www.reddit.com/r/wallstreetbets/comments/1nvocnp/asts_to_the_moon_jim_cramer_on_ast_spacemobile/)
+- [On full tilt, going all in on $SPY puts here for no good reason. 10x or bust](https://www.reddit.com/r/wallstreetbets/comments/1nvn75c/on_full_tilt_going_all_in_on_spy_puts_here_for_no/)
+- [Did good for 2 weeks... Lost it all in 2 hours](https://www.reddit.com/r/wallstreetbets/comments/1nvlznv/did_good_for_2_weeks_lost_it_all_in_2_hours/)
+- [Exited too early on a 40x trade…](https://www.reddit.com/r/wallstreetbets/comments/1nvla89/exited_too_early_on_a_40x_trade/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
