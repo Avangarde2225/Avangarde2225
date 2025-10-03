@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The 10 richest people on earth are worth $2.3 trillion combined - as Elon&#39;s net worth soars to $500BN](https://www.reddit.com/r/wallstreetbets/comments/1nvowk5/the_10_richest_people_on_earth_are_worth_23/)
-- [&quot;ASTS to the moon&quot; Jim Cramer on AST SpaceMobile: “Maybe They Have Something, But it Surely isn’t Self-Evident”](https://www.reddit.com/r/wallstreetbets/comments/1nvocnp/asts_to_the_moon_jim_cramer_on_ast_spacemobile/)
-- [On full tilt, going all in on $SPY puts here for no good reason. 10x or bust](https://www.reddit.com/r/wallstreetbets/comments/1nvn75c/on_full_tilt_going_all_in_on_spy_puts_here_for_no/)
-- [Did good for 2 weeks... Lost it all in 2 hours](https://www.reddit.com/r/wallstreetbets/comments/1nvlznv/did_good_for_2_weeks_lost_it_all_in_2_hours/)
-- [Exited too early on a 40x trade…](https://www.reddit.com/r/wallstreetbets/comments/1nvla89/exited_too_early_on_a_40x_trade/)
+- [$104k to $170k in a month](https://www.reddit.com/r/wallstreetbets/comments/1nwkmes/104k_to_170k_in_a_month/)
+- [$GOOGL getting ready to enter PC and operating software space to compete $MSFT $AAPL](https://www.reddit.com/r/wallstreetbets/comments/1nwif2h/googl_getting_ready_to_enter_pc_and_operating/)
+- [Some people had the best day of their lives and some people the worst](https://www.reddit.com/r/wallstreetbets/comments/1nwi7m5/some_people_had_the_best_day_of_their_lives_and/)
+- [Hit Half a Million 🚀](https://www.reddit.com/r/wallstreetbets/comments/1nwhui3/hit_half_a_million/)
+- [It ain’t much](https://www.reddit.com/r/wallstreetbets/comments/1nwgo95/it_aint_much/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
