@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$104k to $170k in a month](https://www.reddit.com/r/wallstreetbets/comments/1nwkmes/104k_to_170k_in_a_month/)
-- [$GOOGL getting ready to enter PC and operating software space to compete $MSFT $AAPL](https://www.reddit.com/r/wallstreetbets/comments/1nwif2h/googl_getting_ready_to_enter_pc_and_operating/)
-- [Some people had the best day of their lives and some people the worst](https://www.reddit.com/r/wallstreetbets/comments/1nwi7m5/some_people_had_the_best_day_of_their_lives_and/)
-- [Hit Half a Million 🚀](https://www.reddit.com/r/wallstreetbets/comments/1nwhui3/hit_half_a_million/)
-- [It ain’t much](https://www.reddit.com/r/wallstreetbets/comments/1nwgo95/it_aint_much/)
+- [Made more this month than my yearly salary!](https://www.reddit.com/r/wallstreetbets/comments/1nxejg8/made_more_this_month_than_my_yearly_salary/)
+- [110% Asts gain.](https://www.reddit.com/r/wallstreetbets/comments/1nxeex8/110_asts_gain/)
+- [275% Gain](https://www.reddit.com/r/wallstreetbets/comments/1nxd9xi/275_gain/)
+- [PLUG yolo](https://www.reddit.com/r/wallstreetbets/comments/1nxbdi0/plug_yolo/)
+- [Full Ported IREN Sub $9](https://www.reddit.com/r/wallstreetbets/comments/1nxazjn/full_ported_iren_sub_9/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
