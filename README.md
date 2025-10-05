@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Made more this month than my yearly salary!](https://www.reddit.com/r/wallstreetbets/comments/1nxejg8/made_more_this_month_than_my_yearly_salary/)
-- [110% Asts gain.](https://www.reddit.com/r/wallstreetbets/comments/1nxeex8/110_asts_gain/)
-- [275% Gain](https://www.reddit.com/r/wallstreetbets/comments/1nxd9xi/275_gain/)
-- [PLUG yolo](https://www.reddit.com/r/wallstreetbets/comments/1nxbdi0/plug_yolo/)
-- [Full Ported IREN Sub $9](https://www.reddit.com/r/wallstreetbets/comments/1nxazjn/full_ported_iren_sub_9/)
+- [I&#39;m just gonna buy BF6 with this](https://www.reddit.com/r/wallstreetbets/comments/1ny8f7q/im_just_gonna_buy_bf6_with_this/)
+- [When the shoe fits...](https://www.reddit.com/r/wallstreetbets/comments/1ny7brl/when_the_shoe_fits/)
+- [Why Redwire is my next play…](https://www.reddit.com/r/wallstreetbets/comments/1ny27ev/why_redwire_is_my_next_play/)
+- [Long on $RDDT, 4xed my positions after the recent drop](https://www.reddit.com/r/wallstreetbets/comments/1ny1vem/long_on_rddt_4xed_my_positions_after_the_recent/)
+- [Strong Year - Continued](https://www.reddit.com/r/wallstreetbets/comments/1ny0j05/strong_year_continued/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
