@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m just gonna buy BF6 with this](https://www.reddit.com/r/wallstreetbets/comments/1ny8f7q/im_just_gonna_buy_bf6_with_this/)
-- [When the shoe fits...](https://www.reddit.com/r/wallstreetbets/comments/1ny7brl/when_the_shoe_fits/)
-- [Why Redwire is my next play…](https://www.reddit.com/r/wallstreetbets/comments/1ny27ev/why_redwire_is_my_next_play/)
-- [Long on $RDDT, 4xed my positions after the recent drop](https://www.reddit.com/r/wallstreetbets/comments/1ny1vem/long_on_rddt_4xed_my_positions_after_the_recent/)
-- [Strong Year - Continued](https://www.reddit.com/r/wallstreetbets/comments/1ny0j05/strong_year_continued/)
+- [Absci &lpar;ABSI&rpar; - AI Biopharma Tech Hidden Gem](https://www.reddit.com/r/wallstreetbets/comments/1nz4pkd/absci_absi_ai_biopharma_tech_hidden_gem/)
+- [lost my life savings at 20 years old](https://www.reddit.com/r/wallstreetbets/comments/1nz4mp4/lost_my_life_savings_at_20_years_old/)
+- [Constellation Brands](https://www.reddit.com/r/wallstreetbets/comments/1nz1a6l/constellation_brands/)
+- [What Are Your Moves Tomorrow, October 06, 2025](https://www.reddit.com/r/wallstreetbets/comments/1nyybhd/what_are_your_moves_tomorrow_october_06_2025/)
+- [10X’d my Roth this year](https://www.reddit.com/r/wallstreetbets/comments/1nyyb37/10xd_my_roth_this_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
