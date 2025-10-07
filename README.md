@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Absci &lpar;ABSI&rpar; - AI Biopharma Tech Hidden Gem](https://www.reddit.com/r/wallstreetbets/comments/1nz4pkd/absci_absi_ai_biopharma_tech_hidden_gem/)
-- [lost my life savings at 20 years old](https://www.reddit.com/r/wallstreetbets/comments/1nz4mp4/lost_my_life_savings_at_20_years_old/)
-- [Constellation Brands](https://www.reddit.com/r/wallstreetbets/comments/1nz1a6l/constellation_brands/)
-- [What Are Your Moves Tomorrow, October 06, 2025](https://www.reddit.com/r/wallstreetbets/comments/1nyybhd/what_are_your_moves_tomorrow_october_06_2025/)
-- [10X’d my Roth this year](https://www.reddit.com/r/wallstreetbets/comments/1nyyb37/10xd_my_roth_this_year/)
+- [The only god I need is Lisa Su. $394K Gain. $AMD](https://www.reddit.com/r/wallstreetbets/comments/1nzyd63/the_only_god_i_need_is_lisa_su_394k_gain_amd/)
+- [OpenAI, NVIDIA, and AMD, The Tech Triangle That’s Driving the Market](https://www.reddit.com/r/wallstreetbets/comments/1nzx2hv/openai_nvidia_and_amd_the_tech_triangle_thats/)
+- [Dug myself out of a gaping hole](https://www.reddit.com/r/wallstreetbets/comments/1nzu87f/dug_myself_out_of_a_gaping_hole/)
+- [What Are Your Moves Tomorrow, October 07, 2025](https://www.reddit.com/r/wallstreetbets/comments/1nztj4l/what_are_your_moves_tomorrow_october_07_2025/)
+- [AppLovin stock tanks on report SEC is investigating company over data-collection practices](https://www.reddit.com/r/wallstreetbets/comments/1nzthmo/applovin_stock_tanks_on_report_sec_is/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
