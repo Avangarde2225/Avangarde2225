@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The only god I need is Lisa Su. $394K Gain. $AMD](https://www.reddit.com/r/wallstreetbets/comments/1nzyd63/the_only_god_i_need_is_lisa_su_394k_gain_amd/)
-- [OpenAI, NVIDIA, and AMD, The Tech Triangle That’s Driving the Market](https://www.reddit.com/r/wallstreetbets/comments/1nzx2hv/openai_nvidia_and_amd_the_tech_triangle_thats/)
-- [Dug myself out of a gaping hole](https://www.reddit.com/r/wallstreetbets/comments/1nzu87f/dug_myself_out_of_a_gaping_hole/)
-- [What Are Your Moves Tomorrow, October 07, 2025](https://www.reddit.com/r/wallstreetbets/comments/1nztj4l/what_are_your_moves_tomorrow_october_07_2025/)
-- [AppLovin stock tanks on report SEC is investigating company over data-collection practices](https://www.reddit.com/r/wallstreetbets/comments/1nzthmo/applovin_stock_tanks_on_report_sec_is/)
+- [Why I Think Chemours Could be the Next Big Mineral Play](https://www.reddit.com/r/wallstreetbets/comments/1o0v0k4/why_i_think_chemours_could_be_the_next_big/)
+- [$POET – POET Technologies](https://www.reddit.com/r/wallstreetbets/comments/1o0trnm/poet_poet_technologies/)
+- [YOLO BURU](https://www.reddit.com/r/wallstreetbets/comments/1o0tdy7/yolo_buru/)
+- [I think I understand it now](https://www.reddit.com/r/wallstreetbets/comments/1o0scgd/i_think_i_understand_it_now/)
+- [Sweet words of POET](https://www.reddit.com/r/wallstreetbets/comments/1o0s6bw/sweet_words_of_poet/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
