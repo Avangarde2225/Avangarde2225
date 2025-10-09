@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why I Think Chemours Could be the Next Big Mineral Play](https://www.reddit.com/r/wallstreetbets/comments/1o0v0k4/why_i_think_chemours_could_be_the_next_big/)
-- [$POET – POET Technologies](https://www.reddit.com/r/wallstreetbets/comments/1o0trnm/poet_poet_technologies/)
-- [YOLO BURU](https://www.reddit.com/r/wallstreetbets/comments/1o0tdy7/yolo_buru/)
-- [I think I understand it now](https://www.reddit.com/r/wallstreetbets/comments/1o0scgd/i_think_i_understand_it_now/)
-- [Sweet words of POET](https://www.reddit.com/r/wallstreetbets/comments/1o0s6bw/sweet_words_of_poet/)
+- [5 years of only buying / selling AAL](https://www.reddit.com/r/wallstreetbets/comments/1o1qv78/5_years_of_only_buying_selling_aal/)
+- [“Be not afraid of greatness. Some are born great, some achieve greatness, and others have greatness thrust upon them.”](https://www.reddit.com/r/wallstreetbets/comments/1o1qdk5/be_not_afraid_of_greatness_some_are_born_great/)
+- [GLD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1o1pdnj/gld_yolo/)
+- [$UNH &lpar;u need help&rpar; and other BS tickers.](https://www.reddit.com/r/wallstreetbets/comments/1o1osf0/unh_u_need_help_and_other_bs_tickers/)
+- [$BTBT $45k yolo reek](https://www.reddit.com/r/wallstreetbets/comments/1o1n71r/btbt_45k_yolo_reek/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
