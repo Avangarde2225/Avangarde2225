@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [5 years of only buying / selling AAL](https://www.reddit.com/r/wallstreetbets/comments/1o1qv78/5_years_of_only_buying_selling_aal/)
-- [“Be not afraid of greatness. Some are born great, some achieve greatness, and others have greatness thrust upon them.”](https://www.reddit.com/r/wallstreetbets/comments/1o1qdk5/be_not_afraid_of_greatness_some_are_born_great/)
-- [GLD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1o1pdnj/gld_yolo/)
-- [$UNH &lpar;u need help&rpar; and other BS tickers.](https://www.reddit.com/r/wallstreetbets/comments/1o1osf0/unh_u_need_help_and_other_bs_tickers/)
-- [$BTBT $45k yolo reek](https://www.reddit.com/r/wallstreetbets/comments/1o1n71r/btbt_45k_yolo_reek/)
+- [Amazon 📈](https://www.reddit.com/r/wallstreetbets/comments/1o2kd58/amazon/)
+- [Hive yolo gains so far!](https://www.reddit.com/r/wallstreetbets/comments/1o2it57/hive_yolo_gains_so_far/)
+- [$PATH Gains](https://www.reddit.com/r/wallstreetbets/comments/1o2i2zm/path_gains/)
+- [$PATH 20K GAIN](https://www.reddit.com/r/wallstreetbets/comments/1o2gdf3/path_20k_gain/)
+- [Bought my first CALLS!](https://www.reddit.com/r/wallstreetbets/comments/1o2gch2/bought_my_first_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
