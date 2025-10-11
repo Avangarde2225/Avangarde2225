@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Amazon 📈](https://www.reddit.com/r/wallstreetbets/comments/1o2kd58/amazon/)
-- [Hive yolo gains so far!](https://www.reddit.com/r/wallstreetbets/comments/1o2it57/hive_yolo_gains_so_far/)
-- [$PATH Gains](https://www.reddit.com/r/wallstreetbets/comments/1o2i2zm/path_gains/)
-- [$PATH 20K GAIN](https://www.reddit.com/r/wallstreetbets/comments/1o2gdf3/path_20k_gain/)
-- [Bought my first CALLS!](https://www.reddit.com/r/wallstreetbets/comments/1o2gch2/bought_my_first_calls/)
+- [little 30 bagger to jerk off to for the weekend $936 -&gt; 28k+](https://www.reddit.com/r/wallstreetbets/comments/1o3g9mc/little_30_bagger_to_jerk_off_to_for_the_weekend/)
+- [Hang in there boys](https://www.reddit.com/r/wallstreetbets/comments/1o3fxfu/hang_in_there_boys/)
+- [~$1.5k risk to almost $200k in gains on 0 DTE SPY PUTs](https://www.reddit.com/r/wallstreetbets/comments/1o3fr5z/15k_risk_to_almost_200k_in_gains_on_0_dte_spy_puts/)
+- [Do I answer or fly to Mexico?](https://www.reddit.com/r/wallstreetbets/comments/1o3fot5/do_i_answer_or_fly_to_mexico/)
+- [SPY and crypto today](https://www.reddit.com/r/wallstreetbets/comments/1o3fkii/spy_and_crypto_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
