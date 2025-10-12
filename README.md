@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [little 30 bagger to jerk off to for the weekend $936 -&gt; 28k+](https://www.reddit.com/r/wallstreetbets/comments/1o3g9mc/little_30_bagger_to_jerk_off_to_for_the_weekend/)
-- [Hang in there boys](https://www.reddit.com/r/wallstreetbets/comments/1o3fxfu/hang_in_there_boys/)
-- [~$1.5k risk to almost $200k in gains on 0 DTE SPY PUTs](https://www.reddit.com/r/wallstreetbets/comments/1o3fr5z/15k_risk_to_almost_200k_in_gains_on_0_dte_spy_puts/)
-- [Do I answer or fly to Mexico?](https://www.reddit.com/r/wallstreetbets/comments/1o3fot5/do_i_answer_or_fly_to_mexico/)
-- [SPY and crypto today](https://www.reddit.com/r/wallstreetbets/comments/1o3fkii/spy_and_crypto_today/)
+- [Check-in](https://www.reddit.com/r/wallstreetbets/comments/1o49bj9/checkin/)
+- [Shit](https://www.reddit.com/r/wallstreetbets/comments/1o48gy1/shit/)
+- [How this week unfolds IMO](https://www.reddit.com/r/wallstreetbets/comments/1o45z4a/how_this_week_unfolds_imo/)
+- [Avoided the crash and made 40K the same day](https://www.reddit.com/r/wallstreetbets/comments/1o45927/avoided_the_crash_and_made_40k_the_same_day/)
+- [$1400&gt;$47000](https://www.reddit.com/r/wallstreetbets/comments/1o449ly/140047000/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
