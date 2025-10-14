@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Check-in](https://www.reddit.com/r/wallstreetbets/comments/1o49bj9/checkin/)
-- [Shit](https://www.reddit.com/r/wallstreetbets/comments/1o48gy1/shit/)
-- [How this week unfolds IMO](https://www.reddit.com/r/wallstreetbets/comments/1o45z4a/how_this_week_unfolds_imo/)
-- [Avoided the crash and made 40K the same day](https://www.reddit.com/r/wallstreetbets/comments/1o45927/avoided_the_crash_and_made_40k_the_same_day/)
-- [$1400&gt;$47000](https://www.reddit.com/r/wallstreetbets/comments/1o449ly/140047000/)
+- [“But it’s not profitable yet!” Anyways, $23K on OKLO](https://www.reddit.com/r/wallstreetbets/comments/1o5yw5x/but_its_not_profitable_yet_anyways_23k_on_oklo/)
+- [What Are Your Moves Tomorrow, October 14, 2025](https://www.reddit.com/r/wallstreetbets/comments/1o5udo3/what_are_your_moves_tomorrow_october_14_2025/)
+- [My retirement plan is Doubling down on $BULL $15 leaps 💀](https://www.reddit.com/r/wallstreetbets/comments/1o5u7mr/my_retirement_plan_is_doubling_down_on_bull_15/)
+- [Quite the year](https://www.reddit.com/r/wallstreetbets/comments/1o5tx1m/quite_the_year/)
+- [My wife took me back after I doubled our life’s savings in 6 months](https://www.reddit.com/r/wallstreetbets/comments/1o5swmc/my_wife_took_me_back_after_i_doubled_our_lifes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
