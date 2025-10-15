@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [“But it’s not profitable yet!” Anyways, $23K on OKLO](https://www.reddit.com/r/wallstreetbets/comments/1o5yw5x/but_its_not_profitable_yet_anyways_23k_on_oklo/)
-- [What Are Your Moves Tomorrow, October 14, 2025](https://www.reddit.com/r/wallstreetbets/comments/1o5udo3/what_are_your_moves_tomorrow_october_14_2025/)
-- [My retirement plan is Doubling down on $BULL $15 leaps 💀](https://www.reddit.com/r/wallstreetbets/comments/1o5u7mr/my_retirement_plan_is_doubling_down_on_bull_15/)
-- [Quite the year](https://www.reddit.com/r/wallstreetbets/comments/1o5tx1m/quite_the_year/)
-- [My wife took me back after I doubled our life’s savings in 6 months](https://www.reddit.com/r/wallstreetbets/comments/1o5swmc/my_wife_took_me_back_after_i_doubled_our_lifes/)
+- [Bing Bong - ABAT Gains 🔋](https://www.reddit.com/r/wallstreetbets/comments/1o6vubn/bing_bong_abat_gains/)
+- [Is Cooking Oil trade the new Rare Metal trade? &lpar;ADM&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1o6t9dk/is_cooking_oil_trade_the_new_rare_metal_trade_adm/)
+- [Warren Buffet the sleeping giant](https://www.reddit.com/r/wallstreetbets/comments/1o6t3qb/warren_buffet_the_sleeping_giant/)
+- [Full port in SPY calls](https://www.reddit.com/r/wallstreetbets/comments/1o6slky/full_port_in_spy_calls/)
+- [Fell to 10k and rose to 60k on smae day! Perfect example of YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1o6qvsk/fell_to_10k_and_rose_to_60k_on_smae_day_perfect/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
