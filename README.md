@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bing Bong - ABAT Gains 🔋](https://www.reddit.com/r/wallstreetbets/comments/1o6vubn/bing_bong_abat_gains/)
-- [Is Cooking Oil trade the new Rare Metal trade? &lpar;ADM&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1o6t9dk/is_cooking_oil_trade_the_new_rare_metal_trade_adm/)
-- [Warren Buffet the sleeping giant](https://www.reddit.com/r/wallstreetbets/comments/1o6t3qb/warren_buffet_the_sleeping_giant/)
-- [Full port in SPY calls](https://www.reddit.com/r/wallstreetbets/comments/1o6slky/full_port_in_spy_calls/)
-- [Fell to 10k and rose to 60k on smae day! Perfect example of YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1o6qvsk/fell_to_10k_and_rose_to_60k_on_smae_day_perfect/)
+- [Open ai will allow porn](https://www.reddit.com/r/wallstreetbets/comments/1o7s36g/open_ai_will_allow_porn/)
+- [Up 1200% on ASTS](https://www.reddit.com/r/wallstreetbets/comments/1o7qv3k/up_1200_on_asts/)
+- [ABAT LOSS](https://www.reddit.com/r/wallstreetbets/comments/1o7q0yo/abat_loss/)
+- [All in $BULL](https://www.reddit.com/r/wallstreetbets/comments/1o7p8fb/all_in_bull/)
+- [RIP $ABAT](https://www.reddit.com/r/wallstreetbets/comments/1o7nqym/rip_abat/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
