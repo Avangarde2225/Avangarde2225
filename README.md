@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Open ai will allow porn](https://www.reddit.com/r/wallstreetbets/comments/1o7s36g/open_ai_will_allow_porn/)
-- [Up 1200% on ASTS](https://www.reddit.com/r/wallstreetbets/comments/1o7qv3k/up_1200_on_asts/)
-- [ABAT LOSS](https://www.reddit.com/r/wallstreetbets/comments/1o7q0yo/abat_loss/)
-- [All in $BULL](https://www.reddit.com/r/wallstreetbets/comments/1o7p8fb/all_in_bull/)
-- [RIP $ABAT](https://www.reddit.com/r/wallstreetbets/comments/1o7nqym/rip_abat/)
+- [Down $200k +](https://www.reddit.com/r/wallstreetbets/comments/1o8mqyv/down_200k/)
+- [Which one of you regards is this?](https://www.reddit.com/r/wallstreetbets/comments/1o8m3to/which_one_of_you_regards_is_this/)
+- [This bad](https://www.reddit.com/r/wallstreetbets/comments/1o8lq88/this_bad/)
+- [GLD Calls Printed 300%](https://www.reddit.com/r/wallstreetbets/comments/1o8jzhp/gld_calls_printed_300/)
+- [gold mining companies printed](https://www.reddit.com/r/wallstreetbets/comments/1o8jqms/gold_mining_companies_printed/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
