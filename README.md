@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Down $200k +](https://www.reddit.com/r/wallstreetbets/comments/1o8mqyv/down_200k/)
-- [Which one of you regards is this?](https://www.reddit.com/r/wallstreetbets/comments/1o8m3to/which_one_of_you_regards_is_this/)
-- [This bad](https://www.reddit.com/r/wallstreetbets/comments/1o8lq88/this_bad/)
-- [GLD Calls Printed 300%](https://www.reddit.com/r/wallstreetbets/comments/1o8jzhp/gld_calls_printed_300/)
-- [gold mining companies printed](https://www.reddit.com/r/wallstreetbets/comments/1o8jqms/gold_mining_companies_printed/)
+- [How to not panic sell and hold on to your conviction](https://www.reddit.com/r/wallstreetbets/comments/1o9hin7/how_to_not_panic_sell_and_hold_on_to_your/)
+- [47K% gain](https://www.reddit.com/r/wallstreetbets/comments/1o9gess/47k_gain/)
+- [I am not a virgin anymore](https://www.reddit.com/r/wallstreetbets/comments/1o9fn5a/i_am_not_a_virgin_anymore/)
+- [From 220% profit to -98% in a Single Day](https://www.reddit.com/r/wallstreetbets/comments/1o9f4an/from_220_profit_to_98_in_a_single_day/)
+- [$GAP - Position update, added ~1.5mil of shares &amp; leaps](https://www.reddit.com/r/wallstreetbets/comments/1o9cz7p/gap_position_update_added_15mil_of_shares_leaps/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
