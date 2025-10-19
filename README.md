@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How to not panic sell and hold on to your conviction](https://www.reddit.com/r/wallstreetbets/comments/1o9hin7/how_to_not_panic_sell_and_hold_on_to_your/)
-- [47K% gain](https://www.reddit.com/r/wallstreetbets/comments/1o9gess/47k_gain/)
-- [I am not a virgin anymore](https://www.reddit.com/r/wallstreetbets/comments/1o9fn5a/i_am_not_a_virgin_anymore/)
-- [From 220% profit to -98% in a Single Day](https://www.reddit.com/r/wallstreetbets/comments/1o9f4an/from_220_profit_to_98_in_a_single_day/)
-- [$GAP - Position update, added ~1.5mil of shares &amp; leaps](https://www.reddit.com/r/wallstreetbets/comments/1o9cz7p/gap_position_update_added_15mil_of_shares_leaps/)
+- [Fu*k my chungus life](https://www.reddit.com/r/wallstreetbets/comments/1oac5w9/fuk_my_chungus_life/)
+- [Imma blow my shit smoove off 😭](https://www.reddit.com/r/wallstreetbets/comments/1oabo1s/imma_blow_my_shit_smoove_off/)
+- [Did I win?](https://www.reddit.com/r/wallstreetbets/comments/1oabbdv/did_i_win/)
+- [Should I js give up](https://www.reddit.com/r/wallstreetbets/comments/1oaa6s4/should_i_js_give_up/)
+- [SOUN 50k yolo. Voice AI is the future](https://www.reddit.com/r/wallstreetbets/comments/1oa9dnr/soun_50k_yolo_voice_ai_is_the_future/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
