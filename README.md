@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fu*k my chungus life](https://www.reddit.com/r/wallstreetbets/comments/1oac5w9/fuk_my_chungus_life/)
-- [Imma blow my shit smoove off 😭](https://www.reddit.com/r/wallstreetbets/comments/1oabo1s/imma_blow_my_shit_smoove_off/)
-- [Did I win?](https://www.reddit.com/r/wallstreetbets/comments/1oabbdv/did_i_win/)
-- [Should I js give up](https://www.reddit.com/r/wallstreetbets/comments/1oaa6s4/should_i_js_give_up/)
-- [SOUN 50k yolo. Voice AI is the future](https://www.reddit.com/r/wallstreetbets/comments/1oa9dnr/soun_50k_yolo_voice_ai_is_the_future/)
+- [The dip in Scholar Holding &lpar;SRRK&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ob5l86/the_dip_in_scholar_holding_srrk/)
+- [S&amp;P 100 Mean Reversion](https://www.reddit.com/r/wallstreetbets/comments/1ob3l1r/sp_100_mean_reversion/)
+- [What Are Your Moves Tomorrow, October 20, 2025](https://www.reddit.com/r/wallstreetbets/comments/1oazehf/what_are_your_moves_tomorrow_october_20_2025/)
+- [GOLD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1oawju6/gold_yolo/)
+- [Should I diamond hands these $NOK calls through earnings?](https://www.reddit.com/r/wallstreetbets/comments/1oaurxn/should_i_diamond_hands_these_nok_calls_through/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
