@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The dip in Scholar Holding &lpar;SRRK&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ob5l86/the_dip_in_scholar_holding_srrk/)
-- [S&amp;P 100 Mean Reversion](https://www.reddit.com/r/wallstreetbets/comments/1ob3l1r/sp_100_mean_reversion/)
-- [What Are Your Moves Tomorrow, October 20, 2025](https://www.reddit.com/r/wallstreetbets/comments/1oazehf/what_are_your_moves_tomorrow_october_20_2025/)
-- [GOLD YOLO](https://www.reddit.com/r/wallstreetbets/comments/1oawju6/gold_yolo/)
-- [Should I diamond hands these $NOK calls through earnings?](https://www.reddit.com/r/wallstreetbets/comments/1oaurxn/should_i_diamond_hands_these_nok_calls_through/)
+- [Biggest win to date boys](https://www.reddit.com/r/wallstreetbets/comments/1obynd9/biggest_win_to_date_boys/)
+- [In fact, sometimes what glitters is gold.](https://www.reddit.com/r/wallstreetbets/comments/1obxe75/in_fact_sometimes_what_glitters_is_gold/)
+- [Golden 🥇and Silver 🥈hands](https://www.reddit.com/r/wallstreetbets/comments/1obwy8t/golden_and_silver_hands/)
+- [Tim Apple saved my calls and I paper handed](https://www.reddit.com/r/wallstreetbets/comments/1obwa0p/tim_apple_saved_my_calls_and_i_paper_handed/)
+- [Bullish on SBET](https://www.reddit.com/r/wallstreetbets/comments/1obv5ob/bullish_on_sbet/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
