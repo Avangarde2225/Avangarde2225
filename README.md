@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BYND: almost 3,000% gain. $95 to $2,500](https://www.reddit.com/r/wallstreetbets/comments/1ocu3jm/bynd_almost_3000_gain_95_to_2500/)
-- [Cannabis DD &lpar;Massive Potential&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1octacp/cannabis_dd_massive_potential/)
-- [Fuck you SILVER](https://www.reddit.com/r/wallstreetbets/comments/1oct4b0/fuck_you_silver/)
-- [Silver and Gold loss porn](https://www.reddit.com/r/wallstreetbets/comments/1ocsqpc/silver_and_gold_loss_porn/)
-- [I give up.](https://www.reddit.com/r/wallstreetbets/comments/1ocrlpj/i_give_up/)
+- [Not selling until it reaches double digits. To Infinity and BEYOND 🚀🌕🍆](https://www.reddit.com/r/wallstreetbets/comments/1odolil/not_selling_until_it_reaches_double_digits_to/)
+- [Thought I was done but I’m back in the game boys!](https://www.reddit.com/r/wallstreetbets/comments/1odnn1z/thought_i_was_done_but_im_back_in_the_game_boys/)
+- [YOLO! Holding BYND Calls, equivalent to 188,500 shares. I&#39;m not quitting!](https://www.reddit.com/r/wallstreetbets/comments/1odn3xn/yolo_holding_bynd_calls_equivalent_to_188500/)
+- [Not selling sht, bought for ~ $138k](https://www.reddit.com/r/wallstreetbets/comments/1odmqs9/not_selling_sht_bought_for_138k/)
+- [Thought I was different](https://www.reddit.com/r/wallstreetbets/comments/1odiz9g/thought_i_was_different/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
