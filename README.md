@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It works, until it catastrophically doesn’t](https://www.reddit.com/r/wallstreetbets/comments/1oeje0d/it_works_until_it_catastrophically_doesnt/)
-- [Nana single-handedly saving my account from the grave. All hail Nana!](https://www.reddit.com/r/wallstreetbets/comments/1oeii9o/nana_singlehandedly_saving_my_account_from_the/)
-- [QBTS short play](https://www.reddit.com/r/wallstreetbets/comments/1oeib7x/qbts_short_play/)
-- [Think I’ve only ever been +4k for like two or three days. But yeah let’s go intel.](https://www.reddit.com/r/wallstreetbets/comments/1oedvyl/think_ive_only_ever_been_4k_for_like_two_or_three/)
-- [Finally… Gain Porn](https://www.reddit.com/r/wallstreetbets/comments/1oedvny/finally_gain_porn/)
+- [Bought 16,280 shares of BYND](https://www.reddit.com/r/wallstreetbets/comments/1ofdk16/bought_16280_shares_of_bynd/)
+- [That’s it I’m shorting TSLA with 150% of my money](https://www.reddit.com/r/wallstreetbets/comments/1ofbhjs/thats_it_im_shorting_tsla_with_150_of_my_money/)
+- [To infinity and BYND!](https://www.reddit.com/r/wallstreetbets/comments/1of9wy3/to_infinity_and_bynd/)
+- [You asked for it, no turning back now](https://www.reddit.com/r/wallstreetbets/comments/1of9ppt/you_asked_for_it_no_turning_back_now/)
+- [GOOGL earnings YOLO](https://www.reddit.com/r/wallstreetbets/comments/1of9gpc/googl_earnings_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
