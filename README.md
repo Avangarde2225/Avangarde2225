@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought 16,280 shares of BYND](https://www.reddit.com/r/wallstreetbets/comments/1ofdk16/bought_16280_shares_of_bynd/)
-- [That’s it I’m shorting TSLA with 150% of my money](https://www.reddit.com/r/wallstreetbets/comments/1ofbhjs/thats_it_im_shorting_tsla_with_150_of_my_money/)
-- [To infinity and BYND!](https://www.reddit.com/r/wallstreetbets/comments/1of9wy3/to_infinity_and_bynd/)
-- [You asked for it, no turning back now](https://www.reddit.com/r/wallstreetbets/comments/1of9ppt/you_asked_for_it_no_turning_back_now/)
-- [GOOGL earnings YOLO](https://www.reddit.com/r/wallstreetbets/comments/1of9gpc/googl_earnings_yolo/)
+- [I CANT SLEEP](https://www.reddit.com/r/wallstreetbets/comments/1og5zdr/i_cant_sleep/)
+- [All in short XAUUSD GOLD monday opening](https://www.reddit.com/r/wallstreetbets/comments/1og2jrz/all_in_short_xauusd_gold_monday_opening/)
+- [AMZN Earnings Pop Incoming](https://www.reddit.com/r/wallstreetbets/comments/1og2ck7/amzn_earnings_pop_incoming/)
+- [$51K Gold/Crypto Futures Loss](https://www.reddit.com/r/wallstreetbets/comments/1og1v78/51k_goldcrypto_futures_loss/)
+- [Grindr got me HARD: Top Shareholders Propose $18 Per-Share Take-Private Deal](https://www.reddit.com/r/wallstreetbets/comments/1og0g55/grindr_got_me_hard_top_shareholders_propose_18/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
