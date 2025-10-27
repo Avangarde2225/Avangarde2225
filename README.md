@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I CANT SLEEP](https://www.reddit.com/r/wallstreetbets/comments/1og5zdr/i_cant_sleep/)
-- [All in short XAUUSD GOLD monday opening](https://www.reddit.com/r/wallstreetbets/comments/1og2jrz/all_in_short_xauusd_gold_monday_opening/)
-- [AMZN Earnings Pop Incoming](https://www.reddit.com/r/wallstreetbets/comments/1og2ck7/amzn_earnings_pop_incoming/)
-- [$51K Gold/Crypto Futures Loss](https://www.reddit.com/r/wallstreetbets/comments/1og1v78/51k_goldcrypto_futures_loss/)
-- [Grindr got me HARD: Top Shareholders Propose $18 Per-Share Take-Private Deal](https://www.reddit.com/r/wallstreetbets/comments/1og0g55/grindr_got_me_hard_top_shareholders_propose_18/)
+- [$POET YOLO](https://www.reddit.com/r/wallstreetbets/comments/1oh0rom/poet_yolo/)
+- [My Best Month yet. NO Options. Been trading a year and a half.](https://www.reddit.com/r/wallstreetbets/comments/1ogzxxo/my_best_month_yet_no_options_been_trading_a_year/)
+- [things bers say](https://www.reddit.com/r/wallstreetbets/comments/1ogz5z9/things_bers_say/)
+- [GOOGL has treated me well.](https://www.reddit.com/r/wallstreetbets/comments/1ogwvcc/googl_has_treated_me_well/)
+- [What Are Your Moves Tomorrow, October 27, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ogua0n/what_are_your_moves_tomorrow_october_27_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
