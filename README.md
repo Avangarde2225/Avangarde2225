@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$POET YOLO](https://www.reddit.com/r/wallstreetbets/comments/1oh0rom/poet_yolo/)
-- [My Best Month yet. NO Options. Been trading a year and a half.](https://www.reddit.com/r/wallstreetbets/comments/1ogzxxo/my_best_month_yet_no_options_been_trading_a_year/)
-- [things bers say](https://www.reddit.com/r/wallstreetbets/comments/1ogz5z9/things_bers_say/)
-- [GOOGL has treated me well.](https://www.reddit.com/r/wallstreetbets/comments/1ogwvcc/googl_has_treated_me_well/)
-- [What Are Your Moves Tomorrow, October 27, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ogua0n/what_are_your_moves_tomorrow_october_27_2025/)
+- [SOFLY?! I’m either buying a Lambo or buying a Lambo after earnings.](https://www.reddit.com/r/wallstreetbets/comments/1ohssyi/sofly_im_either_buying_a_lambo_or_buying_a_lambo/)
+- [UNH Earnings Bet - 125k in Stocks/Options](https://www.reddit.com/r/wallstreetbets/comments/1ohsmsx/unh_earnings_bet_125k_in_stocksoptions/)
+- [Is this real?](https://www.reddit.com/r/wallstreetbets/comments/1ohshg4/is_this_real/)
+- [Turns out my dumbass might be a genius](https://www.reddit.com/r/wallstreetbets/comments/1ohrse7/turns_out_my_dumbass_might_be_a_genius/)
+- [Gain to 1650% from 1550%](https://www.reddit.com/r/wallstreetbets/comments/1ohptp2/gain_to_1650_from_1550/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
