@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SOFLY?! I’m either buying a Lambo or buying a Lambo after earnings.](https://www.reddit.com/r/wallstreetbets/comments/1ohssyi/sofly_im_either_buying_a_lambo_or_buying_a_lambo/)
-- [UNH Earnings Bet - 125k in Stocks/Options](https://www.reddit.com/r/wallstreetbets/comments/1ohsmsx/unh_earnings_bet_125k_in_stocksoptions/)
-- [Is this real?](https://www.reddit.com/r/wallstreetbets/comments/1ohshg4/is_this_real/)
-- [Turns out my dumbass might be a genius](https://www.reddit.com/r/wallstreetbets/comments/1ohrse7/turns_out_my_dumbass_might_be_a_genius/)
-- [Gain to 1650% from 1550%](https://www.reddit.com/r/wallstreetbets/comments/1ohptp2/gain_to_1650_from_1550/)
+- [Financial Planning is Important](https://www.reddit.com/r/wallstreetbets/comments/1oiq96p/financial_planning_is_important/)
+- [My first phone was Nokia, and my first options play is Nokia.](https://www.reddit.com/r/wallstreetbets/comments/1oip8qs/my_first_phone_was_nokia_and_my_first_options/)
+- [Just want to say thank you to the person who wrote on here that Nvidia was going to buy NOK back in Feb 2024 no](https://www.reddit.com/r/wallstreetbets/comments/1oiokoh/just_want_to_say_thank_you_to_the_person_who/)
+- [When you sell a call for some easy premium… and AMD decides it wants to join the $250+ club 😭📈](https://www.reddit.com/r/wallstreetbets/comments/1oin5qg/when_you_sell_a_call_for_some_easy_premium_and/)
+- [Slow and steady always wins the race](https://www.reddit.com/r/wallstreetbets/comments/1oimife/slow_and_steady_always_wins_the_race/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
