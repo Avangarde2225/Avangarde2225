@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [OpenAI prepares for IPO at $1 trillion valuation](https://www.reddit.com/r/wallstreetbets/comments/1ojl668/openai_prepares_for_ipo_at_1_trillion_valuation/)
-- [That&#39;s it? More cuts](https://www.reddit.com/r/wallstreetbets/comments/1ojknoj/thats_it_more_cuts/)
-- [Reddit Earnings Forecast and Analysis - Why I’m Still Bullish](https://www.reddit.com/r/wallstreetbets/comments/1ojjupl/reddit_earnings_forecast_and_analysis_why_im/)
-- [Elon&#39;s $1T Compensation Package: The Perfect Distraction From TSLA Fundamentals](https://www.reddit.com/r/wallstreetbets/comments/1oji9tp/elons_1t_compensation_package_the_perfect/)
-- [Thanks GOOG, x3](https://www.reddit.com/r/wallstreetbets/comments/1ojhiwx/thanks_goog_x3/)
+- [Mark Zuckerberg loses $25 billion—now world’s fifth-richest as Meta shares plummet](https://www.reddit.com/r/wallstreetbets/comments/1okghs1/mark_zuckerberg_loses_25_billionnow_worlds/)
+- [Just a normal day on Reddit](https://www.reddit.com/r/wallstreetbets/comments/1okfohr/just_a_normal_day_on_reddit/)
+- [The last thing $AMZN bears see before getting margin-called](https://www.reddit.com/r/wallstreetbets/comments/1okf174/the_last_thing_amzn_bears_see_before_getting/)
+- [Jamie Dimon warned of &#39;cockroaches&#39; in the financial system. 🪳](https://www.reddit.com/r/wallstreetbets/comments/1okevj1/jamie_dimon_warned_of_cockroaches_in_the/)
+- [CHIPOTLE JUST BROKE. DOORDASH IS NEXT.](https://www.reddit.com/r/wallstreetbets/comments/1okebu3/chipotle_just_broke_doordash_is_next/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
