@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Mark Zuckerberg loses $25 billion—now world’s fifth-richest as Meta shares plummet](https://www.reddit.com/r/wallstreetbets/comments/1okghs1/mark_zuckerberg_loses_25_billionnow_worlds/)
-- [Just a normal day on Reddit](https://www.reddit.com/r/wallstreetbets/comments/1okfohr/just_a_normal_day_on_reddit/)
-- [The last thing $AMZN bears see before getting margin-called](https://www.reddit.com/r/wallstreetbets/comments/1okf174/the_last_thing_amzn_bears_see_before_getting/)
-- [Jamie Dimon warned of &#39;cockroaches&#39; in the financial system. 🪳](https://www.reddit.com/r/wallstreetbets/comments/1okevj1/jamie_dimon_warned_of_cockroaches_in_the/)
-- [CHIPOTLE JUST BROKE. DOORDASH IS NEXT.](https://www.reddit.com/r/wallstreetbets/comments/1okebu3/chipotle_just_broke_doordash_is_next/)
+- [AI datacenter Gains &lpar;$650K-$1.25M&rpar; in 3 months](https://www.reddit.com/r/wallstreetbets/comments/1ol9chy/ai_datacenter_gains_650k125m_in_3_months/)
+- [WSB plays $META earnings](https://www.reddit.com/r/wallstreetbets/comments/1ol7mi6/wsb_plays_meta_earnings/)
+- [On a scale of 1-10, rate how screwed I am #META](https://www.reddit.com/r/wallstreetbets/comments/1ol6wgs/on_a_scale_of_110_rate_how_screwed_i_am_meta/)
+- [Weekend Discussion Thread for the Weekend of October 31, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ol4m6s/weekend_discussion_thread_for_the_weekend_of/)
+- [I Have Officially Ordered the New iPhone 17 Pro Max](https://www.reddit.com/r/wallstreetbets/comments/1ol4gks/i_have_officially_ordered_the_new_iphone_17_pro/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
