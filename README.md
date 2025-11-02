@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AI datacenter Gains &lpar;$650K-$1.25M&rpar; in 3 months](https://www.reddit.com/r/wallstreetbets/comments/1ol9chy/ai_datacenter_gains_650k125m_in_3_months/)
-- [WSB plays $META earnings](https://www.reddit.com/r/wallstreetbets/comments/1ol7mi6/wsb_plays_meta_earnings/)
-- [On a scale of 1-10, rate how screwed I am #META](https://www.reddit.com/r/wallstreetbets/comments/1ol6wgs/on_a_scale_of_110_rate_how_screwed_i_am_meta/)
-- [Weekend Discussion Thread for the Weekend of October 31, 2025](https://www.reddit.com/r/wallstreetbets/comments/1ol4m6s/weekend_discussion_thread_for_the_weekend_of/)
-- [I Have Officially Ordered the New iPhone 17 Pro Max](https://www.reddit.com/r/wallstreetbets/comments/1ol4gks/i_have_officially_ordered_the_new_iphone_17_pro/)
+- [AMD saved me no](https://www.reddit.com/r/wallstreetbets/comments/1om3oyz/amd_saved_me_no/)
+- [👍](https://www.reddit.com/r/wallstreetbets/comments/1om3lwm/_/)
+- [Never forget where you came from](https://www.reddit.com/r/wallstreetbets/comments/1om3is8/never_forget_where_you_came_from/)
+- [Trader puts his college tuition on MSFT calls and loses it all](https://www.reddit.com/r/wallstreetbets/comments/1om33fx/trader_puts_his_college_tuition_on_msft_calls_and/)
+- [+$100k weekend gain, before blowing my account](https://www.reddit.com/r/wallstreetbets/comments/1om1eel/100k_weekend_gain_before_blowing_my_account/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
