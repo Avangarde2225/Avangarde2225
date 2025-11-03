@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMD saved me no](https://www.reddit.com/r/wallstreetbets/comments/1om3oyz/amd_saved_me_no/)
-- [👍](https://www.reddit.com/r/wallstreetbets/comments/1om3lwm/_/)
-- [Never forget where you came from](https://www.reddit.com/r/wallstreetbets/comments/1om3is8/never_forget_where_you_came_from/)
-- [Trader puts his college tuition on MSFT calls and loses it all](https://www.reddit.com/r/wallstreetbets/comments/1om33fx/trader_puts_his_college_tuition_on_msft_calls_and/)
-- [+$100k weekend gain, before blowing my account](https://www.reddit.com/r/wallstreetbets/comments/1om1eel/100k_weekend_gain_before_blowing_my_account/)
+- [What do think of HOOD’s future?](https://www.reddit.com/r/wallstreetbets/comments/1omuse8/what_do_think_of_hoods_future/)
+- [What Are Your Moves Tomorrow, November 03, 2025](https://www.reddit.com/r/wallstreetbets/comments/1omso9h/what_are_your_moves_tomorrow_november_03_2025/)
+- [Amazon on close before earnings and the day after earnings when cashing out….day of close I said fuck](https://www.reddit.com/r/wallstreetbets/comments/1omrm77/amazon_on_close_before_earnings_and_the_day_after/)
+- [3M+ META Yolo](https://www.reddit.com/r/wallstreetbets/comments/1omqsmq/3m_meta_yolo/)
+- [HOW FUCKED AM I? $META.](https://www.reddit.com/r/wallstreetbets/comments/1omoimy/how_fucked_am_i_meta/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
