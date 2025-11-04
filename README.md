@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What do think of HOOD’s future?](https://www.reddit.com/r/wallstreetbets/comments/1omuse8/what_do_think_of_hoods_future/)
-- [What Are Your Moves Tomorrow, November 03, 2025](https://www.reddit.com/r/wallstreetbets/comments/1omso9h/what_are_your_moves_tomorrow_november_03_2025/)
-- [Amazon on close before earnings and the day after earnings when cashing out….day of close I said fuck](https://www.reddit.com/r/wallstreetbets/comments/1omrm77/amazon_on_close_before_earnings_and_the_day_after/)
-- [3M+ META Yolo](https://www.reddit.com/r/wallstreetbets/comments/1omqsmq/3m_meta_yolo/)
-- [HOW FUCKED AM I? $META.](https://www.reddit.com/r/wallstreetbets/comments/1omoimy/how_fucked_am_i_meta/)
+- [Michael Burry is going all in on shorting the bubble](https://www.reddit.com/r/wallstreetbets/comments/1ont093/michael_burry_is_going_all_in_on_shorting_the/)
+- [$MSFT, $AMZN, and $GOOG are just paying themselves and calling it &quot;AI Revenue&quot;](https://www.reddit.com/r/wallstreetbets/comments/1onszsl/msft_amzn_and_goog_are_just_paying_themselves_and/)
+- [What’s that saying? Panic and sell everything?](https://www.reddit.com/r/wallstreetbets/comments/1onpbf3/whats_that_saying_panic_and_sell_everything/)
+- [PLTR Q3 2025 Earnings Call | Live Transcript](https://www.reddit.com/r/wallstreetbets/comments/1onpac0/pltr_q3_2025_earnings_call_live_transcript/)
+- [I’m Done](https://www.reddit.com/r/wallstreetbets/comments/1ono7ig/im_done/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
