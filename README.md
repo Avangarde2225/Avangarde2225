@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Michael Burry is going all in on shorting the bubble](https://www.reddit.com/r/wallstreetbets/comments/1ont093/michael_burry_is_going_all_in_on_shorting_the/)
-- [$MSFT, $AMZN, and $GOOG are just paying themselves and calling it &quot;AI Revenue&quot;](https://www.reddit.com/r/wallstreetbets/comments/1onszsl/msft_amzn_and_goog_are_just_paying_themselves_and/)
-- [What’s that saying? Panic and sell everything?](https://www.reddit.com/r/wallstreetbets/comments/1onpbf3/whats_that_saying_panic_and_sell_everything/)
-- [PLTR Q3 2025 Earnings Call | Live Transcript](https://www.reddit.com/r/wallstreetbets/comments/1onpac0/pltr_q3_2025_earnings_call_live_transcript/)
-- [I’m Done](https://www.reddit.com/r/wallstreetbets/comments/1ono7ig/im_done/)
+- [$26K loss, RDDT + META](https://www.reddit.com/r/wallstreetbets/comments/1oon4v8/26k_loss_rddt_meta/)
+- [Have we been in a recession hidden by AI CapEx for years?](https://www.reddit.com/r/wallstreetbets/comments/1oomldb/have_we_been_in_a_recession_hidden_by_ai_capex/)
+- [I want to go back in time before I knew this subreddit](https://www.reddit.com/r/wallstreetbets/comments/1ooma72/i_want_to_go_back_in_time_before_i_knew_this/)
+- [Thank you NFLX, META, RDDT, and PYPL, very cool!](https://www.reddit.com/r/wallstreetbets/comments/1ool8sy/thank_you_nflx_meta_rddt_and_pypl_very_cool/)
+- [Bought QQQ put options yesterday expiring today $60k profit](https://www.reddit.com/r/wallstreetbets/comments/1ool59j/bought_qqq_put_options_yesterday_expiring_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
