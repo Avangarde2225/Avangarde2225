@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$26K loss, RDDT + META](https://www.reddit.com/r/wallstreetbets/comments/1oon4v8/26k_loss_rddt_meta/)
-- [Have we been in a recession hidden by AI CapEx for years?](https://www.reddit.com/r/wallstreetbets/comments/1oomldb/have_we_been_in_a_recession_hidden_by_ai_capex/)
-- [I want to go back in time before I knew this subreddit](https://www.reddit.com/r/wallstreetbets/comments/1ooma72/i_want_to_go_back_in_time_before_i_knew_this/)
-- [Thank you NFLX, META, RDDT, and PYPL, very cool!](https://www.reddit.com/r/wallstreetbets/comments/1ool8sy/thank_you_nflx_meta_rddt_and_pypl_very_cool/)
-- [Bought QQQ put options yesterday expiring today $60k profit](https://www.reddit.com/r/wallstreetbets/comments/1ool59j/bought_qqq_put_options_yesterday_expiring_today/)
+- [Abaxx Tech: $90k to $450k &lpar;400%&rpar; and I didn&#39;t even have to use options to do it](https://www.reddit.com/r/wallstreetbets/comments/1opi8y6/abaxx_tech_90k_to_450k_400_and_i_didnt_even_have/)
+- [SNAP](https://www.reddit.com/r/wallstreetbets/comments/1oph349/snap/)
+- [Qualcomm reports earnings, revenue beat and issues strong forecast](https://www.reddit.com/r/wallstreetbets/comments/1opge1u/qualcomm_reports_earnings_revenue_beat_and_issues/)
+- [Snap surges 20% on Q3 revenue beat, $500M buyback, and $400M AI partnership with Perplexity](https://www.reddit.com/r/wallstreetbets/comments/1opfma1/snap_surges_20_on_q3_revenue_beat_500m_buyback/)
+- [Growth and Engagement Acceleration at Robinhood in Q3 2025](https://www.reddit.com/r/wallstreetbets/comments/1opfeep/growth_and_engagement_acceleration_at_robinhood/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
