@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Abaxx Tech: $90k to $450k &lpar;400%&rpar; and I didn&#39;t even have to use options to do it](https://www.reddit.com/r/wallstreetbets/comments/1opi8y6/abaxx_tech_90k_to_450k_400_and_i_didnt_even_have/)
-- [SNAP](https://www.reddit.com/r/wallstreetbets/comments/1oph349/snap/)
-- [Qualcomm reports earnings, revenue beat and issues strong forecast](https://www.reddit.com/r/wallstreetbets/comments/1opge1u/qualcomm_reports_earnings_revenue_beat_and_issues/)
-- [Snap surges 20% on Q3 revenue beat, $500M buyback, and $400M AI partnership with Perplexity](https://www.reddit.com/r/wallstreetbets/comments/1opfma1/snap_surges_20_on_q3_revenue_beat_500m_buyback/)
-- [Growth and Engagement Acceleration at Robinhood in Q3 2025](https://www.reddit.com/r/wallstreetbets/comments/1opfeep/growth_and_engagement_acceleration_at_robinhood/)
+- [Me when I opened my port today](https://www.reddit.com/r/wallstreetbets/comments/1oqfw5e/me_when_i_opened_my_port_today/)
+- [Still holding, 300+ by EOY and then I can cash out](https://www.reddit.com/r/wallstreetbets/comments/1oqeqsp/still_holding_300_by_eoy_and_then_i_can_cash_out/)
+- [Nvidia Loss](https://www.reddit.com/r/wallstreetbets/comments/1oqdlew/nvidia_loss/)
+- [Tesla Shareholders Approve Elon Musk’s $1 Trillion Pay Package](https://www.reddit.com/r/wallstreetbets/comments/1oqdjy1/tesla_shareholders_approve_elon_musks_1_trillion/)
+- [Tesla says shareholders approve Musk&#39;s pay plan with over 75% voting in favor](https://www.reddit.com/r/wallstreetbets/comments/1oqcav0/tesla_says_shareholders_approve_musks_pay_plan/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
