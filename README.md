@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Me when I opened my port today](https://www.reddit.com/r/wallstreetbets/comments/1oqfw5e/me_when_i_opened_my_port_today/)
-- [Still holding, 300+ by EOY and then I can cash out](https://www.reddit.com/r/wallstreetbets/comments/1oqeqsp/still_holding_300_by_eoy_and_then_i_can_cash_out/)
-- [Nvidia Loss](https://www.reddit.com/r/wallstreetbets/comments/1oqdlew/nvidia_loss/)
-- [Tesla Shareholders Approve Elon Musk’s $1 Trillion Pay Package](https://www.reddit.com/r/wallstreetbets/comments/1oqdjy1/tesla_shareholders_approve_elon_musks_1_trillion/)
-- [Tesla says shareholders approve Musk&#39;s pay plan with over 75% voting in favor](https://www.reddit.com/r/wallstreetbets/comments/1oqcav0/tesla_says_shareholders_approve_musks_pay_plan/)
+- [SPX today](https://www.reddit.com/r/wallstreetbets/comments/1orb56s/spx_today/)
+- [Life savings gone](https://www.reddit.com/r/wallstreetbets/comments/1orayyk/life_savings_gone/)
+- [I think this is a good sign](https://www.reddit.com/r/wallstreetbets/comments/1or8zxl/i_think_this_is_a_good_sign/)
+- [73k loss over five years. Feels like a nightmare I can’t wake up from.](https://www.reddit.com/r/wallstreetbets/comments/1or8kb4/73k_loss_over_five_years_feels_like_a_nightmare_i/)
+- [Forgot to sell](https://www.reddit.com/r/wallstreetbets/comments/1or6zrj/forgot_to_sell/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
