@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPX today](https://www.reddit.com/r/wallstreetbets/comments/1orb56s/spx_today/)
-- [Life savings gone](https://www.reddit.com/r/wallstreetbets/comments/1orayyk/life_savings_gone/)
-- [I think this is a good sign](https://www.reddit.com/r/wallstreetbets/comments/1or8zxl/i_think_this_is_a_good_sign/)
-- [73k loss over five years. Feels like a nightmare I can’t wake up from.](https://www.reddit.com/r/wallstreetbets/comments/1or8kb4/73k_loss_over_five_years_feels_like_a_nightmare_i/)
-- [Forgot to sell](https://www.reddit.com/r/wallstreetbets/comments/1or6zrj/forgot_to_sell/)
+- [Wendy’s is closing hundreds of restaurants | CNN Business](https://www.reddit.com/r/wallstreetbets/comments/1os55rb/wendys_is_closing_hundreds_of_restaurants_cnn/)
+- [$1k -&gt; $130k in 60 days](https://www.reddit.com/r/wallstreetbets/comments/1orz7d5/1k_130k_in_60_days/)
+- [CRWV earnings, Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1orttpg/crwv_earnings_am_i_cooked/)
+- [$META 🐸 set it and forget it](https://www.reddit.com/r/wallstreetbets/comments/1ortqr3/meta_set_it_and_forget_it/)
+- [Rivian turnaround story has begun](https://www.reddit.com/r/wallstreetbets/comments/1ortogr/rivian_turnaround_story_has_begun/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
