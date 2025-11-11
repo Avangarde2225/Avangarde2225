@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wendy’s is closing hundreds of restaurants | CNN Business](https://www.reddit.com/r/wallstreetbets/comments/1os55rb/wendys_is_closing_hundreds_of_restaurants_cnn/)
-- [$1k -&gt; $130k in 60 days](https://www.reddit.com/r/wallstreetbets/comments/1orz7d5/1k_130k_in_60_days/)
-- [CRWV earnings, Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1orttpg/crwv_earnings_am_i_cooked/)
-- [$META 🐸 set it and forget it](https://www.reddit.com/r/wallstreetbets/comments/1ortqr3/meta_set_it_and_forget_it/)
-- [Rivian turnaround story has begun](https://www.reddit.com/r/wallstreetbets/comments/1ortogr/rivian_turnaround_story_has_begun/)
+- [Risk management would like to know my location](https://www.reddit.com/r/wallstreetbets/comments/1otv0f4/risk_management_would_like_to_know_my_location/)
+- [Gravity doesn’t apply to stocks](https://www.reddit.com/r/wallstreetbets/comments/1otuxlj/gravity_doesnt_apply_to_stocks/)
+- [No Inverse Cramer This Week :C](https://www.reddit.com/r/wallstreetbets/comments/1otumhk/no_inverse_cramer_this_week_c/)
+- [Bought $ADBE Calls in IRA &lpar;100K Full port&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1otucii/bought_adbe_calls_in_ira_100k_full_port/)
+- [8k-126k SPY call yolo](https://www.reddit.com/r/wallstreetbets/comments/1otsjcc/8k126k_spy_call_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
