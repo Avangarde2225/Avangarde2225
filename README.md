@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Risk management would like to know my location](https://www.reddit.com/r/wallstreetbets/comments/1otv0f4/risk_management_would_like_to_know_my_location/)
-- [Gravity doesn’t apply to stocks](https://www.reddit.com/r/wallstreetbets/comments/1otuxlj/gravity_doesnt_apply_to_stocks/)
-- [No Inverse Cramer This Week :C](https://www.reddit.com/r/wallstreetbets/comments/1otumhk/no_inverse_cramer_this_week_c/)
-- [Bought $ADBE Calls in IRA &lpar;100K Full port&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1otucii/bought_adbe_calls_in_ira_100k_full_port/)
-- [8k-126k SPY call yolo](https://www.reddit.com/r/wallstreetbets/comments/1otsjcc/8k126k_spy_call_yolo/)
+- [Parker Hannifin to buy Filtration Group for $9.25 billion to expand aftermarket business](https://www.reddit.com/r/wallstreetbets/comments/1ouq9ac/parker_hannifin_to_buy_filtration_group_for_925/)
+- [GOLD IS BACK](https://www.reddit.com/r/wallstreetbets/comments/1ouq282/gold_is_back/)
+- [RIVN breakout commenced. Full send](https://www.reddit.com/r/wallstreetbets/comments/1ouo4wk/rivn_breakout_commenced_full_send/)
+- [55K+ AAOI YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ounudf/55k_aaoi_yolo/)
+- [-175k. Jan 2020-Nov 2025. All from options. 🤝It’s been real.. depressing](https://www.reddit.com/r/wallstreetbets/comments/1ounahb/175k_jan_2020nov_2025_all_from_options_its_been/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
