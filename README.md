@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Good day](https://www.reddit.com/r/wallstreetbets/comments/1ovl93b/good_day/)
-- [Jus Hold they say 🔥](https://www.reddit.com/r/wallstreetbets/comments/1oviv67/jus_hold_they_say/)
-- [QQQ 55K Puts 2 days](https://www.reddit.com/r/wallstreetbets/comments/1ovi2sc/qqq_55k_puts_2_days/)
-- [Cisco beats on earnings and guidance, lifting stock](https://www.reddit.com/r/wallstreetbets/comments/1ovi1at/cisco_beats_on_earnings_and_guidance_lifting_stock/)
-- [$OPEN the door to Valhalla](https://www.reddit.com/r/wallstreetbets/comments/1ovhpdr/open_the_door_to_valhalla/)
+- [LLY Call single trade personal record](https://www.reddit.com/r/wallstreetbets/comments/1owh2nf/lly_call_single_trade_personal_record/)
+- [Full port YOLO -&gt; Down 20% in 3 days. Two months worth of salary gone. I&#39;ll see 🫵 at Wendy&#39;s](https://www.reddit.com/r/wallstreetbets/comments/1owemhl/full_port_yolo_down_20_in_3_days_two_months_worth/)
+- [7000% gain ytd - 12k on googl](https://www.reddit.com/r/wallstreetbets/comments/1owe3cf/7000_gain_ytd_12k_on_googl/)
+- [Applied Materials Reports Record Annual Revenue and EPS for Fiscal Year 2025](https://www.reddit.com/r/wallstreetbets/comments/1owdqu1/applied_materials_reports_record_annual_revenue/)
+- [MSTR sucks ass](https://www.reddit.com/r/wallstreetbets/comments/1owctd5/mstr_sucks_ass/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
