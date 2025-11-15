@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [LLY Call single trade personal record](https://www.reddit.com/r/wallstreetbets/comments/1owh2nf/lly_call_single_trade_personal_record/)
-- [Full port YOLO -&gt; Down 20% in 3 days. Two months worth of salary gone. I&#39;ll see 🫵 at Wendy&#39;s](https://www.reddit.com/r/wallstreetbets/comments/1owemhl/full_port_yolo_down_20_in_3_days_two_months_worth/)
-- [7000% gain ytd - 12k on googl](https://www.reddit.com/r/wallstreetbets/comments/1owe3cf/7000_gain_ytd_12k_on_googl/)
-- [Applied Materials Reports Record Annual Revenue and EPS for Fiscal Year 2025](https://www.reddit.com/r/wallstreetbets/comments/1owdqu1/applied_materials_reports_record_annual_revenue/)
-- [MSTR sucks ass](https://www.reddit.com/r/wallstreetbets/comments/1owctd5/mstr_sucks_ass/)
+- [Full ported NBIS and IREN last week](https://www.reddit.com/r/wallstreetbets/comments/1oxc0wm/full_ported_nbis_and_iren_last_week/)
+- [I&#39;ve been holding my baby daughter and crying every day](https://www.reddit.com/r/wallstreetbets/comments/1oxbw2m/ive_been_holding_my_baby_daughter_and_crying/)
+- [GOOGL 35k $ Gains](https://www.reddit.com/r/wallstreetbets/comments/1oxb77g/googl_35k_gains/)
+- [Berkshire Reveals Stake in Alphabet 😳](https://www.reddit.com/r/wallstreetbets/comments/1ox8ty7/berkshire_reveals_stake_in_alphabet/)
+- [DOWN WITH SAYLOR](https://www.reddit.com/r/wallstreetbets/comments/1ox8pux/down_with_saylor/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
