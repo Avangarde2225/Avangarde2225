@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Full ported NBIS and IREN last week](https://www.reddit.com/r/wallstreetbets/comments/1oxc0wm/full_ported_nbis_and_iren_last_week/)
-- [I&#39;ve been holding my baby daughter and crying every day](https://www.reddit.com/r/wallstreetbets/comments/1oxbw2m/ive_been_holding_my_baby_daughter_and_crying/)
-- [GOOGL 35k $ Gains](https://www.reddit.com/r/wallstreetbets/comments/1oxb77g/googl_35k_gains/)
-- [Berkshire Reveals Stake in Alphabet 😳](https://www.reddit.com/r/wallstreetbets/comments/1ox8ty7/berkshire_reveals_stake_in_alphabet/)
-- [DOWN WITH SAYLOR](https://www.reddit.com/r/wallstreetbets/comments/1ox8pux/down_with_saylor/)
+- [True..](https://www.reddit.com/r/wallstreetbets/comments/1oy7u6g/true/)
+- [Gambling](https://www.reddit.com/r/wallstreetbets/comments/1oy7pgi/gambling/)
+- [Chives Stock Long Term](https://www.reddit.com/r/wallstreetbets/comments/1oy7eiw/chives_stock_long_term/)
+- [Why WBD might be a play](https://www.reddit.com/r/wallstreetbets/comments/1oy735n/why_wbd_might_be_a_play/)
+- [Swinging over the weekend](https://www.reddit.com/r/wallstreetbets/comments/1oy56ws/swinging_over_the_weekend/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
