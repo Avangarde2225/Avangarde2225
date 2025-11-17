@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [True..](https://www.reddit.com/r/wallstreetbets/comments/1oy7u6g/true/)
-- [Gambling](https://www.reddit.com/r/wallstreetbets/comments/1oy7pgi/gambling/)
-- [Chives Stock Long Term](https://www.reddit.com/r/wallstreetbets/comments/1oy7eiw/chives_stock_long_term/)
-- [Why WBD might be a play](https://www.reddit.com/r/wallstreetbets/comments/1oy735n/why_wbd_might_be_a_play/)
-- [Swinging over the weekend](https://www.reddit.com/r/wallstreetbets/comments/1oy56ws/swinging_over_the_weekend/)
+- [Is Xfinity really going down the drain? These days people have alternatives.](https://www.reddit.com/r/wallstreetbets/comments/1oz2b8x/is_xfinity_really_going_down_the_drain_these_days/)
+- [Next Weeks Earnings Without Background Noise...](https://www.reddit.com/r/wallstreetbets/comments/1oyzne9/next_weeks_earnings_without_background_noise/)
+- [What Are Your Moves Tomorrow, November 17, 2025](https://www.reddit.com/r/wallstreetbets/comments/1oywyna/what_are_your_moves_tomorrow_november_17_2025/)
+- [Split for NFLX](https://www.reddit.com/r/wallstreetbets/comments/1oyvyct/split_for_nflx/)
+- [Full port NBIS](https://www.reddit.com/r/wallstreetbets/comments/1oyri2f/full_port_nbis/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
