@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is Xfinity really going down the drain? These days people have alternatives.](https://www.reddit.com/r/wallstreetbets/comments/1oz2b8x/is_xfinity_really_going_down_the_drain_these_days/)
-- [Next Weeks Earnings Without Background Noise...](https://www.reddit.com/r/wallstreetbets/comments/1oyzne9/next_weeks_earnings_without_background_noise/)
-- [What Are Your Moves Tomorrow, November 17, 2025](https://www.reddit.com/r/wallstreetbets/comments/1oywyna/what_are_your_moves_tomorrow_november_17_2025/)
-- [Split for NFLX](https://www.reddit.com/r/wallstreetbets/comments/1oyvyct/split_for_nflx/)
-- [Full port NBIS](https://www.reddit.com/r/wallstreetbets/comments/1oyri2f/full_port_nbis/)
+- [i torched my gf&#39;s robinhood account pt.3](https://www.reddit.com/r/wallstreetbets/comments/1ozxpxz/i_torched_my_gfs_robinhood_account_pt3/)
+- [Mindless dip buying](https://www.reddit.com/r/wallstreetbets/comments/1ozxj0a/mindless_dip_buying/)
+- [330k Micron calls bet](https://www.reddit.com/r/wallstreetbets/comments/1ozvrs2/330k_micron_calls_bet/)
+- [It was the blurst of times, it was the worst of times.](https://www.reddit.com/r/wallstreetbets/comments/1ozuoci/it_was_the_blurst_of_times_it_was_the_worst_of/)
+- [$26k GOOG Gains](https://www.reddit.com/r/wallstreetbets/comments/1ozun9t/26k_goog_gains/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
