@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [i torched my gf&#39;s robinhood account pt.3](https://www.reddit.com/r/wallstreetbets/comments/1ozxpxz/i_torched_my_gfs_robinhood_account_pt3/)
-- [Mindless dip buying](https://www.reddit.com/r/wallstreetbets/comments/1ozxj0a/mindless_dip_buying/)
-- [330k Micron calls bet](https://www.reddit.com/r/wallstreetbets/comments/1ozvrs2/330k_micron_calls_bet/)
-- [It was the blurst of times, it was the worst of times.](https://www.reddit.com/r/wallstreetbets/comments/1ozuoci/it_was_the_blurst_of_times_it_was_the_worst_of/)
-- [$26k GOOG Gains](https://www.reddit.com/r/wallstreetbets/comments/1ozun9t/26k_goog_gains/)
+- [I wonder how this guy is doing….](https://www.reddit.com/r/wallstreetbets/comments/1p0s2d6/i_wonder_how_this_guy_is_doing/)
+- [oracle doesn&#39;t even believe in themselves](https://www.reddit.com/r/wallstreetbets/comments/1p0rnqb/oracle_doesnt_even_believe_in_themselves/)
+- [I already feel bad about this](https://www.reddit.com/r/wallstreetbets/comments/1p0p1h4/i_already_feel_bad_about_this/)
+- [Jolly good show](https://www.reddit.com/r/wallstreetbets/comments/1p0osm9/jolly_good_show/)
+- [No need for painkillers for the time being](https://www.reddit.com/r/wallstreetbets/comments/1p0oflr/no_need_for_painkillers_for_the_time_being/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
