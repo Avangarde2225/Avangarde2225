@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I wonder how this guy is doing….](https://www.reddit.com/r/wallstreetbets/comments/1p0s2d6/i_wonder_how_this_guy_is_doing/)
-- [oracle doesn&#39;t even believe in themselves](https://www.reddit.com/r/wallstreetbets/comments/1p0rnqb/oracle_doesnt_even_believe_in_themselves/)
-- [I already feel bad about this](https://www.reddit.com/r/wallstreetbets/comments/1p0p1h4/i_already_feel_bad_about_this/)
-- [Jolly good show](https://www.reddit.com/r/wallstreetbets/comments/1p0osm9/jolly_good_show/)
-- [No need for painkillers for the time being](https://www.reddit.com/r/wallstreetbets/comments/1p0oflr/no_need_for_painkillers_for_the_time_being/)
+- [In Jensen We Trust](https://www.reddit.com/r/wallstreetbets/comments/1p1ofzx/in_jensen_we_trust/)
+- [Why the “bubble” narrative is missing the point – prices aren’t actually that extreme](https://www.reddit.com/r/wallstreetbets/comments/1p1no2c/why_the_bubble_narrative_is_missing_the_point/)
+- [US Govt approves sale of NVDA chips to Middle East](https://www.reddit.com/r/wallstreetbets/comments/1p1mgp3/us_govt_approves_sale_of_nvda_chips_to_middle_east/)
+- [Palo Alto tops first-quarter earnings expectations, but stock slips](https://www.reddit.com/r/wallstreetbets/comments/1p1lcyt/palo_alto_tops_firstquarter_earnings_expectations/)
+- [Done for the year](https://www.reddit.com/r/wallstreetbets/comments/1p1l2ny/done_for_the_year/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
