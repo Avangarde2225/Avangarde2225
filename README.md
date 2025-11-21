@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [In Jensen We Trust](https://www.reddit.com/r/wallstreetbets/comments/1p1ofzx/in_jensen_we_trust/)
-- [Why the “bubble” narrative is missing the point – prices aren’t actually that extreme](https://www.reddit.com/r/wallstreetbets/comments/1p1no2c/why_the_bubble_narrative_is_missing_the_point/)
-- [US Govt approves sale of NVDA chips to Middle East](https://www.reddit.com/r/wallstreetbets/comments/1p1mgp3/us_govt_approves_sale_of_nvda_chips_to_middle_east/)
-- [Palo Alto tops first-quarter earnings expectations, but stock slips](https://www.reddit.com/r/wallstreetbets/comments/1p1lcyt/palo_alto_tops_firstquarter_earnings_expectations/)
-- [Done for the year](https://www.reddit.com/r/wallstreetbets/comments/1p1l2ny/done_for_the_year/)
+- [OpenAi struggling against Google - Leaked email &amp; $GOOGL dominance in Ai](https://www.reddit.com/r/wallstreetbets/comments/1p2k46h/openai_struggling_against_google_leaked_email/)
+- [Shhhh, just let the dirt shower over you Jensen…](https://www.reddit.com/r/wallstreetbets/comments/1p2jeqb/shhhh_just_let_the_dirt_shower_over_you_jensen/)
+- [Full cash port 13k 0DTE Spx puts](https://www.reddit.com/r/wallstreetbets/comments/1p2i8x8/full_cash_port_13k_0dte_spx_puts/)
+- [Michael Burry right now](https://www.reddit.com/r/wallstreetbets/comments/1p2i4mc/michael_burry_right_now/)
+- [Spent my last $117 at open, and forgot about it until I got the auto-sell notification.](https://www.reddit.com/r/wallstreetbets/comments/1p2hq0j/spent_my_last_117_at_open_and_forgot_about_it/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
