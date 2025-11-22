@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [OpenAi struggling against Google - Leaked email &amp; $GOOGL dominance in Ai](https://www.reddit.com/r/wallstreetbets/comments/1p2k46h/openai_struggling_against_google_leaked_email/)
-- [Shhhh, just let the dirt shower over you Jensen…](https://www.reddit.com/r/wallstreetbets/comments/1p2jeqb/shhhh_just_let_the_dirt_shower_over_you_jensen/)
-- [Full cash port 13k 0DTE Spx puts](https://www.reddit.com/r/wallstreetbets/comments/1p2i8x8/full_cash_port_13k_0dte_spx_puts/)
-- [Michael Burry right now](https://www.reddit.com/r/wallstreetbets/comments/1p2i4mc/michael_burry_right_now/)
-- [Spent my last $117 at open, and forgot about it until I got the auto-sell notification.](https://www.reddit.com/r/wallstreetbets/comments/1p2hq0j/spent_my_last_117_at_open_and_forgot_about_it/)
+- [Accidental 10k -&gt; 60k](https://www.reddit.com/r/wallstreetbets/comments/1p3eix6/accidental_10k_60k/)
+- [Lost all my mum’s savings. Any advice?](https://www.reddit.com/r/wallstreetbets/comments/1p3eehd/lost_all_my_mums_savings_any_advice/)
+- [💰 Trillion dollar tech 💰](https://www.reddit.com/r/wallstreetbets/comments/1p3dg1d/trillion_dollar_tech/)
+- [$GOOGL Deepmind entering into robotics with big hires from Boston dynamics.](https://www.reddit.com/r/wallstreetbets/comments/1p3d5dh/googl_deepmind_entering_into_robotics_with_big/)
+- [Weekend Discussion Thread for the Weekend of November 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p3a4uh/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
