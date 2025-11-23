@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Accidental 10k -&gt; 60k](https://www.reddit.com/r/wallstreetbets/comments/1p3eix6/accidental_10k_60k/)
-- [Lost all my mum’s savings. Any advice?](https://www.reddit.com/r/wallstreetbets/comments/1p3eehd/lost_all_my_mums_savings_any_advice/)
-- [💰 Trillion dollar tech 💰](https://www.reddit.com/r/wallstreetbets/comments/1p3dg1d/trillion_dollar_tech/)
-- [$GOOGL Deepmind entering into robotics with big hires from Boston dynamics.](https://www.reddit.com/r/wallstreetbets/comments/1p3d5dh/googl_deepmind_entering_into_robotics_with_big/)
-- [Weekend Discussion Thread for the Weekend of November 21, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p3a4uh/weekend_discussion_thread_for_the_weekend_of/)
+- [Trump Plans to Unveil ‘Genesis Mission’ to Boost AI Development](https://www.reddit.com/r/wallstreetbets/comments/1p48rl3/trump_plans_to_unveil_genesis_mission_to_boost_ai/)
+- [Just an FYI: Most brokerages sell your options trade information to market makers &lpar;PFOF&rpar; and also charge you a commission](https://www.reddit.com/r/wallstreetbets/comments/1p45xoc/just_an_fyi_most_brokerages_sell_your_options/)
+- [AI trading bots’ market manipulation - oscillating volatility](https://www.reddit.com/r/wallstreetbets/comments/1p45r96/ai_trading_bots_market_manipulation_oscillating/)
+- [Google says AI demand forcing 2x capacity growth every 6 months as it targets 1000x scale in 5 years](https://www.reddit.com/r/wallstreetbets/comments/1p4532c/google_says_ai_demand_forcing_2x_capacity_growth/)
+- [Margin got me](https://www.reddit.com/r/wallstreetbets/comments/1p42wy9/margin_got_me/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
