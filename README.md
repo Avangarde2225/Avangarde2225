@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Trump Plans to Unveil ‘Genesis Mission’ to Boost AI Development](https://www.reddit.com/r/wallstreetbets/comments/1p48rl3/trump_plans_to_unveil_genesis_mission_to_boost_ai/)
-- [Just an FYI: Most brokerages sell your options trade information to market makers &lpar;PFOF&rpar; and also charge you a commission](https://www.reddit.com/r/wallstreetbets/comments/1p45xoc/just_an_fyi_most_brokerages_sell_your_options/)
+- [Short MSTR Calls treated me well, Closing position and entering long again.](https://www.reddit.com/r/wallstreetbets/comments/1p50dfb/short_mstr_calls_treated_me_well_closing_position/)
+- [What Are Your Moves Tomorrow, November 24, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p4xr16/what_are_your_moves_tomorrow_november_24_2025/)
+- [80k -&gt; 740k -&gt;1k MSTR](https://www.reddit.com/r/wallstreetbets/comments/1p4gja9/80k_740k_1k_mstr/)
+- [The everything trading app](https://www.reddit.com/r/wallstreetbets/comments/1p4f0n9/the_everything_trading_app/)
 - [AI trading bots’ market manipulation - oscillating volatility](https://www.reddit.com/r/wallstreetbets/comments/1p45r96/ai_trading_bots_market_manipulation_oscillating/)
-- [Google says AI demand forcing 2x capacity growth every 6 months as it targets 1000x scale in 5 years](https://www.reddit.com/r/wallstreetbets/comments/1p4532c/google_says_ai_demand_forcing_2x_capacity_growth/)
-- [Margin got me](https://www.reddit.com/r/wallstreetbets/comments/1p42wy9/margin_got_me/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
