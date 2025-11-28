@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Never give up](https://www.reddit.com/r/wallstreetbets/comments/1p7m8fg/never_give_up/)
-- [HOOD calls back from the dead..again](https://www.reddit.com/r/wallstreetbets/comments/1p7lh93/hood_calls_back_from_the_deadagain/)
-- [Since You Guys Hate BMNR so much I decided to buy it.](https://www.reddit.com/r/wallstreetbets/comments/1p7lgcq/since_you_guys_hate_bmnr_so_much_i_decided_to_buy/)
-- [What Are Your Moves Tomorrow, November 27, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p7jacr/what_are_your_moves_tomorrow_november_27_2025/)
-- [Sweet Quantum Losses](https://www.reddit.com/r/wallstreetbets/comments/1p7iwwp/sweet_quantum_losses/)
+- [GDX FRIDAY FEAST. HISTORY TILTS GREEN. MINERS UP TRIPLE DIGITS. I’M LONG.](https://www.reddit.com/r/wallstreetbets/comments/1p8hf2q/gdx_friday_feast_history_tilts_green_miners_up/)
+- [What Are Your Moves Tomorrow, November 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p8cvgc/what_are_your_moves_tomorrow_november_28_2025/)
+- [My chart looks like this so I don’t have to pay taxes](https://www.reddit.com/r/wallstreetbets/comments/1p875q5/my_chart_looks_like_this_so_i_dont_have_to_pay/)
+- [Taxes, inflation, opportunity cost - I already know](https://www.reddit.com/r/wallstreetbets/comments/1p80j4r/taxes_inflation_opportunity_cost_i_already_know/)
+- [Daily Discussion Thread for November 27, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p80iye/daily_discussion_thread_for_november_27_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
