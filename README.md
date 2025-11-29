@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GDX FRIDAY FEAST. HISTORY TILTS GREEN. MINERS UP TRIPLE DIGITS. I’M LONG.](https://www.reddit.com/r/wallstreetbets/comments/1p8hf2q/gdx_friday_feast_history_tilts_green_miners_up/)
-- [What Are Your Moves Tomorrow, November 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p8cvgc/what_are_your_moves_tomorrow_november_28_2025/)
-- [My chart looks like this so I don’t have to pay taxes](https://www.reddit.com/r/wallstreetbets/comments/1p875q5/my_chart_looks_like_this_so_i_dont_have_to_pay/)
-- [Taxes, inflation, opportunity cost - I already know](https://www.reddit.com/r/wallstreetbets/comments/1p80j4r/taxes_inflation_opportunity_cost_i_already_know/)
-- [Daily Discussion Thread for November 27, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p80iye/daily_discussion_thread_for_november_27_2025/)
+- [Weekly Earnings Thread 12/1 - 12/5](https://www.reddit.com/r/wallstreetbets/comments/1p9aye8/weekly_earnings_thread_121_125/)
+- [My first year trading](https://www.reddit.com/r/wallstreetbets/comments/1p99fgy/my_first_year_trading/)
+- [My 0DTE journey so far — up $41k this week and aiming for $1M](https://www.reddit.com/r/wallstreetbets/comments/1p983pq/my_0dte_journey_so_far_up_41k_this_week_and/)
+- [Semi-analysis report on $GOOGL TpU dominance - Nvida &amp; OpenAi at risk!](https://www.reddit.com/r/wallstreetbets/comments/1p97k7z/semianalysis_report_on_googl_tpu_dominance_nvida/)
+- [Weekend Discussion Thread for the Weekend of November 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p95wwn/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
