@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Weekly Earnings Thread 12/1 - 12/5](https://www.reddit.com/r/wallstreetbets/comments/1p9aye8/weekly_earnings_thread_121_125/)
-- [My first year trading](https://www.reddit.com/r/wallstreetbets/comments/1p99fgy/my_first_year_trading/)
-- [My 0DTE journey so far — up $41k this week and aiming for $1M](https://www.reddit.com/r/wallstreetbets/comments/1p983pq/my_0dte_journey_so_far_up_41k_this_week_and/)
-- [Semi-analysis report on $GOOGL TpU dominance - Nvida &amp; OpenAi at risk!](https://www.reddit.com/r/wallstreetbets/comments/1p97k7z/semianalysis_report_on_googl_tpu_dominance_nvida/)
-- [Weekend Discussion Thread for the Weekend of November 28, 2025](https://www.reddit.com/r/wallstreetbets/comments/1p95wwn/weekend_discussion_thread_for_the_weekend_of/)
+- [Lost Hundreds of Thousands for 5 years! Never in green.](https://www.reddit.com/r/wallstreetbets/comments/1p9zjzu/lost_hundreds_of_thousands_for_5_years_never_in/)
+- [Dug my Roth IRA out from the trenches this year, down $28k to + $51K - mostly GGLL options and GOOG returns](https://www.reddit.com/r/wallstreetbets/comments/1p9z0ar/dug_my_roth_ira_out_from_the_trenches_this_year/)
+- [2,900% realized gain so far](https://www.reddit.com/r/wallstreetbets/comments/1p9y04e/2900_realized_gain_so_far/)
+- [AI helps drive record $11.8 billion in Black Friday online spending](https://www.reddit.com/r/wallstreetbets/comments/1p9xwz0/ai_helps_drive_record_118_billion_in_black_friday/)
+- [INTC position to pull me out from the depths of despair🥀](https://www.reddit.com/r/wallstreetbets/comments/1p9u2gk/intc_position_to_pull_me_out_from_the_depths_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
