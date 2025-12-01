@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lost Hundreds of Thousands for 5 years! Never in green.](https://www.reddit.com/r/wallstreetbets/comments/1p9zjzu/lost_hundreds_of_thousands_for_5_years_never_in/)
+- [Nvidia&#39;s Jensen Huang urges employees to automate every task possible with AI](https://www.reddit.com/r/wallstreetbets/comments/1paumem/nvidias_jensen_huang_urges_employees_to_automate/)
+- [What Are Your Moves Tomorrow, December 01, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pat9i6/what_are_your_moves_tomorrow_december_01_2025/)
+- [Seasonal hiring down 25% from last year as layoffs rise and retailers stay cautious amid weak consumer spending](https://www.reddit.com/r/wallstreetbets/comments/1pan84m/seasonal_hiring_down_25_from_last_year_as_layoffs/)
 - [Dug my Roth IRA out from the trenches this year, down $28k to + $51K - mostly GGLL options and GOOG returns](https://www.reddit.com/r/wallstreetbets/comments/1p9z0ar/dug_my_roth_ira_out_from_the_trenches_this_year/)
 - [2,900% realized gain so far](https://www.reddit.com/r/wallstreetbets/comments/1p9y04e/2900_realized_gain_so_far/)
-- [AI helps drive record $11.8 billion in Black Friday online spending](https://www.reddit.com/r/wallstreetbets/comments/1p9xwz0/ai_helps_drive_record_118_billion_in_black_friday/)
-- [INTC position to pull me out from the depths of despair🥀](https://www.reddit.com/r/wallstreetbets/comments/1p9u2gk/intc_position_to_pull_me_out_from_the_depths_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
