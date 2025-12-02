@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nvidia&#39;s Jensen Huang urges employees to automate every task possible with AI](https://www.reddit.com/r/wallstreetbets/comments/1paumem/nvidias_jensen_huang_urges_employees_to_automate/)
-- [What Are Your Moves Tomorrow, December 01, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pat9i6/what_are_your_moves_tomorrow_december_01_2025/)
-- [Seasonal hiring down 25% from last year as layoffs rise and retailers stay cautious amid weak consumer spending](https://www.reddit.com/r/wallstreetbets/comments/1pan84m/seasonal_hiring_down_25_from_last_year_as_layoffs/)
-- [Dug my Roth IRA out from the trenches this year, down $28k to + $51K - mostly GGLL options and GOOG returns](https://www.reddit.com/r/wallstreetbets/comments/1p9z0ar/dug_my_roth_ira_out_from_the_trenches_this_year/)
-- [2,900% realized gain so far](https://www.reddit.com/r/wallstreetbets/comments/1p9y04e/2900_realized_gain_so_far/)
+- [Exclusive: Samsung hikes memory chip prices by up to 60% as shortage worsens, sources say](https://www.reddit.com/r/wallstreetbets/comments/1pbs229/exclusive_samsung_hikes_memory_chip_prices_by_up/)
+- [I borrowed $5.7M to invest. Should I borrow more?](https://www.reddit.com/r/wallstreetbets/comments/1pbqrzf/i_borrowed_57m_to_invest_should_i_borrow_more/)
+- [MongoDB Stock Jumps On Strong Earnings, Guidance Hike For Database Player](https://www.reddit.com/r/wallstreetbets/comments/1pbq4uv/mongodb_stock_jumps_on_strong_earnings_guidance/)
+- [IBIT 10,000 shares @ $48](https://www.reddit.com/r/wallstreetbets/comments/1pboom0/ibit_10000_shares_48/)
+- [What Are Your Moves Tomorrow, December 02, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pbomg0/what_are_your_moves_tomorrow_december_02_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
