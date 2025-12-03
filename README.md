@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Exclusive: Samsung hikes memory chip prices by up to 60% as shortage worsens, sources say](https://www.reddit.com/r/wallstreetbets/comments/1pbs229/exclusive_samsung_hikes_memory_chip_prices_by_up/)
-- [I borrowed $5.7M to invest. Should I borrow more?](https://www.reddit.com/r/wallstreetbets/comments/1pbqrzf/i_borrowed_57m_to_invest_should_i_borrow_more/)
-- [MongoDB Stock Jumps On Strong Earnings, Guidance Hike For Database Player](https://www.reddit.com/r/wallstreetbets/comments/1pbq4uv/mongodb_stock_jumps_on_strong_earnings_guidance/)
-- [IBIT 10,000 shares @ $48](https://www.reddit.com/r/wallstreetbets/comments/1pboom0/ibit_10000_shares_48/)
-- [What Are Your Moves Tomorrow, December 02, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pbomg0/what_are_your_moves_tomorrow_december_02_2025/)
+- [Marvell to acquire Celestial AI for as much as $5.5 billion](https://www.reddit.com/r/wallstreetbets/comments/1pcnx85/marvell_to_acquire_celestial_ai_for_as_much_as_55/)
+- [Sold Iron Condor for MRVL earnings - Yall option buyers are cooked](https://www.reddit.com/r/wallstreetbets/comments/1pcm2q8/sold_iron_condor_for_mrvl_earnings_yall_option/)
+- [140k YOLO IREN AND ALAB](https://www.reddit.com/r/wallstreetbets/comments/1pcm1nf/140k_yolo_iren_and_alab/)
+- [Nvidia comeback story](https://www.reddit.com/r/wallstreetbets/comments/1pclbh4/nvidia_comeback_story/)
+- [WMT](https://www.reddit.com/r/wallstreetbets/comments/1pckr0r/wmt/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
