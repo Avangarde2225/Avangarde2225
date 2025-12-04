@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Marvell to acquire Celestial AI for as much as $5.5 billion](https://www.reddit.com/r/wallstreetbets/comments/1pcnx85/marvell_to_acquire_celestial_ai_for_as_much_as_55/)
-- [Sold Iron Condor for MRVL earnings - Yall option buyers are cooked](https://www.reddit.com/r/wallstreetbets/comments/1pcm2q8/sold_iron_condor_for_mrvl_earnings_yall_option/)
-- [140k YOLO IREN AND ALAB](https://www.reddit.com/r/wallstreetbets/comments/1pcm1nf/140k_yolo_iren_and_alab/)
-- [Nvidia comeback story](https://www.reddit.com/r/wallstreetbets/comments/1pclbh4/nvidia_comeback_story/)
-- [WMT](https://www.reddit.com/r/wallstreetbets/comments/1pckr0r/wmt/)
+- [a lil something for the upcoming Rate cut](https://www.reddit.com/r/wallstreetbets/comments/1pdlgbf/a_lil_something_for_the_upcoming_rate_cut/)
+- [Treasury Debt Buyback Dec 3rd - $12,500,000,000](https://www.reddit.com/r/wallstreetbets/comments/1pdj92t/treasury_debt_buyback_dec_3rd_12500000000/)
+- [AMKR gains. Plz pump another 59 cents so I can be ITM.](https://www.reddit.com/r/wallstreetbets/comments/1pdhkhg/amkr_gains_plz_pump_another_59_cents_so_i_can_be/)
+- [Salesforce beats on earnings, issues better-than-expected revenue forecast](https://www.reddit.com/r/wallstreetbets/comments/1pdhhlk/salesforce_beats_on_earnings_issues/)
+- [Red](https://www.reddit.com/r/wallstreetbets/comments/1pdglj4/red/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
