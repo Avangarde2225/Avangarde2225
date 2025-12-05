@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [a lil something for the upcoming Rate cut](https://www.reddit.com/r/wallstreetbets/comments/1pdlgbf/a_lil_something_for_the_upcoming_rate_cut/)
-- [Treasury Debt Buyback Dec 3rd - $12,500,000,000](https://www.reddit.com/r/wallstreetbets/comments/1pdj92t/treasury_debt_buyback_dec_3rd_12500000000/)
-- [AMKR gains. Plz pump another 59 cents so I can be ITM.](https://www.reddit.com/r/wallstreetbets/comments/1pdhkhg/amkr_gains_plz_pump_another_59_cents_so_i_can_be/)
-- [Salesforce beats on earnings, issues better-than-expected revenue forecast](https://www.reddit.com/r/wallstreetbets/comments/1pdhhlk/salesforce_beats_on_earnings_issues/)
-- [Red](https://www.reddit.com/r/wallstreetbets/comments/1pdglj4/red/)
+- [Jim Cramer was Confidently Correct About the Only Stock that Matters. Change My Mind.](https://www.reddit.com/r/wallstreetbets/comments/1pegvo2/jim_cramer_was_confidently_correct_about_the_only/)
+- [Has there ever been a better time to insider trade?](https://www.reddit.com/r/wallstreetbets/comments/1pege7z/has_there_ever_been_a_better_time_to_insider_trade/)
+- [USA Rare Earth Entry](https://www.reddit.com/r/wallstreetbets/comments/1ped0tc/usa_rare_earth_entry/)
+- [160k $PATH gain on earnings.](https://www.reddit.com/r/wallstreetbets/comments/1pebnej/160k_path_gain_on_earnings/)
+- [What Are Your Moves Tomorrow, December 05, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pebm3y/what_are_your_moves_tomorrow_december_05_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
