@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Jim Cramer was Confidently Correct About the Only Stock that Matters. Change My Mind.](https://www.reddit.com/r/wallstreetbets/comments/1pegvo2/jim_cramer_was_confidently_correct_about_the_only/)
-- [Has there ever been a better time to insider trade?](https://www.reddit.com/r/wallstreetbets/comments/1pege7z/has_there_ever_been_a_better_time_to_insider_trade/)
-- [USA Rare Earth Entry](https://www.reddit.com/r/wallstreetbets/comments/1ped0tc/usa_rare_earth_entry/)
-- [160k $PATH gain on earnings.](https://www.reddit.com/r/wallstreetbets/comments/1pebnej/160k_path_gain_on_earnings/)
-- [What Are Your Moves Tomorrow, December 05, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pebm3y/what_are_your_moves_tomorrow_december_05_2025/)
+- [Debated on whether or not I should sell my asts calls before the weekend, panda gave me an answer](https://www.reddit.com/r/wallstreetbets/comments/1pfbhk2/debated_on_whether_or_not_i_should_sell_my_asts/)
+- [CVNA added to S&amp;P 🤡🤡🤡[previous post deleted]](https://www.reddit.com/r/wallstreetbets/comments/1pfadpk/cvna_added_to_sp_previous_post_deleted/)
+- [100k OTM SPX Weeklies](https://www.reddit.com/r/wallstreetbets/comments/1pf9rae/100k_otm_spx_weeklies/)
+- [89K short on TSLA for next week](https://www.reddit.com/r/wallstreetbets/comments/1pf8tef/89k_short_on_tsla_for_next_week/)
+- [This week’s plays of selling options. Ended up +$4k](https://www.reddit.com/r/wallstreetbets/comments/1pf7ocz/this_weeks_plays_of_selling_options_ended_up_4k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
