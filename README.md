@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Debated on whether or not I should sell my asts calls before the weekend, panda gave me an answer](https://www.reddit.com/r/wallstreetbets/comments/1pfbhk2/debated_on_whether_or_not_i_should_sell_my_asts/)
+- [Lost everything, my life is ruined. AMA](https://www.reddit.com/r/wallstreetbets/comments/1pg4mk5/lost_everything_my_life_is_ruined_ama/)
+- [Is T &lpar;ATT&rpar; the dumbest company in the universe?](https://www.reddit.com/r/wallstreetbets/comments/1pg3pe2/is_t_att_the_dumbest_company_in_the_universe/)
+- [Calls on AGX &lpar;catching a falling knife&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1pg2als/calls_on_agx_catching_a_falling_knife/)
+- [Good day betting on Nasdaq futures &amp; NY Central Park temperatures](https://www.reddit.com/r/wallstreetbets/comments/1pfm9c8/good_day_betting_on_nasdaq_futures_ny_central/)
 - [CVNA added to S&amp;P 🤡🤡🤡[previous post deleted]](https://www.reddit.com/r/wallstreetbets/comments/1pfadpk/cvna_added_to_sp_previous_post_deleted/)
-- [100k OTM SPX Weeklies](https://www.reddit.com/r/wallstreetbets/comments/1pf9rae/100k_otm_spx_weeklies/)
-- [89K short on TSLA for next week](https://www.reddit.com/r/wallstreetbets/comments/1pf8tef/89k_short_on_tsla_for_next_week/)
-- [This week’s plays of selling options. Ended up +$4k](https://www.reddit.com/r/wallstreetbets/comments/1pf7ocz/this_weeks_plays_of_selling_options_ended_up_4k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
