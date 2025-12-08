@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lost everything, my life is ruined. AMA](https://www.reddit.com/r/wallstreetbets/comments/1pg4mk5/lost_everything_my_life_is_ruined_ama/)
+- [Warren Buffet wants to hook me up with 800k? Seem legit?](https://www.reddit.com/r/wallstreetbets/comments/1pgxgr4/warren_buffet_wants_to_hook_me_up_with_800k_seem/)
+- [What Are Your Moves Tomorrow, December 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pgte0r/what_are_your_moves_tomorrow_december_08_2025/)
+- [Me reading that the hyper scalers extended the useful lives of their servers and GPU clusters from 3 years to 5-6 years](https://www.reddit.com/r/wallstreetbets/comments/1pgtay3/me_reading_that_the_hyper_scalers_extended_the/)
+- [$CVNA liquidity crisis tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1pgsr0r/cvna_liquidity_crisis_tomorrow/)
 - [Is T &lpar;ATT&rpar; the dumbest company in the universe?](https://www.reddit.com/r/wallstreetbets/comments/1pg3pe2/is_t_att_the_dumbest_company_in_the_universe/)
-- [Calls on AGX &lpar;catching a falling knife&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1pg2als/calls_on_agx_catching_a_falling_knife/)
-- [Good day betting on Nasdaq futures &amp; NY Central Park temperatures](https://www.reddit.com/r/wallstreetbets/comments/1pfm9c8/good_day_betting_on_nasdaq_futures_ny_central/)
-- [CVNA added to S&amp;P 🤡🤡🤡[previous post deleted]](https://www.reddit.com/r/wallstreetbets/comments/1pfadpk/cvna_added_to_sp_previous_post_deleted/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
