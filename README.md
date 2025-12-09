@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Warren Buffet wants to hook me up with 800k? Seem legit?](https://www.reddit.com/r/wallstreetbets/comments/1pgxgr4/warren_buffet_wants_to_hook_me_up_with_800k_seem/)
-- [What Are Your Moves Tomorrow, December 08, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pgte0r/what_are_your_moves_tomorrow_december_08_2025/)
-- [Me reading that the hyper scalers extended the useful lives of their servers and GPU clusters from 3 years to 5-6 years](https://www.reddit.com/r/wallstreetbets/comments/1pgtay3/me_reading_that_the_hyper_scalers_extended_the/)
-- [$CVNA liquidity crisis tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1pgsr0r/cvna_liquidity_crisis_tomorrow/)
-- [Is T &lpar;ATT&rpar; the dumbest company in the universe?](https://www.reddit.com/r/wallstreetbets/comments/1pg3pe2/is_t_att_the_dumbest_company_in_the_universe/)
+- [Anyone else shorting &quot;high flying&quot; tech/AI/crypto into the FOMC?](https://www.reddit.com/r/wallstreetbets/comments/1phsmbv/anyone_else_shorting_high_flying_techaicrypto/)
+- [NFLX 40k OTM](https://www.reddit.com/r/wallstreetbets/comments/1phrt7d/nflx_40k_otm/)
+- [Bought NFLX [ 4000 shares @ $96 ]](https://www.reddit.com/r/wallstreetbets/comments/1phr5q3/bought_nflx_4000_shares_96/)
+- [CFLT +$22,000 today](https://www.reddit.com/r/wallstreetbets/comments/1phocey/cflt_22000_today/)
+- [What Are Your Moves Tomorrow, December 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pho3w0/what_are_your_moves_tomorrow_december_09_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
