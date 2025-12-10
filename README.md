@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anyone else shorting &quot;high flying&quot; tech/AI/crypto into the FOMC?](https://www.reddit.com/r/wallstreetbets/comments/1phsmbv/anyone_else_shorting_high_flying_techaicrypto/)
-- [NFLX 40k OTM](https://www.reddit.com/r/wallstreetbets/comments/1phrt7d/nflx_40k_otm/)
-- [Bought NFLX [ 4000 shares @ $96 ]](https://www.reddit.com/r/wallstreetbets/comments/1phr5q3/bought_nflx_4000_shares_96/)
-- [CFLT +$22,000 today](https://www.reddit.com/r/wallstreetbets/comments/1phocey/cflt_22000_today/)
-- [What Are Your Moves Tomorrow, December 09, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pho3w0/what_are_your_moves_tomorrow_december_09_2025/)
+- [BIG IDEA, tell me if I got something here](https://www.reddit.com/r/wallstreetbets/comments/1piogzv/big_idea_tell_me_if_i_got_something_here/)
+- [$U betting on this?](https://www.reddit.com/r/wallstreetbets/comments/1piogtb/u_betting_on_this/)
+- [📈 $ZM Bullish Ascending Triangle Breakout Incoming 🚀](https://www.reddit.com/r/wallstreetbets/comments/1pinuuh/zm_bullish_ascending_triangle_breakout_incoming/)
+- [JPOW GOAT](https://www.reddit.com/r/wallstreetbets/comments/1pimguy/jpow_goat/)
+- [Ready for tomorrow?!](https://www.reddit.com/r/wallstreetbets/comments/1pimbei/ready_for_tomorrow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
