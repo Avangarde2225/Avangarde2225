@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [BIG IDEA, tell me if I got something here](https://www.reddit.com/r/wallstreetbets/comments/1piogzv/big_idea_tell_me_if_i_got_something_here/)
-- [$U betting on this?](https://www.reddit.com/r/wallstreetbets/comments/1piogtb/u_betting_on_this/)
-- [📈 $ZM Bullish Ascending Triangle Breakout Incoming 🚀](https://www.reddit.com/r/wallstreetbets/comments/1pinuuh/zm_bullish_ascending_triangle_breakout_incoming/)
-- [JPOW GOAT](https://www.reddit.com/r/wallstreetbets/comments/1pimguy/jpow_goat/)
-- [Ready for tomorrow?!](https://www.reddit.com/r/wallstreetbets/comments/1pimbei/ready_for_tomorrow/)
+- [My last 65k....what could go wrong🫡🫡](https://www.reddit.com/r/wallstreetbets/comments/1pkddza/my_last_65kwhat_could_go_wrong/)
+- [Calling top on semis $AMD puts](https://www.reddit.com/r/wallstreetbets/comments/1pkb12v/calling_top_on_semis_amd_puts/)
+- [RKLB $Gain19.2K](https://www.reddit.com/r/wallstreetbets/comments/1pkambr/rklb_gain192k/)
+- [I am still DeLULU](https://www.reddit.com/r/wallstreetbets/comments/1pk9sy7/i_am_still_delulu/)
+- [Broadcom beats on earnings and revenue, says AI chip sales will double in current quarter](https://www.reddit.com/r/wallstreetbets/comments/1pk9n9y/broadcom_beats_on_earnings_and_revenue_says_ai/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
