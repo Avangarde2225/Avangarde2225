@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My last 65k....what could go wrong🫡🫡](https://www.reddit.com/r/wallstreetbets/comments/1pkddza/my_last_65kwhat_could_go_wrong/)
-- [Calling top on semis $AMD puts](https://www.reddit.com/r/wallstreetbets/comments/1pkb12v/calling_top_on_semis_amd_puts/)
-- [RKLB $Gain19.2K](https://www.reddit.com/r/wallstreetbets/comments/1pkambr/rklb_gain192k/)
-- [I am still DeLULU](https://www.reddit.com/r/wallstreetbets/comments/1pk9sy7/i_am_still_delulu/)
-- [Broadcom beats on earnings and revenue, says AI chip sales will double in current quarter](https://www.reddit.com/r/wallstreetbets/comments/1pk9n9y/broadcom_beats_on_earnings_and_revenue_says_ai/)
+- [The Auto Classifieds Sector Is About To Get Absolutely Decimated - $AUTO $CARS $CARG](https://www.reddit.com/r/wallstreetbets/comments/1plycdg/the_auto_classifieds_sector_is_about_to_get/)
+- [Oracle debt to the moon 🚀🌓](https://www.reddit.com/r/wallstreetbets/comments/1plwr8n/oracle_debt_to_the_moon/)
+- [Disney invests $1B in OpenAI in deal to bring characters like Mickey Mouse to Sora AI video tool](https://www.reddit.com/r/wallstreetbets/comments/1plwoql/disney_invests_1b_in_openai_in_deal_to_bring/)
+- [2026 - YOLO Tickers](https://www.reddit.com/r/wallstreetbets/comments/1plsiwk/2026_yolo_tickers/)
+- [AVGO’s Massive Decline…a buying opportunity?](https://www.reddit.com/r/wallstreetbets/comments/1pllnsp/avgos_massive_declinea_buying_opportunity/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
