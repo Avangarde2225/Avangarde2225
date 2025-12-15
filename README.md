@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The Auto Classifieds Sector Is About To Get Absolutely Decimated - $AUTO $CARS $CARG](https://www.reddit.com/r/wallstreetbets/comments/1plycdg/the_auto_classifieds_sector_is_about_to_get/)
-- [Oracle debt to the moon 🚀🌓](https://www.reddit.com/r/wallstreetbets/comments/1plwr8n/oracle_debt_to_the_moon/)
-- [Disney invests $1B in OpenAI in deal to bring characters like Mickey Mouse to Sora AI video tool](https://www.reddit.com/r/wallstreetbets/comments/1plwoql/disney_invests_1b_in_openai_in_deal_to_bring/)
-- [2026 - YOLO Tickers](https://www.reddit.com/r/wallstreetbets/comments/1plsiwk/2026_yolo_tickers/)
-- [AVGO’s Massive Decline…a buying opportunity?](https://www.reddit.com/r/wallstreetbets/comments/1pllnsp/avgos_massive_declinea_buying_opportunity/)
+- [META loss so far, do I still have hope?](https://www.reddit.com/r/wallstreetbets/comments/1pmtolb/meta_loss_so_far_do_i_still_have_hope/)
+- [Sweetgreen &lpar;$SG&rpar; Goat Status](https://www.reddit.com/r/wallstreetbets/comments/1pmskyv/sweetgreen_sg_goat_status/)
+- [What Are Your Moves Tomorrow, December 15, 2025](https://www.reddit.com/r/wallstreetbets/comments/1pmos94/what_are_your_moves_tomorrow_december_15_2025/)
+- [Air Traffic Control Union vs Oil Prices🇺🇸](https://www.reddit.com/r/wallstreetbets/comments/1pmng0g/air_traffic_control_union_vs_oil_prices/)
+- [The RAM I bought a year ago is the fastest appreciating asset I have ever owned](https://www.reddit.com/r/wallstreetbets/comments/1pm948j/the_ram_i_bought_a_year_ago_is_the_fastest/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
