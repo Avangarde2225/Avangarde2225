@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [24 hour degeneracy](https://www.reddit.com/r/wallstreetbets/comments/1pnnu3y/24_hour_degeneracy/)
-- [vaccum puts](https://www.reddit.com/r/wallstreetbets/comments/1pnlr2p/vaccum_puts/)
-- [Some good $RKLB timing](https://www.reddit.com/r/wallstreetbets/comments/1pnlkvm/some_good_rklb_timing/)
-- [Nasdaq seeks to extend trading hours to 23/5](https://www.reddit.com/r/wallstreetbets/comments/1pnkgee/nasdaq_seeks_to_extend_trading_hours_to_235/)
-- [Exclusive: Nasdaq seeks to extend trading hours, as Wall Street gears up for 24/7 move](https://www.reddit.com/r/wallstreetbets/comments/1pnkbgz/exclusive_nasdaq_seeks_to_extend_trading_hours_as/)
+- [Started the year with $155K and now ending the year at $155K after thousands of trades.](https://www.reddit.com/r/wallstreetbets/comments/1pohxfq/started_the_year_with_155k_and_now_ending_the/)
+- [TSLA - expect sentiment shift after earnings](https://www.reddit.com/r/wallstreetbets/comments/1pohi6c/tsla_expect_sentiment_shift_after_earnings/)
+- [How do I stop gambling? +$40k +57% on degenerate 0dte SPY Call scalps](https://www.reddit.com/r/wallstreetbets/comments/1poer3c/how_do_i_stop_gambling_40k_57_on_degenerate_0dte/)
+- [PFE - It&#39;s gotta bounce... right?](https://www.reddit.com/r/wallstreetbets/comments/1poe28i/pfe_its_gotta_bounce_right/)
+- [Warner Bros. to Reject Paramount offer on Funding Concerns](https://www.reddit.com/r/wallstreetbets/comments/1podhhe/warner_bros_to_reject_paramount_offer_on_funding/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
