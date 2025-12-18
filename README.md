@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Started the year with $155K and now ending the year at $155K after thousands of trades.](https://www.reddit.com/r/wallstreetbets/comments/1pohxfq/started_the_year_with_155k_and_now_ending_the/)
-- [TSLA - expect sentiment shift after earnings](https://www.reddit.com/r/wallstreetbets/comments/1pohi6c/tsla_expect_sentiment_shift_after_earnings/)
-- [How do I stop gambling? +$40k +57% on degenerate 0dte SPY Call scalps](https://www.reddit.com/r/wallstreetbets/comments/1poer3c/how_do_i_stop_gambling_40k_57_on_degenerate_0dte/)
-- [PFE - It&#39;s gotta bounce... right?](https://www.reddit.com/r/wallstreetbets/comments/1poe28i/pfe_its_gotta_bounce_right/)
-- [Warner Bros. to Reject Paramount offer on Funding Concerns](https://www.reddit.com/r/wallstreetbets/comments/1podhhe/warner_bros_to_reject_paramount_offer_on_funding/)
+- [Am I regarded for thinking GOOG is still undervalued?](https://www.reddit.com/r/wallstreetbets/comments/1ppclhu/am_i_regarded_for_thinking_goog_is_still/)
+- [For the love of the game — $160k weed yolo](https://www.reddit.com/r/wallstreetbets/comments/1ppcgjr/for_the_love_of_the_game_160k_weed_yolo/)
+- [End of an era. Penny has officially been delisted and they&#39;re now holding a funeral for it](https://www.reddit.com/r/wallstreetbets/comments/1ppafux/end_of_an_era_penny_has_officially_been_delisted/)
+- [I am trying to catch falling knife](https://www.reddit.com/r/wallstreetbets/comments/1ppa8cc/i_am_trying_to_catch_falling_knife/)
+- [Hohoho guess I’m joining the regard club today](https://www.reddit.com/r/wallstreetbets/comments/1pp9x1d/hohoho_guess_im_joining_the_regard_club_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
