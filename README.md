@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Am I regarded for thinking GOOG is still undervalued?](https://www.reddit.com/r/wallstreetbets/comments/1ppclhu/am_i_regarded_for_thinking_goog_is_still/)
-- [For the love of the game — $160k weed yolo](https://www.reddit.com/r/wallstreetbets/comments/1ppcgjr/for_the_love_of_the_game_160k_weed_yolo/)
-- [End of an era. Penny has officially been delisted and they&#39;re now holding a funeral for it](https://www.reddit.com/r/wallstreetbets/comments/1ppafux/end_of_an_era_penny_has_officially_been_delisted/)
-- [I am trying to catch falling knife](https://www.reddit.com/r/wallstreetbets/comments/1ppa8cc/i_am_trying_to_catch_falling_knife/)
-- [Hohoho guess I’m joining the regard club today](https://www.reddit.com/r/wallstreetbets/comments/1pp9x1d/hohoho_guess_im_joining_the_regard_club_today/)
+- [SLV will either make me rich or a Wendy’s employee for life… FULL PORT TFSA!](https://www.reddit.com/r/wallstreetbets/comments/1pq76q7/slv_will_either_make_me_rich_or_a_wendys_employee/)
+- [How to Profit from the Great RAM Drought](https://www.reddit.com/r/wallstreetbets/comments/1pq6veh/how_to_profit_from_the_great_ram_drought/)
+- [YTD gains on my RH account](https://www.reddit.com/r/wallstreetbets/comments/1pq68ma/ytd_gains_on_my_rh_account/)
+- [Oracle +5% after hours after TikTok signs binding US joint venture with Oracle taking 15% stake](https://www.reddit.com/r/wallstreetbets/comments/1pq65ra/oracle_5_after_hours_after_tiktok_signs_binding/)
+- [yolod on penguin 20k on the line](https://www.reddit.com/r/wallstreetbets/comments/1pq4esm/yolod_on_penguin_20k_on_the_line/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
