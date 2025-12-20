@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SLV will either make me rich or a Wendy’s employee for life… FULL PORT TFSA!](https://www.reddit.com/r/wallstreetbets/comments/1pq76q7/slv_will_either_make_me_rich_or_a_wendys_employee/)
-- [How to Profit from the Great RAM Drought](https://www.reddit.com/r/wallstreetbets/comments/1pq6veh/how_to_profit_from_the_great_ram_drought/)
-- [YTD gains on my RH account](https://www.reddit.com/r/wallstreetbets/comments/1pq68ma/ytd_gains_on_my_rh_account/)
-- [Oracle +5% after hours after TikTok signs binding US joint venture with Oracle taking 15% stake](https://www.reddit.com/r/wallstreetbets/comments/1pq65ra/oracle_5_after_hours_after_tiktok_signs_binding/)
-- [yolod on penguin 20k on the line](https://www.reddit.com/r/wallstreetbets/comments/1pq4esm/yolod_on_penguin_20k_on_the_line/)
+- [36k $CVNA Puts into S&amp;P inclusion](https://www.reddit.com/r/wallstreetbets/comments/1pr05x1/36k_cvna_puts_into_sp_inclusion/)
+- [Expected the boj rate hike to dump so I sold covered calls…](https://www.reddit.com/r/wallstreetbets/comments/1pqzksb/expected_the_boj_rate_hike_to_dump_so_i_sold/)
+- [Health Insurer Stocks Spooked as Trump Asks For Lower Premiums](https://www.reddit.com/r/wallstreetbets/comments/1pqyj07/health_insurer_stocks_spooked_as_trump_asks_for/)
+- [Rivian is just starting](https://www.reddit.com/r/wallstreetbets/comments/1pqyiyx/rivian_is_just_starting/)
+- [First options contract. Do I belong here now?](https://www.reddit.com/r/wallstreetbets/comments/1pqyh3e/first_options_contract_do_i_belong_here_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
