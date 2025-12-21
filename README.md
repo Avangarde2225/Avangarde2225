@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [36k $CVNA Puts into S&amp;P inclusion](https://www.reddit.com/r/wallstreetbets/comments/1pr05x1/36k_cvna_puts_into_sp_inclusion/)
-- [Expected the boj rate hike to dump so I sold covered calls…](https://www.reddit.com/r/wallstreetbets/comments/1pqzksb/expected_the_boj_rate_hike_to_dump_so_i_sold/)
-- [Health Insurer Stocks Spooked as Trump Asks For Lower Premiums](https://www.reddit.com/r/wallstreetbets/comments/1pqyj07/health_insurer_stocks_spooked_as_trump_asks_for/)
-- [Rivian is just starting](https://www.reddit.com/r/wallstreetbets/comments/1pqyiyx/rivian_is_just_starting/)
-- [First options contract. Do I belong here now?](https://www.reddit.com/r/wallstreetbets/comments/1pqyh3e/first_options_contract_do_i_belong_here_now/)
+- [China Rare-Earth Magnet Exports to U.S. Fall 11% in November](https://www.reddit.com/r/wallstreetbets/comments/1prmif9/china_rareearth_magnet_exports_to_us_fall_11_in/)
+- [Runescape 3 Bond Prices Predict S&amp;P500 Performance](https://www.reddit.com/r/wallstreetbets/comments/1prlunq/runescape_3_bond_prices_predict_sp500_performance/)
+- [RKLB Gain](https://www.reddit.com/r/wallstreetbets/comments/1prgjr2/rklb_gain/)
+- [Taking profit never hurt this much 😭; $31 $ASTS covered calls](https://www.reddit.com/r/wallstreetbets/comments/1preyxr/taking_profit_never_hurt_this_much_31_asts/)
+- [$2M on ASTS &amp; PLTR play](https://www.reddit.com/r/wallstreetbets/comments/1pra3g1/2m_on_asts_pltr_play/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
