@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [China Rare-Earth Magnet Exports to U.S. Fall 11% in November](https://www.reddit.com/r/wallstreetbets/comments/1prmif9/china_rareearth_magnet_exports_to_us_fall_11_in/)
-- [Runescape 3 Bond Prices Predict S&amp;P500 Performance](https://www.reddit.com/r/wallstreetbets/comments/1prlunq/runescape_3_bond_prices_predict_sp500_performance/)
-- [RKLB Gain](https://www.reddit.com/r/wallstreetbets/comments/1prgjr2/rklb_gain/)
-- [Taking profit never hurt this much 😭; $31 $ASTS covered calls](https://www.reddit.com/r/wallstreetbets/comments/1preyxr/taking_profit_never_hurt_this_much_31_asts/)
-- [$2M on ASTS &amp; PLTR play](https://www.reddit.com/r/wallstreetbets/comments/1pra3g1/2m_on_asts_pltr_play/)
+- [Sweetgreen is the next Lululemon](https://www.reddit.com/r/wallstreetbets/comments/1pslx25/sweetgreen_is_the_next_lululemon/)
+- [Key data for the coming week](https://www.reddit.com/r/wallstreetbets/comments/1psluyh/key_data_for_the_coming_week/)
+- [Dark Horse Picks for 2026](https://www.reddit.com/r/wallstreetbets/comments/1psl0cq/dark_horse_picks_for_2026/)
+- [Fed’s Hammack says there’s no need to change interest rates for months, WSJ reports](https://www.reddit.com/r/wallstreetbets/comments/1pshwzb/feds_hammack_says_theres_no_need_to_change/)
+- [What Are Your Moves Tomorrow, December 22, 2025](https://www.reddit.com/r/wallstreetbets/comments/1psgvs3/what_are_your_moves_tomorrow_december_22_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
