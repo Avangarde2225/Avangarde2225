@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Sweetgreen is the next Lululemon](https://www.reddit.com/r/wallstreetbets/comments/1pslx25/sweetgreen_is_the_next_lululemon/)
-- [Key data for the coming week](https://www.reddit.com/r/wallstreetbets/comments/1psluyh/key_data_for_the_coming_week/)
-- [Dark Horse Picks for 2026](https://www.reddit.com/r/wallstreetbets/comments/1psl0cq/dark_horse_picks_for_2026/)
-- [Fed’s Hammack says there’s no need to change interest rates for months, WSJ reports](https://www.reddit.com/r/wallstreetbets/comments/1pshwzb/feds_hammack_says_theres_no_need_to_change/)
-- [What Are Your Moves Tomorrow, December 22, 2025](https://www.reddit.com/r/wallstreetbets/comments/1psgvs3/what_are_your_moves_tomorrow_december_22_2025/)
+- [Thank you space stocks 😅. I think I’m done for the year.](https://www.reddit.com/r/wallstreetbets/comments/1ptenhd/thank_you_space_stocks_i_think_im_done_for_the/)
+- [NVO received approval for oral Wegovy](https://www.reddit.com/r/wallstreetbets/comments/1ptdys7/nvo_received_approval_for_oral_wegovy/)
+- [FDA approves first GLP-1 pill for obesity from Novo Nordisk : NVO is up +8% after hours](https://www.reddit.com/r/wallstreetbets/comments/1ptdwt7/fda_approves_first_glp1_pill_for_obesity_from/)
+- [Electronic Arts Shareholders Approve $55 Billion Sale to Saudis](https://www.reddit.com/r/wallstreetbets/comments/1ptdd6k/electronic_arts_shareholders_approve_55_billion/)
+- [Larry Ellison backstops $40.4B Paramount bid for Warner Bros. PSKY +4.3%, WBD +3.5%](https://www.reddit.com/r/wallstreetbets/comments/1ptcmf3/larry_ellison_backstops_404b_paramount_bid_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
