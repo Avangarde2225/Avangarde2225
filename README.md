@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thank you space stocks 😅. I think I’m done for the year.](https://www.reddit.com/r/wallstreetbets/comments/1ptenhd/thank_you_space_stocks_i_think_im_done_for_the/)
-- [NVO received approval for oral Wegovy](https://www.reddit.com/r/wallstreetbets/comments/1ptdys7/nvo_received_approval_for_oral_wegovy/)
-- [FDA approves first GLP-1 pill for obesity from Novo Nordisk : NVO is up +8% after hours](https://www.reddit.com/r/wallstreetbets/comments/1ptdwt7/fda_approves_first_glp1_pill_for_obesity_from/)
-- [Electronic Arts Shareholders Approve $55 Billion Sale to Saudis](https://www.reddit.com/r/wallstreetbets/comments/1ptdd6k/electronic_arts_shareholders_approve_55_billion/)
-- [Larry Ellison backstops $40.4B Paramount bid for Warner Bros. PSKY +4.3%, WBD +3.5%](https://www.reddit.com/r/wallstreetbets/comments/1ptcmf3/larry_ellison_backstops_404b_paramount_bid_for/)
+- [Tariff court thingy soon — are we vibing or panicking](https://www.reddit.com/r/wallstreetbets/comments/1pu96ug/tariff_court_thingy_soon_are_we_vibing_or/)
+- [ASTS Launch Tonight](https://www.reddit.com/r/wallstreetbets/comments/1pu8xr1/asts_launch_tonight/)
+- [Nike &lpar;NKE&rpar; Director Tim Cook Acquires $2.95M in Company Shares](https://www.reddit.com/r/wallstreetbets/comments/1pu8vbi/nike_nke_director_tim_cook_acquires_295m_in/)
+- [Noice](https://www.reddit.com/r/wallstreetbets/comments/1pu7vgb/noice/)
+- [Good year for gambling on small cap biotech! ARWR is 🚀.](https://www.reddit.com/r/wallstreetbets/comments/1pu7c0a/good_year_for_gambling_on_small_cap_biotech_arwr/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
