@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I love silver](https://www.reddit.com/r/wallstreetbets/comments/1pwjtmw/i_love_silver/)
-- [5k to 20k to 2k in 8 months](https://www.reddit.com/r/wallstreetbets/comments/1pwhr4s/5k_to_20k_to_2k_in_8_months/)
-- [Lossporn](https://www.reddit.com/r/wallstreetbets/comments/1pwh09z/lossporn/)
-- [Sold SPX options to yall today and made 100%on premiums](https://www.reddit.com/r/wallstreetbets/comments/1pwfc44/sold_spx_options_to_yall_today_and_made_100on/)
-- [$72k Weekly PYPL yolo idk why](https://www.reddit.com/r/wallstreetbets/comments/1pweyou/72k_weekly_pypl_yolo_idk_why/)
+- [Your personal market sentiment](https://www.reddit.com/r/wallstreetbets/comments/1pxbvfy/your_personal_market_sentiment/)
+- [OpenAI&#39;s ChatGPT ads will allegedly prioritize sponsored content in answers](https://www.reddit.com/r/wallstreetbets/comments/1pxaz6u/openais_chatgpt_ads_will_allegedly_prioritize/)
+- [100% Gain YTD - What’s your 2026 pick?](https://www.reddit.com/r/wallstreetbets/comments/1px7uy0/100_gain_ytd_whats_your_2026_pick/)
+- [All in on oil 🛢️ for 2026](https://www.reddit.com/r/wallstreetbets/comments/1px7n1j/all_in_on_oil_for_2026/)
+- [The SLV and WBD gains crowd should really be thanking me. Held SLV since summer 2020 and got WBD from the T merger. Sold 2024.](https://www.reddit.com/r/wallstreetbets/comments/1px72d6/the_slv_and_wbd_gains_crowd_should_really_be/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
