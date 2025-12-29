@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Your personal market sentiment](https://www.reddit.com/r/wallstreetbets/comments/1pxbvfy/your_personal_market_sentiment/)
-- [OpenAI&#39;s ChatGPT ads will allegedly prioritize sponsored content in answers](https://www.reddit.com/r/wallstreetbets/comments/1pxaz6u/openais_chatgpt_ads_will_allegedly_prioritize/)
-- [100% Gain YTD - What’s your 2026 pick?](https://www.reddit.com/r/wallstreetbets/comments/1px7uy0/100_gain_ytd_whats_your_2026_pick/)
-- [All in on oil 🛢️ for 2026](https://www.reddit.com/r/wallstreetbets/comments/1px7n1j/all_in_on_oil_for_2026/)
-- [The SLV and WBD gains crowd should really be thanking me. Held SLV since summer 2020 and got WBD from the T merger. Sold 2024.](https://www.reddit.com/r/wallstreetbets/comments/1px72d6/the_slv_and_wbd_gains_crowd_should_really_be/)
+- [What Are Your Moves Tomorrow, December 29, 2025](https://www.reddit.com/r/wallstreetbets/comments/1py29zu/what_are_your_moves_tomorrow_december_29_2025/)
+- [A Day at The Options Store.](https://www.reddit.com/r/wallstreetbets/comments/1pxzfh4/a_day_at_the_options_store/)
+- [Modest 70% YTD](https://www.reddit.com/r/wallstreetbets/comments/1pxvaik/modest_70_ytd/)
+- [$SLV 92%](https://www.reddit.com/r/wallstreetbets/comments/1pxkpfh/slv_92/)
+- [How Regarded Am I?](https://www.reddit.com/r/wallstreetbets/comments/1pxgq15/how_regarded_am_i/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
