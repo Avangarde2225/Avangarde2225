@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What Are Your Moves Tomorrow, December 29, 2025](https://www.reddit.com/r/wallstreetbets/comments/1py29zu/what_are_your_moves_tomorrow_december_29_2025/)
-- [A Day at The Options Store.](https://www.reddit.com/r/wallstreetbets/comments/1pxzfh4/a_day_at_the_options_store/)
-- [Modest 70% YTD](https://www.reddit.com/r/wallstreetbets/comments/1pxvaik/modest_70_ytd/)
-- [$SLV 92%](https://www.reddit.com/r/wallstreetbets/comments/1pxkpfh/slv_92/)
-- [How Regarded Am I?](https://www.reddit.com/r/wallstreetbets/comments/1pxgq15/how_regarded_am_i/)
+- [Started doing 0dte since October.](https://www.reddit.com/r/wallstreetbets/comments/1pzyt55/started_doing_0dte_since_october/)
+- [1-day 1000% gain!!!!](https://www.reddit.com/r/wallstreetbets/comments/1pzyc28/1day_1000_gain/)
+- [In BMNR we trust. 🙏](https://www.reddit.com/r/wallstreetbets/comments/1pzwkhc/in_bmnr_we_trust/)
+- [Had a hunch about Intel last week ahead of CES.](https://www.reddit.com/r/wallstreetbets/comments/1pzw4ca/had_a_hunch_about_intel_last_week_ahead_of_ces/)
+- [Stegosaurus pattern is back on SPY](https://www.reddit.com/r/wallstreetbets/comments/1pzvpzm/stegosaurus_pattern_is_back_on_spy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
