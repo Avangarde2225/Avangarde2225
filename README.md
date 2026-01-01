@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Started doing 0dte since October.](https://www.reddit.com/r/wallstreetbets/comments/1pzyt55/started_doing_0dte_since_october/)
-- [1-day 1000% gain!!!!](https://www.reddit.com/r/wallstreetbets/comments/1pzyc28/1day_1000_gain/)
-- [In BMNR we trust. 🙏](https://www.reddit.com/r/wallstreetbets/comments/1pzwkhc/in_bmnr_we_trust/)
-- [Had a hunch about Intel last week ahead of CES.](https://www.reddit.com/r/wallstreetbets/comments/1pzw4ca/had_a_hunch_about_intel_last_week_ahead_of_ces/)
-- [Stegosaurus pattern is back on SPY](https://www.reddit.com/r/wallstreetbets/comments/1pzvpzm/stegosaurus_pattern_is_back_on_spy/)
+- [1st full year trading](https://www.reddit.com/r/wallstreetbets/comments/1q0rb8t/1st_full_year_trading/)
+- [2025 It’s been Good](https://www.reddit.com/r/wallstreetbets/comments/1q0r6k0/2025_its_been_good/)
+- [IRA ASTS full port](https://www.reddit.com/r/wallstreetbets/comments/1q0qwjh/ira_asts_full_port/)
+- [Year of the regard](https://www.reddit.com/r/wallstreetbets/comments/1q0quf3/year_of_the_regard/)
+- [What a year, totally worth the time and hair line it took to get here.](https://www.reddit.com/r/wallstreetbets/comments/1q0qczy/what_a_year_totally_worth_the_time_and_hair_line/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
