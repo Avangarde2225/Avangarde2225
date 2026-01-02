@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [1st full year trading](https://www.reddit.com/r/wallstreetbets/comments/1q0rb8t/1st_full_year_trading/)
-- [2025 It’s been Good](https://www.reddit.com/r/wallstreetbets/comments/1q0r6k0/2025_its_been_good/)
-- [IRA ASTS full port](https://www.reddit.com/r/wallstreetbets/comments/1q0qwjh/ira_asts_full_port/)
-- [Year of the regard](https://www.reddit.com/r/wallstreetbets/comments/1q0quf3/year_of_the_regard/)
-- [What a year, totally worth the time and hair line it took to get here.](https://www.reddit.com/r/wallstreetbets/comments/1q0qczy/what_a_year_totally_worth_the_time_and_hair_line/)
+- [It&#39;s that time of the year where we all blame the Santa rally](https://www.reddit.com/r/wallstreetbets/comments/1q1izxk/its_that_time_of_the_year_where_we_all_blame_the/)
+- [YOLO again... always down as i say. i need a recovery ASAP](https://www.reddit.com/r/wallstreetbets/comments/1q1f9ay/yolo_again_always_down_as_i_say_i_need_a_recovery/)
+- [What Are Your Moves Tomorrow, January 02, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q1evpf/what_are_your_moves_tomorrow_january_02_2026/)
+- [Liberated. 2025 recap with top winners and losers.](https://www.reddit.com/r/wallstreetbets/comments/1q1ev10/liberated_2025_recap_with_top_winners_and_losers/)
+- [Naw it’s my turn. Next year 4 million](https://www.reddit.com/r/wallstreetbets/comments/1q1e0yk/naw_its_my_turn_next_year_4_million/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
