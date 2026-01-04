@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Micron Gainz](https://www.reddit.com/r/wallstreetbets/comments/1q2dvd7/micron_gainz/)
-- [ZIM option combos 54000% +](https://www.reddit.com/r/wallstreetbets/comments/1q2akdn/zim_option_combos_54000/)
-- [Weekend Discussion Thread for the Weekend of January 02, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q2ae92/weekend_discussion_thread_for_the_weekend_of/)
-- [A fresh start for 2026 hoping to leave all the bad vibes in 2025 behind](https://www.reddit.com/r/wallstreetbets/comments/1q2a326/a_fresh_start_for_2026_hoping_to_leave_all_the/)
-- [Micron &lpar;MU&rpar; Gains](https://www.reddit.com/r/wallstreetbets/comments/1q2936h/micron_mu_gains/)
+- [Venezuela Hostile Takeover &amp; Implications for O I L 🛢️](https://www.reddit.com/r/wallstreetbets/comments/1q3bmj5/venezuela_hostile_takeover_implications_for_o_i_l/)
+- [Maduro overthrow in oil-rich Venezuela unlikely to shake energy markets in the near term](https://www.reddit.com/r/wallstreetbets/comments/1q3bjyr/maduro_overthrow_in_oilrich_venezuela_unlikely_to/)
+- [$400k 2x short RGTI](https://www.reddit.com/r/wallstreetbets/comments/1q34hl1/400k_2x_short_rgti/)
+- [2025 was space and AI, 2026 is too](https://www.reddit.com/r/wallstreetbets/comments/1q30yzr/2025_was_space_and_ai_2026_is_too/)
+- [Take-Two Interactive Discussion](https://www.reddit.com/r/wallstreetbets/comments/1q302oa/taketwo_interactive_discussion/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
