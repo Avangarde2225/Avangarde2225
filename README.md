@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Venezuela Hostile Takeover &amp; Implications for O I L 🛢️](https://www.reddit.com/r/wallstreetbets/comments/1q3bmj5/venezuela_hostile_takeover_implications_for_o_i_l/)
-- [Maduro overthrow in oil-rich Venezuela unlikely to shake energy markets in the near term](https://www.reddit.com/r/wallstreetbets/comments/1q3bjyr/maduro_overthrow_in_oilrich_venezuela_unlikely_to/)
-- [$400k 2x short RGTI](https://www.reddit.com/r/wallstreetbets/comments/1q34hl1/400k_2x_short_rgti/)
-- [2025 was space and AI, 2026 is too](https://www.reddit.com/r/wallstreetbets/comments/1q30yzr/2025_was_space_and_ai_2026_is_too/)
-- [Take-Two Interactive Discussion](https://www.reddit.com/r/wallstreetbets/comments/1q302oa/taketwo_interactive_discussion/)
+- [Crypto Coin founder gives Warren Buffet 4.5m for 1 piece of advice BTC 🤨](https://www.reddit.com/r/wallstreetbets/comments/1q473sv/crypto_coin_founder_gives_warren_buffet_45m_for_1/)
+- [Predictions for the market it 2026](https://www.reddit.com/r/wallstreetbets/comments/1q46xuh/predictions_for_the_market_it_2026/)
+- [Venezuela Currency, what comes next?](https://www.reddit.com/r/wallstreetbets/comments/1q43a5o/venezuela_currency_what_comes_next/)
+- [What Are Your Moves Tomorrow, January 05, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q41fao/what_are_your_moves_tomorrow_january_05_2026/)
+- [Investing changed my life](https://www.reddit.com/r/wallstreetbets/comments/1q402c9/investing_changed_my_life/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
