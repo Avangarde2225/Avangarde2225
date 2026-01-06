@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Crypto Coin founder gives Warren Buffet 4.5m for 1 piece of advice BTC 🤨](https://www.reddit.com/r/wallstreetbets/comments/1q473sv/crypto_coin_founder_gives_warren_buffet_45m_for_1/)
-- [Predictions for the market it 2026](https://www.reddit.com/r/wallstreetbets/comments/1q46xuh/predictions_for_the_market_it_2026/)
-- [Venezuela Currency, what comes next?](https://www.reddit.com/r/wallstreetbets/comments/1q43a5o/venezuela_currency_what_comes_next/)
-- [What Are Your Moves Tomorrow, January 05, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q41fao/what_are_your_moves_tomorrow_january_05_2026/)
-- [Investing changed my life](https://www.reddit.com/r/wallstreetbets/comments/1q402c9/investing_changed_my_life/)
+- [big day for tomorrow boys.. im a regard i know this.](https://www.reddit.com/r/wallstreetbets/comments/1q517co/big_day_for_tomorrow_boys_im_a_regard_i_know_this/)
+- [Yolo’d 14k but value investing style](https://www.reddit.com/r/wallstreetbets/comments/1q4yw8g/yolod_14k_but_value_investing_style/)
+- [What Are Your Moves Tomorrow, January 06, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q4xuld/what_are_your_moves_tomorrow_january_06_2026/)
+- [SKYT ..... everyone is sleeping on this one](https://www.reddit.com/r/wallstreetbets/comments/1q4xmq0/skyt_everyone_is_sleeping_on_this_one/)
+- [all right since people believe its a bull market....](https://www.reddit.com/r/wallstreetbets/comments/1q4vza6/all_right_since_people_believe_its_a_bull_market/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
