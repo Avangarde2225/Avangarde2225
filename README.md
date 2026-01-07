@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [big day for tomorrow boys.. im a regard i know this.](https://www.reddit.com/r/wallstreetbets/comments/1q517co/big_day_for_tomorrow_boys_im_a_regard_i_know_this/)
-- [Yolo’d 14k but value investing style](https://www.reddit.com/r/wallstreetbets/comments/1q4yw8g/yolod_14k_but_value_investing_style/)
-- [What Are Your Moves Tomorrow, January 06, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q4xuld/what_are_your_moves_tomorrow_january_06_2026/)
-- [SKYT ..... everyone is sleeping on this one](https://www.reddit.com/r/wallstreetbets/comments/1q4xmq0/skyt_everyone_is_sleeping_on_this_one/)
-- [all right since people believe its a bull market....](https://www.reddit.com/r/wallstreetbets/comments/1q4vza6/all_right_since_people_believe_its_a_bull_market/)
+- [Nebius to Offer NVIDIA Vera Rubin NVL72 in US and Europe - NVDA builds the platform, NBIS delivers the capacity](https://www.reddit.com/r/wallstreetbets/comments/1q60icv/nebius_to_offer_nvidia_vera_rubin_nvl72_in_us_and/)
+- [SOFI Entry after Goldman Sachs Downgrade](https://www.reddit.com/r/wallstreetbets/comments/1q609sn/sofi_entry_after_goldman_sachs_downgrade/)
+- [Boys. We’re back](https://www.reddit.com/r/wallstreetbets/comments/1q5ztkx/boys_were_back/)
+- [Call me regarded so I can feel better](https://www.reddit.com/r/wallstreetbets/comments/1q5za3f/call_me_regarded_so_i_can_feel_better/)
+- [15k in puts](https://www.reddit.com/r/wallstreetbets/comments/1q5wtl6/15k_in_puts/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
