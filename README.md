@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nebius to Offer NVIDIA Vera Rubin NVL72 in US and Europe - NVDA builds the platform, NBIS delivers the capacity](https://www.reddit.com/r/wallstreetbets/comments/1q60icv/nebius_to_offer_nvidia_vera_rubin_nvl72_in_us_and/)
-- [SOFI Entry after Goldman Sachs Downgrade](https://www.reddit.com/r/wallstreetbets/comments/1q609sn/sofi_entry_after_goldman_sachs_downgrade/)
-- [Boys. We’re back](https://www.reddit.com/r/wallstreetbets/comments/1q5ztkx/boys_were_back/)
-- [Call me regarded so I can feel better](https://www.reddit.com/r/wallstreetbets/comments/1q5za3f/call_me_regarded_so_i_can_feel_better/)
-- [15k in puts](https://www.reddit.com/r/wallstreetbets/comments/1q5wtl6/15k_in_puts/)
+- [RKLB, officially up 420.69% gain at today’s close](https://www.reddit.com/r/wallstreetbets/comments/1q6x3lq/rklb_officially_up_42069_gain_at_todays_close/)
+- [Medicine for everyone](https://www.reddit.com/r/wallstreetbets/comments/1q6wyzs/medicine_for_everyone/)
+- [Asml 26k profit on retirement account](https://www.reddit.com/r/wallstreetbets/comments/1q6v1um/asml_26k_profit_on_retirement_account/)
+- [The Nigerian economy is fraudulent and I&#39;m shorting the fucking Naira](https://www.reddit.com/r/wallstreetbets/comments/1q6tekp/the_nigerian_economy_is_fraudulent_and_im/)
+- [APLD - Applied Digital Reports Fiscal Second Quarter 2026 Results](https://www.reddit.com/r/wallstreetbets/comments/1q6t6zv/apld_applied_digital_reports_fiscal_second/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
