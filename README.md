@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [RKLB, officially up 420.69% gain at today’s close](https://www.reddit.com/r/wallstreetbets/comments/1q6x3lq/rklb_officially_up_42069_gain_at_todays_close/)
-- [Medicine for everyone](https://www.reddit.com/r/wallstreetbets/comments/1q6wyzs/medicine_for_everyone/)
-- [Asml 26k profit on retirement account](https://www.reddit.com/r/wallstreetbets/comments/1q6v1um/asml_26k_profit_on_retirement_account/)
-- [The Nigerian economy is fraudulent and I&#39;m shorting the fucking Naira](https://www.reddit.com/r/wallstreetbets/comments/1q6tekp/the_nigerian_economy_is_fraudulent_and_im/)
-- [APLD - Applied Digital Reports Fiscal Second Quarter 2026 Results](https://www.reddit.com/r/wallstreetbets/comments/1q6t6zv/apld_applied_digital_reports_fiscal_second/)
+- [Reevaluating ETH](https://www.reddit.com/r/wallstreetbets/comments/1q7tfby/reevaluating_eth/)
+- [$8K to $46K in my 0DTE account this week, took out $8K then blew the rest on SPY $588 puts. Wish I took out more, greed &amp; too excited again.](https://www.reddit.com/r/wallstreetbets/comments/1q7sy7u/8k_to_46k_in_my_0dte_account_this_week_took_out/)
+- [Creating a WSB trading strategy based on your opinions](https://www.reddit.com/r/wallstreetbets/comments/1q7sxp7/creating_a_wsb_trading_strategy_based_on_your/)
+- [Apple 300 after er](https://www.reddit.com/r/wallstreetbets/comments/1q7sr3n/apple_300_after_er/)
+- [This app lied to me....WEALTH is not SIMPLE](https://www.reddit.com/r/wallstreetbets/comments/1q7sd5k/this_app_lied_to_mewealth_is_not_simple/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
