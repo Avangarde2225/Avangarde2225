@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Reevaluating ETH](https://www.reddit.com/r/wallstreetbets/comments/1q7tfby/reevaluating_eth/)
-- [$8K to $46K in my 0DTE account this week, took out $8K then blew the rest on SPY $588 puts. Wish I took out more, greed &amp; too excited again.](https://www.reddit.com/r/wallstreetbets/comments/1q7sy7u/8k_to_46k_in_my_0dte_account_this_week_took_out/)
-- [Creating a WSB trading strategy based on your opinions](https://www.reddit.com/r/wallstreetbets/comments/1q7sxp7/creating_a_wsb_trading_strategy_based_on_your/)
-- [Apple 300 after er](https://www.reddit.com/r/wallstreetbets/comments/1q7sr3n/apple_300_after_er/)
-- [This app lied to me....WEALTH is not SIMPLE](https://www.reddit.com/r/wallstreetbets/comments/1q7sd5k/this_app_lied_to_mewealth_is_not_simple/)
+- [$NFLX Break your piggy bank and invest but also $AMC TIME?](https://www.reddit.com/r/wallstreetbets/comments/1q8p593/nflx_break_your_piggy_bank_and_invest_but_also/)
+- [2026 Options Challenge - Trade #3: $75k LULU YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1q8kik7/2026_options_challenge_trade_3_75k_lulu_yolo/)
+- [Up 100% on options that don&#39;t expire for 2+ years... what do?](https://www.reddit.com/r/wallstreetbets/comments/1q8k7lr/up_100_on_options_that_dont_expire_for_2_years/)
+- [Weekend Discussion Thread for the Weekend of January 09, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q8k2ti/weekend_discussion_thread_for_the_weekend_of/)
+- [Quick $70k profit on RDDT calls in 30 minutes](https://www.reddit.com/r/wallstreetbets/comments/1q8gb3q/quick_70k_profit_on_rddt_calls_in_30_minutes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
