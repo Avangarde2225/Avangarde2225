@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$NFLX Break your piggy bank and invest but also $AMC TIME?](https://www.reddit.com/r/wallstreetbets/comments/1q8p593/nflx_break_your_piggy_bank_and_invest_but_also/)
-- [2026 Options Challenge - Trade #3: $75k LULU YOLO!](https://www.reddit.com/r/wallstreetbets/comments/1q8kik7/2026_options_challenge_trade_3_75k_lulu_yolo/)
-- [Up 100% on options that don&#39;t expire for 2+ years... what do?](https://www.reddit.com/r/wallstreetbets/comments/1q8k7lr/up_100_on_options_that_dont_expire_for_2_years/)
-- [Weekend Discussion Thread for the Weekend of January 09, 2026](https://www.reddit.com/r/wallstreetbets/comments/1q8k2ti/weekend_discussion_thread_for_the_weekend_of/)
-- [Quick $70k profit on RDDT calls in 30 minutes](https://www.reddit.com/r/wallstreetbets/comments/1q8gb3q/quick_70k_profit_on_rddt_calls_in_30_minutes/)
+- [The first 100k!](https://www.reddit.com/r/wallstreetbets/comments/1q9im7v/the_first_100k/)
+- [How cooked am i?](https://www.reddit.com/r/wallstreetbets/comments/1q9gjvn/how_cooked_am_i/)
+- [Just some holiday season tendies](https://www.reddit.com/r/wallstreetbets/comments/1q9dtxf/just_some_holiday_season_tendies/)
+- [Oklo ride to 1000$](https://www.reddit.com/r/wallstreetbets/comments/1q9b1qx/oklo_ride_to_1000/)
+- [INTC gain porn. Nana&#39;s gotta be smiling up there ☝️](https://www.reddit.com/r/wallstreetbets/comments/1q9ax50/intc_gain_porn_nanas_gotta_be_smiling_up_there/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
