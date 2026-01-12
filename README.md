@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The first 100k!](https://www.reddit.com/r/wallstreetbets/comments/1q9im7v/the_first_100k/)
-- [How cooked am i?](https://www.reddit.com/r/wallstreetbets/comments/1q9gjvn/how_cooked_am_i/)
-- [Just some holiday season tendies](https://www.reddit.com/r/wallstreetbets/comments/1q9dtxf/just_some_holiday_season_tendies/)
-- [Oklo ride to 1000$](https://www.reddit.com/r/wallstreetbets/comments/1q9b1qx/oklo_ride_to_1000/)
-- [INTC gain porn. Nana&#39;s gotta be smiling up there ☝️](https://www.reddit.com/r/wallstreetbets/comments/1q9ax50/intc_gain_porn_nanas_gotta_be_smiling_up_there/)
+- [US Prosecutors Open Criminal Probe Into Fed’s Powell](https://www.reddit.com/r/wallstreetbets/comments/1qagjb2/us_prosecutors_open_criminal_probe_into_feds/)
+- [Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell](https://www.reddit.com/r/wallstreetbets/comments/1qag5hk/federal_prosecutors_are_said_to_have_opened/)
+- [HIMS loss](https://www.reddit.com/r/wallstreetbets/comments/1qag3xf/hims_loss/)
+- [US Prosecutors Open Criminal Probe Into Fed’s Powell, NYT Says](https://www.reddit.com/r/wallstreetbets/comments/1qafzid/us_prosecutors_open_criminal_probe_into_feds/)
+- [Instead of working at Wendy&#39;s for your calls do this](https://www.reddit.com/r/wallstreetbets/comments/1qafwoc/instead_of_working_at_wendys_for_your_calls_do/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
