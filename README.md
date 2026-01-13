@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [US Prosecutors Open Criminal Probe Into Fed’s Powell](https://www.reddit.com/r/wallstreetbets/comments/1qagjb2/us_prosecutors_open_criminal_probe_into_feds/)
-- [Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell](https://www.reddit.com/r/wallstreetbets/comments/1qag5hk/federal_prosecutors_are_said_to_have_opened/)
-- [HIMS loss](https://www.reddit.com/r/wallstreetbets/comments/1qag3xf/hims_loss/)
-- [US Prosecutors Open Criminal Probe Into Fed’s Powell, NYT Says](https://www.reddit.com/r/wallstreetbets/comments/1qafzid/us_prosecutors_open_criminal_probe_into_feds/)
-- [Instead of working at Wendy&#39;s for your calls do this](https://www.reddit.com/r/wallstreetbets/comments/1qafwoc/instead_of_working_at_wendys_for_your_calls_do/)
+- [Do I put it in Rice?](https://www.reddit.com/r/wallstreetbets/comments/1qbcr3n/do_i_put_it_in_rice/)
+- [Yes BABA!](https://www.reddit.com/r/wallstreetbets/comments/1qbaeq7/yes_baba/)
+- [Mark Zuckerberg says Meta is launching its own AI infrastructure initiative](https://www.reddit.com/r/wallstreetbets/comments/1qb9o1z/mark_zuckerberg_says_meta_is_launching_its_own_ai/)
+- [META - 10% Layoffs in Reality Labs Business](https://www.reddit.com/r/wallstreetbets/comments/1qb90s7/meta_10_layoffs_in_reality_labs_business/)
+- [Highly Regarded play in progress....](https://www.reddit.com/r/wallstreetbets/comments/1qb8ow8/highly_regarded_play_in_progress/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
