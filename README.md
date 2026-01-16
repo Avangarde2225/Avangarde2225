@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [No messing with our big boy!](https://www.reddit.com/r/wallstreetbets/comments/1qc8le9/no_messing_with_our_big_boy/)
-- [I Love Red Pussy Cats](https://www.reddit.com/r/wallstreetbets/comments/1qc85ww/i_love_red_pussy_cats/)
-- [Trump admin officially approves H200 chip sales to China](https://www.reddit.com/r/wallstreetbets/comments/1qc82hb/trump_admin_officially_approves_h200_chip_sales/)
-- [Buy the dip!](https://www.reddit.com/r/wallstreetbets/comments/1qc6pgw/buy_the_dip/)
-- [3 years of hard work](https://www.reddit.com/r/wallstreetbets/comments/1qc6h05/3_years_of_hard_work/)
+- [Which one of you apes has a vision jet?](https://www.reddit.com/r/wallstreetbets/comments/1qe1c0q/which_one_of_you_apes_has_a_vision_jet/)
+- [After 3 years on here, I am moving back to passive investments. 1300% gain.](https://www.reddit.com/r/wallstreetbets/comments/1qdxet6/after_3_years_on_here_i_am_moving_back_to_passive/)
+- [US Taiwan trade deal cuts tariffs to 15% as TSMC commits $250B and adds Arizona chip plants](https://www.reddit.com/r/wallstreetbets/comments/1qdw1sd/us_taiwan_trade_deal_cuts_tariffs_to_15_as_tsmc/)
+- [What Are Your Moves Tomorrow, January 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qdvkpy/what_are_your_moves_tomorrow_january_16_2026/)
+- [This is why RDDT is down ~10% today](https://www.reddit.com/r/wallstreetbets/comments/1qdvipq/this_is_why_rddt_is_down_10_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
