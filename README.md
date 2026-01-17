@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Which one of you apes has a vision jet?](https://www.reddit.com/r/wallstreetbets/comments/1qe1c0q/which_one_of_you_apes_has_a_vision_jet/)
-- [After 3 years on here, I am moving back to passive investments. 1300% gain.](https://www.reddit.com/r/wallstreetbets/comments/1qdxet6/after_3_years_on_here_i_am_moving_back_to_passive/)
-- [US Taiwan trade deal cuts tariffs to 15% as TSMC commits $250B and adds Arizona chip plants](https://www.reddit.com/r/wallstreetbets/comments/1qdw1sd/us_taiwan_trade_deal_cuts_tariffs_to_15_as_tsmc/)
-- [What Are Your Moves Tomorrow, January 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qdvkpy/what_are_your_moves_tomorrow_january_16_2026/)
-- [This is why RDDT is down ~10% today](https://www.reddit.com/r/wallstreetbets/comments/1qdvipq/this_is_why_rddt_is_down_10_today/)
+- [IBRX boomin!](https://www.reddit.com/r/wallstreetbets/comments/1qexlwr/ibrx_boomin/)
+- [Ast$ gains!](https://www.reddit.com/r/wallstreetbets/comments/1qesmvv/ast_gains/)
+- [SMCI full port](https://www.reddit.com/r/wallstreetbets/comments/1qes8wi/smci_full_port/)
+- [Weekend Discussion Thread for the Weekend of January 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qeryvi/weekend_discussion_thread_for_the_weekend_of/)
+- [$ASTS I like the satellite 🛰️](https://www.reddit.com/r/wallstreetbets/comments/1qeqqw1/asts_i_like_the_satellite/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
