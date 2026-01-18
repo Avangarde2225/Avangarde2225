@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [IBRX boomin!](https://www.reddit.com/r/wallstreetbets/comments/1qexlwr/ibrx_boomin/)
-- [Ast$ gains!](https://www.reddit.com/r/wallstreetbets/comments/1qesmvv/ast_gains/)
-- [SMCI full port](https://www.reddit.com/r/wallstreetbets/comments/1qes8wi/smci_full_port/)
-- [Weekend Discussion Thread for the Weekend of January 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qeryvi/weekend_discussion_thread_for_the_weekend_of/)
-- [$ASTS I like the satellite 🛰️](https://www.reddit.com/r/wallstreetbets/comments/1qeqqw1/asts_i_like_the_satellite/)
+- [Self fulfilling comic in the feed.](https://www.reddit.com/r/wallstreetbets/comments/1qftg3f/self_fulfilling_comic_in_the_feed/)
+- [Trump buys $1m in Netflix and Warner Bros bonds days after saying he’ll ‘be involved’ in merger](https://www.reddit.com/r/wallstreetbets/comments/1qftbt0/trump_buys_1m_in_netflix_and_warner_bros_bonds/)
+- [Stock Market in a Nut shell](https://www.reddit.com/r/wallstreetbets/comments/1qft5ig/stock_market_in_a_nut_shell/)
+- [Half million $POET yolo](https://www.reddit.com/r/wallstreetbets/comments/1qfs8c5/half_million_poet_yolo/)
+- [Got these like a true regard before market close on Friday!](https://www.reddit.com/r/wallstreetbets/comments/1qfryf1/got_these_like_a_true_regard_before_market_close/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
