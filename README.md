@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Self fulfilling comic in the feed.](https://www.reddit.com/r/wallstreetbets/comments/1qftg3f/self_fulfilling_comic_in_the_feed/)
-- [Trump buys $1m in Netflix and Warner Bros bonds days after saying he’ll ‘be involved’ in merger](https://www.reddit.com/r/wallstreetbets/comments/1qftbt0/trump_buys_1m_in_netflix_and_warner_bros_bonds/)
-- [Stock Market in a Nut shell](https://www.reddit.com/r/wallstreetbets/comments/1qft5ig/stock_market_in_a_nut_shell/)
-- [Half million $POET yolo](https://www.reddit.com/r/wallstreetbets/comments/1qfs8c5/half_million_poet_yolo/)
-- [Got these like a true regard before market close on Friday!](https://www.reddit.com/r/wallstreetbets/comments/1qfryf1/got_these_like_a_true_regard_before_market_close/)
+- [Nostradamus.](https://www.reddit.com/r/wallstreetbets/comments/1qgoxrc/nostradamus/)
+- [Bets late Friday](https://www.reddit.com/r/wallstreetbets/comments/1qgo3vh/bets_late_friday/)
+- [EU holds back €93B trade bazooka as it seeks diplomacy with US over Greenland tariff threat](https://www.reddit.com/r/wallstreetbets/comments/1qgledb/eu_holds_back_93b_trade_bazooka_as_it_seeks/)
+- [What Are Your Moves Tomorrow, January 19, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qgk3q8/what_are_your_moves_tomorrow_january_19_2026/)
+- [US markets until Tuesday](https://www.reddit.com/r/wallstreetbets/comments/1qgfl3v/us_markets_until_tuesday/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
