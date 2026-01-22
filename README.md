@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nostradamus.](https://www.reddit.com/r/wallstreetbets/comments/1qgoxrc/nostradamus/)
-- [Bets late Friday](https://www.reddit.com/r/wallstreetbets/comments/1qgo3vh/bets_late_friday/)
-- [EU holds back €93B trade bazooka as it seeks diplomacy with US over Greenland tariff threat](https://www.reddit.com/r/wallstreetbets/comments/1qgledb/eu_holds_back_93b_trade_bazooka_as_it_seeks/)
-- [What Are Your Moves Tomorrow, January 19, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qgk3q8/what_are_your_moves_tomorrow_january_19_2026/)
-- [US markets until Tuesday](https://www.reddit.com/r/wallstreetbets/comments/1qgfl3v/us_markets_until_tuesday/)
+- [$800 &gt; $49k in one hour.](https://www.reddit.com/r/wallstreetbets/comments/1qjff2t/800_49k_in_one_hour/)
+- [NFLX 257K YOLO — 2x LEVERAGE, WE BALL](https://www.reddit.com/r/wallstreetbets/comments/1qjd32p/nflx_257k_yolo_2x_leverage_we_ball/)
+- [My $10k regarded Dr. Pepper options play is up 31% on Day 1. DD in comments](https://www.reddit.com/r/wallstreetbets/comments/1qjcxud/my_10k_regarded_dr_pepper_options_play_is_up_31/)
+- [Guess who&#39;s back on the market](https://www.reddit.com/r/wallstreetbets/comments/1qjceoa/guess_whos_back_on_the_market/)
+- [Made 40k in 2months. Lost in 20mins](https://www.reddit.com/r/wallstreetbets/comments/1qjapu4/made_40k_in_2months_lost_in_20mins/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
