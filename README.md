@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$800 &gt; $49k in one hour.](https://www.reddit.com/r/wallstreetbets/comments/1qjff2t/800_49k_in_one_hour/)
-- [NFLX 257K YOLO — 2x LEVERAGE, WE BALL](https://www.reddit.com/r/wallstreetbets/comments/1qjd32p/nflx_257k_yolo_2x_leverage_we_ball/)
-- [My $10k regarded Dr. Pepper options play is up 31% on Day 1. DD in comments](https://www.reddit.com/r/wallstreetbets/comments/1qjcxud/my_10k_regarded_dr_pepper_options_play_is_up_31/)
-- [Guess who&#39;s back on the market](https://www.reddit.com/r/wallstreetbets/comments/1qjceoa/guess_whos_back_on_the_market/)
-- [Made 40k in 2months. Lost in 20mins](https://www.reddit.com/r/wallstreetbets/comments/1qjapu4/made_40k_in_2months_lost_in_20mins/)
+- [Marc Benioff has a change of heart](https://www.reddit.com/r/wallstreetbets/comments/1qkbzcm/marc_benioff_has_a_change_of_heart/)
+- [Amazon Gears Up to Ax Thousands More Corporate Employees](https://www.reddit.com/r/wallstreetbets/comments/1qkbmi7/amazon_gears_up_to_ax_thousands_more_corporate/)
+- [Should I take a bet on love?](https://www.reddit.com/r/wallstreetbets/comments/1qkax3c/should_i_take_a_bet_on_love/)
+- [Amazon Just announces a new round of Lay-offs. Combined with AI driven lay-offs. $AMZN](https://www.reddit.com/r/wallstreetbets/comments/1qk8t8l/amazon_just_announces_a_new_round_of_layoffs/)
+- [Capital One to acquire fintech startup Brex for $5.15 billion deal.](https://www.reddit.com/r/wallstreetbets/comments/1qk8aao/capital_one_to_acquire_fintech_startup_brex_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
