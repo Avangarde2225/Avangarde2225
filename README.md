@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Marc Benioff has a change of heart](https://www.reddit.com/r/wallstreetbets/comments/1qkbzcm/marc_benioff_has_a_change_of_heart/)
-- [Amazon Gears Up to Ax Thousands More Corporate Employees](https://www.reddit.com/r/wallstreetbets/comments/1qkbmi7/amazon_gears_up_to_ax_thousands_more_corporate/)
-- [Should I take a bet on love?](https://www.reddit.com/r/wallstreetbets/comments/1qkax3c/should_i_take_a_bet_on_love/)
-- [Amazon Just announces a new round of Lay-offs. Combined with AI driven lay-offs. $AMZN](https://www.reddit.com/r/wallstreetbets/comments/1qk8t8l/amazon_just_announces_a_new_round_of_layoffs/)
-- [Capital One to acquire fintech startup Brex for $5.15 billion deal.](https://www.reddit.com/r/wallstreetbets/comments/1qk8aao/capital_one_to_acquire_fintech_startup_brex_for/)
+- [POET 45K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ql7fg1/poet_45k_yolo/)
+- [$ONDS pls show me glory. $5k calls expiring 1/30](https://www.reddit.com/r/wallstreetbets/comments/1ql4rkk/onds_pls_show_me_glory_5k_calls_expiring_130/)
+- [Precious metal fun&lpar;d&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ql3jku/precious_metal_fund/)
+- [Finally closed a generational fumble after many years of holding 🎉🎉](https://www.reddit.com/r/wallstreetbets/comments/1ql3gir/finally_closed_a_generational_fumble_after_many/)
+- [Weekend Discussion Thread for the Weekend of January 23, 2026](https://www.reddit.com/r/wallstreetbets/comments/1ql2qwg/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
