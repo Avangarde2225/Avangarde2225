@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [POET 45K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1ql7fg1/poet_45k_yolo/)
-- [$ONDS pls show me glory. $5k calls expiring 1/30](https://www.reddit.com/r/wallstreetbets/comments/1ql4rkk/onds_pls_show_me_glory_5k_calls_expiring_130/)
-- [Precious metal fun&lpar;d&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ql3jku/precious_metal_fund/)
-- [Finally closed a generational fumble after many years of holding 🎉🎉](https://www.reddit.com/r/wallstreetbets/comments/1ql3gir/finally_closed_a_generational_fumble_after_many/)
-- [Weekend Discussion Thread for the Weekend of January 23, 2026](https://www.reddit.com/r/wallstreetbets/comments/1ql2qwg/weekend_discussion_thread_for_the_weekend_of/)
+- [$340,000 short silver via the 2x inverse leverage ETF ZSL](https://www.reddit.com/r/wallstreetbets/comments/1qm0lr6/340000_short_silver_via_the_2x_inverse_leverage/)
+- [Apple turning to Intel for future iPhone chips, analyst reaffirms](https://www.reddit.com/r/wallstreetbets/comments/1qlqu9k/apple_turning_to_intel_for_future_iphone_chips/)
+- [New Berkshire CEO Abel quickly signals troubled Kraft Heinz stake could be toast](https://www.reddit.com/r/wallstreetbets/comments/1qlpx24/new_berkshire_ceo_abel_quickly_signals_troubled/)
+- [Thank you $UA $UAA](https://www.reddit.com/r/wallstreetbets/comments/1qlps5g/thank_you_ua_uaa/)
+- [Czech arms maker CSG soars on trading debut to hit $35 billion valuation](https://www.reddit.com/r/wallstreetbets/comments/1qlf3l0/czech_arms_maker_csg_soars_on_trading_debut_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
