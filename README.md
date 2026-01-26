@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$340,000 short silver via the 2x inverse leverage ETF ZSL](https://www.reddit.com/r/wallstreetbets/comments/1qm0lr6/340000_short_silver_via_the_2x_inverse_leverage/)
-- [Apple turning to Intel for future iPhone chips, analyst reaffirms](https://www.reddit.com/r/wallstreetbets/comments/1qlqu9k/apple_turning_to_intel_for_future_iphone_chips/)
-- [New Berkshire CEO Abel quickly signals troubled Kraft Heinz stake could be toast](https://www.reddit.com/r/wallstreetbets/comments/1qlpx24/new_berkshire_ceo_abel_quickly_signals_troubled/)
-- [Thank you $UA $UAA](https://www.reddit.com/r/wallstreetbets/comments/1qlps5g/thank_you_ua_uaa/)
-- [Czech arms maker CSG soars on trading debut to hit $35 billion valuation](https://www.reddit.com/r/wallstreetbets/comments/1qlf3l0/czech_arms_maker_csg_soars_on_trading_debut_to/)
+- [$ENPH - solar the next 5-10x 🌕 ☀️](https://www.reddit.com/r/wallstreetbets/comments/1qn06i0/enph_solar_the_next_510x/)
+- [they got us again!](https://www.reddit.com/r/wallstreetbets/comments/1qmzkr2/they_got_us_again/)
+- [Pagaya &lpar;$PGY&rpar; - Stars Are Aligning for this AI-backed Fintech](https://www.reddit.com/r/wallstreetbets/comments/1qmzgln/pagaya_pgy_stars_are_aligning_for_this_aibacked/)
+- [My past year as a Bitcoin Maxi](https://www.reddit.com/r/wallstreetbets/comments/1qmzbab/my_past_year_as_a_bitcoin_maxi/)
+- [FUTURES: Nasdaq, Russel, Dow Jones, and S&amp;P open red on fears of a new shutdown coming by January 31st.](https://www.reddit.com/r/wallstreetbets/comments/1qmym7a/futures_nasdaq_russel_dow_jones_and_sp_open_red/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
