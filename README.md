@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$ENPH - solar the next 5-10x 🌕 ☀️](https://www.reddit.com/r/wallstreetbets/comments/1qn06i0/enph_solar_the_next_510x/)
-- [they got us again!](https://www.reddit.com/r/wallstreetbets/comments/1qmzkr2/they_got_us_again/)
-- [Pagaya &lpar;$PGY&rpar; - Stars Are Aligning for this AI-backed Fintech](https://www.reddit.com/r/wallstreetbets/comments/1qmzgln/pagaya_pgy_stars_are_aligning_for_this_aibacked/)
-- [My past year as a Bitcoin Maxi](https://www.reddit.com/r/wallstreetbets/comments/1qmzbab/my_past_year_as_a_bitcoin_maxi/)
-- [FUTURES: Nasdaq, Russel, Dow Jones, and S&amp;P open red on fears of a new shutdown coming by January 31st.](https://www.reddit.com/r/wallstreetbets/comments/1qmym7a/futures_nasdaq_russel_dow_jones_and_sp_open_red/)
+- [Cameco/energy supercycle &lpar;my gains&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1qouuam/camecoenergy_supercycle_my_gains/)
+- [It is time for META to recover from its fall](https://www.reddit.com/r/wallstreetbets/comments/1qoudh7/it_is_time_for_meta_to_recover_from_its_fall/)
+- [Trying to get opinion in regards to quantumscape calls swing trade](https://www.reddit.com/r/wallstreetbets/comments/1qosq6z/trying_to_get_opinion_in_regards_to_quantumscape/)
+- [Mostly all in on AUR](https://www.reddit.com/r/wallstreetbets/comments/1qorpin/mostly_all_in_on_aur/)
+- [Let&#39;s ride, regards. $60k+ 0dte on silver and gold](https://www.reddit.com/r/wallstreetbets/comments/1qor986/lets_ride_regards_60k_0dte_on_silver_and_gold/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
