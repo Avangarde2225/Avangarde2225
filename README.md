@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cameco/energy supercycle &lpar;my gains&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1qouuam/camecoenergy_supercycle_my_gains/)
-- [It is time for META to recover from its fall](https://www.reddit.com/r/wallstreetbets/comments/1qoudh7/it_is_time_for_meta_to_recover_from_its_fall/)
-- [Trying to get opinion in regards to quantumscape calls swing trade](https://www.reddit.com/r/wallstreetbets/comments/1qosq6z/trying_to_get_opinion_in_regards_to_quantumscape/)
-- [Mostly all in on AUR](https://www.reddit.com/r/wallstreetbets/comments/1qorpin/mostly_all_in_on_aur/)
-- [Let&#39;s ride, regards. $60k+ 0dte on silver and gold](https://www.reddit.com/r/wallstreetbets/comments/1qor986/lets_ride_regards_60k_0dte_on_silver_and_gold/)
+- [I&#39;m the guy who lost $100k on silver yesterday. Today I made it all back and more betting against the market.](https://www.reddit.com/r/wallstreetbets/comments/1qqpqla/im_the_guy_who_lost_100k_on_silver_yesterday/)
+- [SLV and GLD are the FUTURE&lpar;s&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1qqndmn/slv_and_gld_are_the_futures/)
+- [All things in balance](https://www.reddit.com/r/wallstreetbets/comments/1qqmpeh/all_things_in_balance/)
+- [Apple sales surge 16% on ‘staggering’ iPhone demand](https://www.reddit.com/r/wallstreetbets/comments/1qqm6m9/apple_sales_surge_16_on_staggering_iphone_demand/)
+- [Sandisk Earnings goes brrr](https://www.reddit.com/r/wallstreetbets/comments/1qqlfpi/sandisk_earnings_goes_brrr/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
