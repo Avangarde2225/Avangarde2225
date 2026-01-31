@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I&#39;m the guy who lost $100k on silver yesterday. Today I made it all back and more betting against the market.](https://www.reddit.com/r/wallstreetbets/comments/1qqpqla/im_the_guy_who_lost_100k_on_silver_yesterday/)
-- [SLV and GLD are the FUTURE&lpar;s&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1qqndmn/slv_and_gld_are_the_futures/)
-- [All things in balance](https://www.reddit.com/r/wallstreetbets/comments/1qqmpeh/all_things_in_balance/)
-- [Apple sales surge 16% on ‘staggering’ iPhone demand](https://www.reddit.com/r/wallstreetbets/comments/1qqm6m9/apple_sales_surge_16_on_staggering_iphone_demand/)
-- [Sandisk Earnings goes brrr](https://www.reddit.com/r/wallstreetbets/comments/1qqlfpi/sandisk_earnings_goes_brrr/)
+- [Metropolitan Capital Bank &amp; Trust Collapses](https://www.reddit.com/r/wallstreetbets/comments/1qrn233/metropolitan_capital_bank_trust_collapses/)
+- [The $100 Billion Megadeal Between OpenAI and Nvidia Is on Ice](https://www.reddit.com/r/wallstreetbets/comments/1qrmhs9/the_100_billion_megadeal_between_openai_and/)
+- [Copper is tumbling from record highs. Why a larger correction could be looming.](https://www.reddit.com/r/wallstreetbets/comments/1qrki7d/copper_is_tumbling_from_record_highs_why_a_larger/)
+- [A beautiful $80k loss](https://www.reddit.com/r/wallstreetbets/comments/1qrjkqp/a_beautiful_80k_loss/)
+- [I had fun](https://www.reddit.com/r/wallstreetbets/comments/1qrj9xz/i_had_fun/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
