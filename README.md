@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Metropolitan Capital Bank &amp; Trust Collapses](https://www.reddit.com/r/wallstreetbets/comments/1qrn233/metropolitan_capital_bank_trust_collapses/)
-- [The $100 Billion Megadeal Between OpenAI and Nvidia Is on Ice](https://www.reddit.com/r/wallstreetbets/comments/1qrmhs9/the_100_billion_megadeal_between_openai_and/)
-- [Copper is tumbling from record highs. Why a larger correction could be looming.](https://www.reddit.com/r/wallstreetbets/comments/1qrki7d/copper_is_tumbling_from_record_highs_why_a_larger/)
-- [A beautiful $80k loss](https://www.reddit.com/r/wallstreetbets/comments/1qrjkqp/a_beautiful_80k_loss/)
-- [I had fun](https://www.reddit.com/r/wallstreetbets/comments/1qrj9xz/i_had_fun/)
+- [The current silver market at monkey levels explained](https://www.reddit.com/r/wallstreetbets/comments/1qsjh65/the_current_silver_market_at_monkey_levels/)
+- [MSFT has underperformed the S&amp;P 500 in the past 5 years](https://www.reddit.com/r/wallstreetbets/comments/1qsixft/msft_has_underperformed_the_sp_500_in_the_past_5/)
+- [Tesla just made it clear: It&#39;s no longer a car company](https://www.reddit.com/r/wallstreetbets/comments/1qsi5iz/tesla_just_made_it_clear_its_no_longer_a_car/)
+- [China’s ‘gold fever’ sparks US$1 billion scandal as trading platform collapses](https://www.reddit.com/r/wallstreetbets/comments/1qsh6sp/chinas_gold_fever_sparks_us1_billion_scandal_as/)
+- [After Blowout Earnings, Why SNDK Sandisk is the best Momentum Play right now](https://www.reddit.com/r/wallstreetbets/comments/1qsf4y4/after_blowout_earnings_why_sndk_sandisk_is_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
