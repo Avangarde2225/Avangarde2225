@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The current silver market at monkey levels explained](https://www.reddit.com/r/wallstreetbets/comments/1qsjh65/the_current_silver_market_at_monkey_levels/)
-- [MSFT has underperformed the S&amp;P 500 in the past 5 years](https://www.reddit.com/r/wallstreetbets/comments/1qsixft/msft_has_underperformed_the_sp_500_in_the_past_5/)
-- [Tesla just made it clear: It&#39;s no longer a car company](https://www.reddit.com/r/wallstreetbets/comments/1qsi5iz/tesla_just_made_it_clear_its_no_longer_a_car/)
-- [China’s ‘gold fever’ sparks US$1 billion scandal as trading platform collapses](https://www.reddit.com/r/wallstreetbets/comments/1qsh6sp/chinas_gold_fever_sparks_us1_billion_scandal_as/)
-- [After Blowout Earnings, Why SNDK Sandisk is the best Momentum Play right now](https://www.reddit.com/r/wallstreetbets/comments/1qsf4y4/after_blowout_earnings_why_sndk_sandisk_is_the/)
+- [Recovery!!](https://www.reddit.com/r/wallstreetbets/comments/1qtfj2n/recovery/)
+- [Intel Regard](https://www.reddit.com/r/wallstreetbets/comments/1qtdu4q/intel_regard/)
+- [What Are Your Moves Tomorrow, February 02, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qtajzr/what_are_your_moves_tomorrow_february_02_2026/)
+- [India gives 20-year tax holiday to foreign firms using local data centres.](https://www.reddit.com/r/wallstreetbets/comments/1qt35mv/india_gives_20year_tax_holiday_to_foreign_firms/)
+- [US, UK, EU, Australia and more to meet to discuss critical minerals alliance | Mining](https://www.reddit.com/r/wallstreetbets/comments/1qszoat/us_uk_eu_australia_and_more_to_meet_to_discuss/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
