@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Recovery!!](https://www.reddit.com/r/wallstreetbets/comments/1qtfj2n/recovery/)
-- [Intel Regard](https://www.reddit.com/r/wallstreetbets/comments/1qtdu4q/intel_regard/)
-- [What Are Your Moves Tomorrow, February 02, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qtajzr/what_are_your_moves_tomorrow_february_02_2026/)
-- [India gives 20-year tax holiday to foreign firms using local data centres.](https://www.reddit.com/r/wallstreetbets/comments/1qt35mv/india_gives_20year_tax_holiday_to_foreign_firms/)
-- [US, UK, EU, Australia and more to meet to discuss critical minerals alliance | Mining](https://www.reddit.com/r/wallstreetbets/comments/1qszoat/us_uk_eu_australia_and_more_to_meet_to_discuss/)
+- [Bought at the top. Worst timing imaginable 😭](https://www.reddit.com/r/wallstreetbets/comments/1qudcu8/bought_at_the_top_worst_timing_imaginable/)
+- [SPY $69 confirmed](https://www.reddit.com/r/wallstreetbets/comments/1qubqj4/spy_69_confirmed/)
+- [Buy the dip on any memory stock. SNDK, MU, STX, WDC.](https://www.reddit.com/r/wallstreetbets/comments/1quajyq/buy_the_dip_on_any_memory_stock_sndk_mu_stx_wdc/)
+- [SMCI 2X Leverage YOLO](https://www.reddit.com/r/wallstreetbets/comments/1quag51/smci_2x_leverage_yolo/)
+- [OpenAI reportedly seeking alternatives to Nvidia chips, unhappy with inference performance](https://www.reddit.com/r/wallstreetbets/comments/1qu99bu/openai_reportedly_seeking_alternatives_to_nvidia/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
