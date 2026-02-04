@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Bought at the top. Worst timing imaginable 😭](https://www.reddit.com/r/wallstreetbets/comments/1qudcu8/bought_at_the_top_worst_timing_imaginable/)
-- [SPY $69 confirmed](https://www.reddit.com/r/wallstreetbets/comments/1qubqj4/spy_69_confirmed/)
-- [Buy the dip on any memory stock. SNDK, MU, STX, WDC.](https://www.reddit.com/r/wallstreetbets/comments/1quajyq/buy_the_dip_on_any_memory_stock_sndk_mu_stx_wdc/)
-- [SMCI 2X Leverage YOLO](https://www.reddit.com/r/wallstreetbets/comments/1quag51/smci_2x_leverage_yolo/)
-- [OpenAI reportedly seeking alternatives to Nvidia chips, unhappy with inference performance](https://www.reddit.com/r/wallstreetbets/comments/1qu99bu/openai_reportedly_seeking_alternatives_to_nvidia/)
+- [Do ya&#39;ll remember this guy? He said he&#39;d hold but something tells me otherwise.](https://www.reddit.com/r/wallstreetbets/comments/1qv9goc/do_yall_remember_this_guy_he_said_hed_hold_but/)
+- [Once as high $360 billion PayPal’s market value has slipped to $40 billion, below former parent, eBay](https://www.reddit.com/r/wallstreetbets/comments/1qv8pql/once_as_high_360_billion_paypals_market_value_has/)
+- [Lost All of my money and have a car payment due](https://www.reddit.com/r/wallstreetbets/comments/1qv830c/lost_all_of_my_money_and_have_a_car_payment_due/)
+- [Chipotle stock sinks as restaurant chain reports falling traffic, weak guidance](https://www.reddit.com/r/wallstreetbets/comments/1qv5en5/chipotle_stock_sinks_as_restaurant_chain_reports/)
+- [AMD Reports Fourth Quarter and Full Year 2025 Financial Results](https://www.reddit.com/r/wallstreetbets/comments/1qv4puk/amd_reports_fourth_quarter_and_full_year_2025/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
