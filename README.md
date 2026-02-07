@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Can I file bankruptcy?](https://www.reddit.com/r/wallstreetbets/comments/1qx2mdl/can_i_file_bankruptcy/)
-- [My wife doesn’t know](https://www.reddit.com/r/wallstreetbets/comments/1qx1avo/my_wife_doesnt_know/)
-- [Please make it stop](https://www.reddit.com/r/wallstreetbets/comments/1qx0utz/please_make_it_stop/)
-- [Likelihood of Silver pumping 50% tomorrow and saving my account?](https://www.reddit.com/r/wallstreetbets/comments/1qx0i82/likelihood_of_silver_pumping_50_tomorrow_and/)
-- [Am I Fuckd😭](https://www.reddit.com/r/wallstreetbets/comments/1qwykgb/am_i_fuckd/)
+- [Buy the dip fa*****](https://www.reddit.com/r/wallstreetbets/comments/1qxxq8z/buy_the_dip_fa/)
+- [Aand it&#39;s gone.](https://www.reddit.com/r/wallstreetbets/comments/1qxwm51/aand_its_gone/)
+- [FDA Intends to Take Action Against Non-FDA-Approved GLP-1 Drugs](https://www.reddit.com/r/wallstreetbets/comments/1qxvqfc/fda_intends_to_take_action_against_nonfdaapproved/)
+- [Hims &amp; Hers Health -12% after hours after FDA moves to restrict copycat weight loss drugs sold by pharma rivals](https://www.reddit.com/r/wallstreetbets/comments/1qxvoc5/hims_hers_health_12_after_hours_after_fda_moves/)
+- [Welcome to EBT buddy.](https://www.reddit.com/r/wallstreetbets/comments/1qxvoag/welcome_to_ebt_buddy/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
