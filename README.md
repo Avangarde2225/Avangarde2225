@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Buy the dip fa*****](https://www.reddit.com/r/wallstreetbets/comments/1qxxq8z/buy_the_dip_fa/)
-- [Aand it&#39;s gone.](https://www.reddit.com/r/wallstreetbets/comments/1qxwm51/aand_its_gone/)
-- [FDA Intends to Take Action Against Non-FDA-Approved GLP-1 Drugs](https://www.reddit.com/r/wallstreetbets/comments/1qxvqfc/fda_intends_to_take_action_against_nonfdaapproved/)
-- [Hims &amp; Hers Health -12% after hours after FDA moves to restrict copycat weight loss drugs sold by pharma rivals](https://www.reddit.com/r/wallstreetbets/comments/1qxvoc5/hims_hers_health_12_after_hours_after_fda_moves/)
-- [Welcome to EBT buddy.](https://www.reddit.com/r/wallstreetbets/comments/1qxvoag/welcome_to_ebt_buddy/)
+- [SPY Calls After Red Day](https://www.reddit.com/r/wallstreetbets/comments/1qytcsh/spy_calls_after_red_day/)
+- [$HIMS YOLO](https://www.reddit.com/r/wallstreetbets/comments/1qyr0v5/hims_yolo/)
+- [Hims &amp; Hers to stop offering copies of Novo Nordisk&#39;s new Wegovy pill](https://www.reddit.com/r/wallstreetbets/comments/1qyo3ey/hims_hers_to_stop_offering_copies_of_novo/)
+- [Can someone pick me up on the way to $155+ by March 20th? K thx bye. RDDT](https://www.reddit.com/r/wallstreetbets/comments/1qynkvk/can_someone_pick_me_up_on_the_way_to_155_by_march/)
+- [FAFO](https://www.reddit.com/r/wallstreetbets/comments/1qymh98/fafo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
