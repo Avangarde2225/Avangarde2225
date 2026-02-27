@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Transferring my bullshit retirement into my day trading account](https://www.reddit.com/r/wallstreetbets/comments/1qzoqq2/transferring_my_bullshit_retirement_into_my_day/)
-- [What Are Your Moves Tomorrow, February 09, 2026](https://www.reddit.com/r/wallstreetbets/comments/1qzklw7/what_are_your_moves_tomorrow_february_09_2026/)
-- [RDDT is a powder keg](https://www.reddit.com/r/wallstreetbets/comments/1qzjzun/rddt_is_a_powder_keg/)
-- [Don&#39;t trust the Monday rally](https://www.reddit.com/r/wallstreetbets/comments/1qz92yi/dont_trust_the_monday_rally/)
-- [King Buffet 💪](https://www.reddit.com/r/wallstreetbets/comments/1qz76la/king_buffet/)
+- [EBay lays off 6% of global workforce in an effort to “reinvent” its business](https://www.reddit.com/r/wallstreetbets/comments/1rfs35n/ebay_lays_off_6_of_global_workforce_in_an_effort/)
+- [it literally can&#39;t go tits up](https://www.reddit.com/r/wallstreetbets/comments/1rfr9g9/it_literally_cant_go_tits_up/)
+- [NFLX has me excited for tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1rfr412/nflx_has_me_excited_for_tomorrow/)
+- [Netflix declines to raise offer for Warner Bros](https://www.reddit.com/r/wallstreetbets/comments/1rfpgdw/netflix_declines_to_raise_offer_for_warner_bros/)
+- [Layoffs Citing AI - Block](https://www.reddit.com/r/wallstreetbets/comments/1rfol9m/layoffs_citing_ai_block/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
