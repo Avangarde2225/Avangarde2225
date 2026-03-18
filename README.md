@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Thought I was done for! SPY bounce saved me. What a day full of anxiety!!!](https://www.reddit.com/r/wallstreetbets/comments/1rvs0c1/thought_i_was_done_for_spy_bounce_saved_me_what_a/)
-- [Two years ago. Been deflating currency before it was cool](https://www.reddit.com/r/wallstreetbets/comments/1rvp79p/two_years_ago_been_deflating_currency_before_it/)
-- [USO Puts cooked with gas](https://www.reddit.com/r/wallstreetbets/comments/1rvo2cv/uso_puts_cooked_with_gas/)
-- [All in a Days Work!](https://www.reddit.com/r/wallstreetbets/comments/1rvmlm3/all_in_a_days_work/)
-- [Press Release: Micron in High-Volume Production of HBM4 Designed for NVIDIA Vera Rubin, PCIe Gen6 SSD and SOCAMM2](https://www.reddit.com/r/wallstreetbets/comments/1rvmkz5/press_release_micron_in_highvolume_production_of/)
+- [Option trading cost me 173 k in fees last year. Is there a bigger degenerate than I ?](https://www.reddit.com/r/wallstreetbets/comments/1rwpf42/option_trading_cost_me_173_k_in_fees_last_year_is/)
+- [A meteor just hit Ohio today.. this is the plot to every Alien invasion movie ever. Puts on SPY?](https://www.reddit.com/r/wallstreetbets/comments/1rwpf3e/a_meteor_just_hit_ohio_today_this_is_the_plot_to/)
+- [This is my down payment for a house](https://www.reddit.com/r/wallstreetbets/comments/1rwkrk7/this_is_my_down_payment_for_a_house/)
+- [What Are Your Moves Tomorrow, March 18, 2026](https://www.reddit.com/r/wallstreetbets/comments/1rwhi8d/what_are_your_moves_tomorrow_march_18_2026/)
+- [Swung a Decent-Sized Hammer on $SOC – Drill Baby Drill 🛢️🚀](https://www.reddit.com/r/wallstreetbets/comments/1rwgq14/swung_a_decentsized_hammer_on_soc_drill_baby_drill/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
