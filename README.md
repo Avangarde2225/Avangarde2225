@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Option trading cost me 173 k in fees last year. Is there a bigger degenerate than I ?](https://www.reddit.com/r/wallstreetbets/comments/1rwpf42/option_trading_cost_me_173_k_in_fees_last_year_is/)
-- [A meteor just hit Ohio today.. this is the plot to every Alien invasion movie ever. Puts on SPY?](https://www.reddit.com/r/wallstreetbets/comments/1rwpf3e/a_meteor_just_hit_ohio_today_this_is_the_plot_to/)
-- [This is my down payment for a house](https://www.reddit.com/r/wallstreetbets/comments/1rwkrk7/this_is_my_down_payment_for_a_house/)
-- [What Are Your Moves Tomorrow, March 18, 2026](https://www.reddit.com/r/wallstreetbets/comments/1rwhi8d/what_are_your_moves_tomorrow_march_18_2026/)
-- [Swung a Decent-Sized Hammer on $SOC – Drill Baby Drill 🛢️🚀](https://www.reddit.com/r/wallstreetbets/comments/1rwgq14/swung_a_decentsized_hammer_on_soc_drill_baby_drill/)
+- [How cooked am I?](https://www.reddit.com/r/wallstreetbets/comments/1s12t77/how_cooked_am_i/)
+- [Patent for Semaglutide, the active ingredient in Ozempic and Wegovy expired in India on March 20](https://www.reddit.com/r/wallstreetbets/comments/1s12s2z/patent_for_semaglutide_the_active_ingredient_in/)
+- [Cooked by 3MSF](https://www.reddit.com/r/wallstreetbets/comments/1s12nx8/cooked_by_3msf/)
+- [The first candle my portfolio is going to see Monday morning](https://www.reddit.com/r/wallstreetbets/comments/1s1217t/the_first_candle_my_portfolio_is_going_to_see/)
+- [Who’s still holding lol](https://www.reddit.com/r/wallstreetbets/comments/1s11uoc/whos_still_holding_lol/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
