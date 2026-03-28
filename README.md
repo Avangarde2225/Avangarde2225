@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How cooked am I?](https://www.reddit.com/r/wallstreetbets/comments/1s12t77/how_cooked_am_i/)
-- [Patent for Semaglutide, the active ingredient in Ozempic and Wegovy expired in India on March 20](https://www.reddit.com/r/wallstreetbets/comments/1s12s2z/patent_for_semaglutide_the_active_ingredient_in/)
-- [Cooked by 3MSF](https://www.reddit.com/r/wallstreetbets/comments/1s12nx8/cooked_by_3msf/)
-- [The first candle my portfolio is going to see Monday morning](https://www.reddit.com/r/wallstreetbets/comments/1s1217t/the_first_candle_my_portfolio_is_going_to_see/)
-- [Who’s still holding lol](https://www.reddit.com/r/wallstreetbets/comments/1s11uoc/whos_still_holding_lol/)
+- [Cinematic](https://www.reddit.com/r/wallstreetbets/comments/1s5lxpn/cinematic/)
+- [Down 50%](https://www.reddit.com/r/wallstreetbets/comments/1s5kfd0/down_50/)
+- [Me this earnings season](https://www.reddit.com/r/wallstreetbets/comments/1s5iuff/me_this_earnings_season/)
+- [Rip gays](https://www.reddit.com/r/wallstreetbets/comments/1s5i7tw/rip_gays/)
+- [Dow Jones &amp; NASDAQ Composite close in -10% correction territory](https://www.reddit.com/r/wallstreetbets/comments/1s5gc52/dow_jones_nasdaq_composite_close_in_10_correction/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
