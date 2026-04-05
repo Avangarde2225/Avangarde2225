@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cinematic](https://www.reddit.com/r/wallstreetbets/comments/1s5lxpn/cinematic/)
-- [Down 50%](https://www.reddit.com/r/wallstreetbets/comments/1s5kfd0/down_50/)
-- [Me this earnings season](https://www.reddit.com/r/wallstreetbets/comments/1s5iuff/me_this_earnings_season/)
-- [Rip gays](https://www.reddit.com/r/wallstreetbets/comments/1s5i7tw/rip_gays/)
-- [Dow Jones &amp; NASDAQ Composite close in -10% correction territory](https://www.reddit.com/r/wallstreetbets/comments/1s5gc52/dow_jones_nasdaq_composite_close_in_10_correction/)
+- [Is this oil inflation?](https://www.reddit.com/r/wallstreetbets/comments/1scp98s/is_this_oil_inflation/)
+- [i spent my weekend reading 98 s&amp;p 500 10-Ks for tariff and war risks. the results are.. weird. banks are way more exposed than oil companies](https://www.reddit.com/r/wallstreetbets/comments/1scmtjy/i_spent_my_weekend_reading_98_sp_500_10ks_for/)
+- [I sold my MU for a loss. Would’ve been worth 183k](https://www.reddit.com/r/wallstreetbets/comments/1scdjv3/i_sold_my_mu_for_a_loss_wouldve_been_worth_183k/)
+- [When shrek cums to town &lpar;this is my swamp&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1sbxu8h/when_shrek_cums_to_town_this_is_my_swamp/)
+- [Lost hundreds of thousands in SPY options](https://www.reddit.com/r/wallstreetbets/comments/1sbva8s/lost_hundreds_of_thousands_in_spy_options/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
