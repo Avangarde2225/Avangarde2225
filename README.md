@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Is this oil inflation?](https://www.reddit.com/r/wallstreetbets/comments/1scp98s/is_this_oil_inflation/)
-- [i spent my weekend reading 98 s&amp;p 500 10-Ks for tariff and war risks. the results are.. weird. banks are way more exposed than oil companies](https://www.reddit.com/r/wallstreetbets/comments/1scmtjy/i_spent_my_weekend_reading_98_sp_500_10ks_for/)
-- [I sold my MU for a loss. Would’ve been worth 183k](https://www.reddit.com/r/wallstreetbets/comments/1scdjv3/i_sold_my_mu_for_a_loss_wouldve_been_worth_183k/)
-- [When shrek cums to town &lpar;this is my swamp&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1sbxu8h/when_shrek_cums_to_town_this_is_my_swamp/)
-- [Lost hundreds of thousands in SPY options](https://www.reddit.com/r/wallstreetbets/comments/1sbva8s/lost_hundreds_of_thousands_in_spy_options/)
+- [Coincidence?](https://www.reddit.com/r/wallstreetbets/comments/1sdkklz/coincidence/)
+- [Nearly half of planned US data centers have been delayed or canceled limited by shortages of power](https://www.reddit.com/r/wallstreetbets/comments/1sdkk1u/nearly_half_of_planned_us_data_centers_have_been/)
+- [Monday:](https://www.reddit.com/r/wallstreetbets/comments/1sdhj9r/monday/)
+- [Iran Now Threatening To Close Bab Al-Mandeb Strait After Threats that were made, Monday Green Candle?](https://www.reddit.com/r/wallstreetbets/comments/1sdh95q/iran_now_threatening_to_close_bab_almandeb_strait/)
+- [Overnight U.S Equites Futures](https://www.reddit.com/r/wallstreetbets/comments/1sdh4hc/overnight_us_equites_futures/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
