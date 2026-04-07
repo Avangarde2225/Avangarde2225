@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Coincidence?](https://www.reddit.com/r/wallstreetbets/comments/1sdkklz/coincidence/)
-- [Nearly half of planned US data centers have been delayed or canceled limited by shortages of power](https://www.reddit.com/r/wallstreetbets/comments/1sdkk1u/nearly_half_of_planned_us_data_centers_have_been/)
-- [Monday:](https://www.reddit.com/r/wallstreetbets/comments/1sdhj9r/monday/)
-- [Iran Now Threatening To Close Bab Al-Mandeb Strait After Threats that were made, Monday Green Candle?](https://www.reddit.com/r/wallstreetbets/comments/1sdh95q/iran_now_threatening_to_close_bab_almandeb_strait/)
-- [Overnight U.S Equites Futures](https://www.reddit.com/r/wallstreetbets/comments/1sdh4hc/overnight_us_equites_futures/)
+- [Options trading is nuts on the mind especially the SPY](https://www.reddit.com/r/wallstreetbets/comments/1seh9ad/options_trading_is_nuts_on_the_mind_especially/)
+- [BROADCOM INC AND GOOGLE ENTER LONG-TERM TPU AND NETWORKING SUPPLY AGREEMENT THROUGH 2031](https://www.reddit.com/r/wallstreetbets/comments/1secvtx/broadcom_inc_and_google_enter_longterm_tpu_and/)
+- [Been talking about this for weeks](https://www.reddit.com/r/wallstreetbets/comments/1seav1o/been_talking_about_this_for_weeks/)
+- [-$25K Lost all my gains from chart analysis trying to play press conference, apparently threatening war is bullish. I’m going back to charts](https://www.reddit.com/r/wallstreetbets/comments/1se9t6z/25k_lost_all_my_gains_from_chart_analysis_trying/)
+- [What Are Your Moves Tomorrow, April 07, 2026](https://www.reddit.com/r/wallstreetbets/comments/1se9oo3/what_are_your_moves_tomorrow_april_07_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
