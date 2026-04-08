@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Options trading is nuts on the mind especially the SPY](https://www.reddit.com/r/wallstreetbets/comments/1seh9ad/options_trading_is_nuts_on_the_mind_especially/)
-- [BROADCOM INC AND GOOGLE ENTER LONG-TERM TPU AND NETWORKING SUPPLY AGREEMENT THROUGH 2031](https://www.reddit.com/r/wallstreetbets/comments/1secvtx/broadcom_inc_and_google_enter_longterm_tpu_and/)
-- [Been talking about this for weeks](https://www.reddit.com/r/wallstreetbets/comments/1seav1o/been_talking_about_this_for_weeks/)
-- [-$25K Lost all my gains from chart analysis trying to play press conference, apparently threatening war is bullish. I’m going back to charts](https://www.reddit.com/r/wallstreetbets/comments/1se9t6z/25k_lost_all_my_gains_from_chart_analysis_trying/)
-- [What Are Your Moves Tomorrow, April 07, 2026](https://www.reddit.com/r/wallstreetbets/comments/1se9oo3/what_are_your_moves_tomorrow_april_07_2026/)
+- [Us](https://www.reddit.com/r/wallstreetbets/comments/1sfe2w5/us/)
+- [Made the dumbest mistake of my life](https://www.reddit.com/r/wallstreetbets/comments/1sfdg21/made_the_dumbest_mistake_of_my_life/)
+- [Trump announces two-week ceasefire as Iran promises that &#39;safe passage through the Strait of Hormuz will be possible&#39;](https://www.reddit.com/r/wallstreetbets/comments/1sfddm1/trump_announces_twoweek_ceasefire_as_iran/)
+- [Call option buyers at market open](https://www.reddit.com/r/wallstreetbets/comments/1sfda24/call_option_buyers_at_market_open/)
+- [can’t wait for tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1sfcyy0/cant_wait_for_tomorrow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
