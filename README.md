@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The market recently…](https://www.reddit.com/r/wallstreetbets/comments/1sgay88/the_market_recently/)
-- [I fell before dawn, and no one said thank you to me](https://www.reddit.com/r/wallstreetbets/comments/1sg7a81/i_fell_before_dawn_and_no_one_said_thank_you_to_me/)
-- [Dude, c&#39;mon now](https://www.reddit.com/r/wallstreetbets/comments/1sg77hz/dude_cmon_now/)
-- [this will get you bulls wet](https://www.reddit.com/r/wallstreetbets/comments/1sg6ymr/this_will_get_you_bulls_wet/)
-- [Why SaaS stocks will crash hard and TTD will be the first to go to 0](https://www.reddit.com/r/wallstreetbets/comments/1sg6bzw/why_saas_stocks_will_crash_hard_and_ttd_will_be/)
+- [USA Rare Earth buys Brazil&#39;s Serra Verde for $2.8 billion, extending takeover spree](https://www.reddit.com/r/wallstreetbets/comments/1sr88i3/usa_rare_earth_buys_brazils_serra_verde_for_28/)
+- [Good bye Wallstreet ❤️ Thank you guys for everything…](https://www.reddit.com/r/wallstreetbets/comments/1sr7ybv/good_bye_wallstreet_thank_you_guys_for_everything/)
+- [$BULL holding until $100](https://www.reddit.com/r/wallstreetbets/comments/1sr703h/bull_holding_until_100/)
+- [PSA for the 3 people who made money this year: opportunity zones let you defer tax on stock gains and exit federal-tax-free after](https://www.reddit.com/r/wallstreetbets/comments/1sr6oex/psa_for_the_3_people_who_made_money_this_year/)
+- [ZS is getting the FSLY treatment and nobody&#39;s paying attention](https://www.reddit.com/r/wallstreetbets/comments/1sr4v9k/zs_is_getting_the_fsly_treatment_and_nobodys/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
