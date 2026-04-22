@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [USA Rare Earth buys Brazil&#39;s Serra Verde for $2.8 billion, extending takeover spree](https://www.reddit.com/r/wallstreetbets/comments/1sr88i3/usa_rare_earth_buys_brazils_serra_verde_for_28/)
-- [Good bye Wallstreet ❤️ Thank you guys for everything…](https://www.reddit.com/r/wallstreetbets/comments/1sr7ybv/good_bye_wallstreet_thank_you_guys_for_everything/)
-- [$BULL holding until $100](https://www.reddit.com/r/wallstreetbets/comments/1sr703h/bull_holding_until_100/)
-- [PSA for the 3 people who made money this year: opportunity zones let you defer tax on stock gains and exit federal-tax-free after](https://www.reddit.com/r/wallstreetbets/comments/1sr6oex/psa_for_the_3_people_who_made_money_this_year/)
-- [ZS is getting the FSLY treatment and nobody&#39;s paying attention](https://www.reddit.com/r/wallstreetbets/comments/1sr4v9k/zs_is_getting_the_fsly_treatment_and_nobodys/)
+- [New York Sues Coinbase, Gemini Over Crypto Exchanges’ Prediction Markets](https://www.reddit.com/r/wallstreetbets/comments/1ss590f/new_york_sues_coinbase_gemini_over_crypto/)
+- [After 1 year of bagholding these $ARM calls, finally exited with $88k USD in gains. Recovery from -80% to +100%](https://www.reddit.com/r/wallstreetbets/comments/1ss54oe/after_1_year_of_bagholding_these_arm_calls/)
+- [SpaceX to acquire cursor by end of this year for 60B or pay 10B](https://www.reddit.com/r/wallstreetbets/comments/1ss3pkg/spacex_to_acquire_cursor_by_end_of_this_year_for/)
+- [Spacex says it has option to acquire startup Cursor for $60 billion](https://www.reddit.com/r/wallstreetbets/comments/1ss3mq0/spacex_says_it_has_option_to_acquire_startup/)
+- [Loss porn on amc play](https://www.reddit.com/r/wallstreetbets/comments/1ss1x1t/loss_porn_on_amc_play/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
