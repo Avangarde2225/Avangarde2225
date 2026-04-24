@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What a 6 days of trading 3k to 81k](https://www.reddit.com/r/wallstreetbets/comments/1st2zo5/what_a_6_days_of_trading_3k_to_81k/)
-- [AI Infrastructure Build Out YOLOs](https://www.reddit.com/r/wallstreetbets/comments/1st1mhu/ai_infrastructure_build_out_yolos/)
-- [400% my account in one year. Biggest winners and new portfolio &lpar;Ai Infra Build Out&rpar; going forward. Many more 10x bagger to be made!](https://www.reddit.com/r/wallstreetbets/comments/1st1eh0/400_my_account_in_one_year_biggest_winners_and/)
-- [Elon Musk admits millions of Tesla owners need upgrades for true &#39;Full Self-Driving&#39;](https://www.reddit.com/r/wallstreetbets/comments/1st1crk/elon_musk_admits_millions_of_tesla_owners_need/)
-- [Avis &lpar;CAR&rpar; - Naked Calls and CSP](https://www.reddit.com/r/wallstreetbets/comments/1st0pmj/avis_car_naked_calls_and_csp/)
+- [I am the dumbass of the day. I fucked up and shorted 950 shares of Intel at $76.25 on Robinhood . Dick stuck in toaster. Please advise.](https://www.reddit.com/r/wallstreetbets/comments/1su0vj4/i_am_the_dumbass_of_the_day_i_fucked_up_and/)
+- [Gordon still lives in case anyone cares.](https://www.reddit.com/r/wallstreetbets/comments/1su008j/gordon_still_lives_in_case_anyone_cares/)
+- [Intel Grandma! She bringing the heat!](https://www.reddit.com/r/wallstreetbets/comments/1stzhwk/intel_grandma_she_bringing_the_heat/)
+- [I’ve been long $NANA for a while now.](https://www.reddit.com/r/wallstreetbets/comments/1stzf06/ive_been_long_nana_for_a_while_now/)
+- [I prefer the backside when it comes to squeezes 👹🫰🏼🍑](https://www.reddit.com/r/wallstreetbets/comments/1stzcfi/i_prefer_the_backside_when_it_comes_to_squeezes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
