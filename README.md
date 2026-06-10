@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I am the dumbass of the day. I fucked up and shorted 950 shares of Intel at $76.25 on Robinhood . Dick stuck in toaster. Please advise.](https://www.reddit.com/r/wallstreetbets/comments/1su0vj4/i_am_the_dumbass_of_the_day_i_fucked_up_and/)
-- [Gordon still lives in case anyone cares.](https://www.reddit.com/r/wallstreetbets/comments/1su008j/gordon_still_lives_in_case_anyone_cares/)
-- [Intel Grandma! She bringing the heat!](https://www.reddit.com/r/wallstreetbets/comments/1stzhwk/intel_grandma_she_bringing_the_heat/)
-- [I’ve been long $NANA for a while now.](https://www.reddit.com/r/wallstreetbets/comments/1stzf06/ive_been_long_nana_for_a_while_now/)
-- [I prefer the backside when it comes to squeezes 👹🫰🏼🍑](https://www.reddit.com/r/wallstreetbets/comments/1stzcfi/i_prefer_the_backside_when_it_comes_to_squeezes/)
+- [I Finally Beat the Market &lpar;It Only Cost Me $140k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u1obw0/i_finally_beat_the_market_it_only_cost_me_140k/)
+- [ok so what do we do when he starts going on podcasts?](https://www.reddit.com/r/wallstreetbets/comments/1u1o6nt/ok_so_what_do_we_do_when_he_starts_going_on/)
+- [Semiconductor shorts pile on as winning trade reverses - CNBC](https://www.reddit.com/r/wallstreetbets/comments/1u1n181/semiconductor_shorts_pile_on_as_winning_trade/)
+- [Stayed awake every US market. The one night I slept, my SOXS call went from 0.16 to 1.33.](https://www.reddit.com/r/wallstreetbets/comments/1u1m4ng/stayed_awake_every_us_market_the_one_night_i/)
+- [I’m done &lpar;6k loss&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u1lejl/im_done_6k_loss/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
