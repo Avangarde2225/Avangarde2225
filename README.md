@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I Finally Beat the Market &lpar;It Only Cost Me $140k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u1obw0/i_finally_beat_the_market_it_only_cost_me_140k/)
-- [ok so what do we do when he starts going on podcasts?](https://www.reddit.com/r/wallstreetbets/comments/1u1o6nt/ok_so_what_do_we_do_when_he_starts_going_on/)
-- [Semiconductor shorts pile on as winning trade reverses - CNBC](https://www.reddit.com/r/wallstreetbets/comments/1u1n181/semiconductor_shorts_pile_on_as_winning_trade/)
-- [Stayed awake every US market. The one night I slept, my SOXS call went from 0.16 to 1.33.](https://www.reddit.com/r/wallstreetbets/comments/1u1m4ng/stayed_awake_every_us_market_the_one_night_i/)
-- [I’m done &lpar;6k loss&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u1lejl/im_done_6k_loss/)
+- [Wait, you guys are looking at the bubble?](https://www.reddit.com/r/wallstreetbets/comments/1u4b7wr/wait_you_guys_are_looking_at_the_bubble/)
+- [Space&lpar;notX&rpar; is the biggest loser today](https://www.reddit.com/r/wallstreetbets/comments/1u4ao6s/spacenotx_is_the_biggest_loser_today/)
+- [SpaceX Options to Begin Trading on Tuesday After IPO](https://www.reddit.com/r/wallstreetbets/comments/1u47x2g/spacex_options_to_begin_trading_on_tuesday_after/)
+- [The Bell Curve strikes again!](https://www.reddit.com/r/wallstreetbets/comments/1u47k1f/the_bell_curve_strikes_again/)
+- [Weekly Earnings Thread 6/15 - 6/19](https://www.reddit.com/r/wallstreetbets/comments/1u46uhv/weekly_earnings_thread_615_619/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
