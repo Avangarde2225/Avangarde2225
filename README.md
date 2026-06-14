@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Wait, you guys are looking at the bubble?](https://www.reddit.com/r/wallstreetbets/comments/1u4b7wr/wait_you_guys_are_looking_at_the_bubble/)
-- [Space&lpar;notX&rpar; is the biggest loser today](https://www.reddit.com/r/wallstreetbets/comments/1u4ao6s/spacenotx_is_the_biggest_loser_today/)
-- [SpaceX Options to Begin Trading on Tuesday After IPO](https://www.reddit.com/r/wallstreetbets/comments/1u47x2g/spacex_options_to_begin_trading_on_tuesday_after/)
-- [The Bell Curve strikes again!](https://www.reddit.com/r/wallstreetbets/comments/1u47k1f/the_bell_curve_strikes_again/)
-- [Weekly Earnings Thread 6/15 - 6/19](https://www.reddit.com/r/wallstreetbets/comments/1u46uhv/weekly_earnings_thread_615_619/)
+- [For all the 🌈🐻 Bears there is Ladder trading for SPCX](https://www.reddit.com/r/wallstreetbets/comments/1u56ubv/for_all_the_bears_there_is_ladder_trading_for_spcx/)
+- [how do i get a refund?](https://www.reddit.com/r/wallstreetbets/comments/1u54frd/how_do_i_get_a_refund/)
+- [Meet the next NVDA](https://www.reddit.com/r/wallstreetbets/comments/1u53fuj/meet_the_next_nvda/)
+- [Movie theaters are making a comeback, and you know what that means](https://www.reddit.com/r/wallstreetbets/comments/1u531cm/movie_theaters_are_making_a_comeback_and_you_know/)
+- [Cathie Wood Buys 3.3 Million SpaceX Shares On IPO Day](https://www.reddit.com/r/wallstreetbets/comments/1u5200w/cathie_wood_buys_33_million_spacex_shares_on_ipo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
