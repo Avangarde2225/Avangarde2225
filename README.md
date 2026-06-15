@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [For all the 🌈🐻 Bears there is Ladder trading for SPCX](https://www.reddit.com/r/wallstreetbets/comments/1u56ubv/for_all_the_bears_there_is_ladder_trading_for_spcx/)
-- [how do i get a refund?](https://www.reddit.com/r/wallstreetbets/comments/1u54frd/how_do_i_get_a_refund/)
-- [Meet the next NVDA](https://www.reddit.com/r/wallstreetbets/comments/1u53fuj/meet_the_next_nvda/)
-- [Movie theaters are making a comeback, and you know what that means](https://www.reddit.com/r/wallstreetbets/comments/1u531cm/movie_theaters_are_making_a_comeback_and_you_know/)
-- [Cathie Wood Buys 3.3 Million SpaceX Shares On IPO Day](https://www.reddit.com/r/wallstreetbets/comments/1u5200w/cathie_wood_buys_33_million_spacex_shares_on_ipo/)
+- [You really think AMD has a chance?](https://www.reddit.com/r/wallstreetbets/comments/1u62uwf/you_really_think_amd_has_a_chance/)
+- [30k in $NOW is the time for 23k $ZS to get it&#39;s shit together](https://www.reddit.com/r/wallstreetbets/comments/1u5zzag/30k_in_now_is_the_time_for_23k_zs_to_get_its_shit/)
+- [Bers](https://www.reddit.com/r/wallstreetbets/comments/1u5zpqc/bers/)
+- [Tomorrow at 9:30 with SPCX and Iran peace deal](https://www.reddit.com/r/wallstreetbets/comments/1u5yxf7/tomorrow_at_930_with_spcx_and_iran_peace_deal/)
+- [U.S.-Iran deal to end war &quot;now in place&quot;: Pakistani PM &lpar;Axios&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u5xbnj/usiran_deal_to_end_war_now_in_place_pakistani_pm/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
