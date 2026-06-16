@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [You really think AMD has a chance?](https://www.reddit.com/r/wallstreetbets/comments/1u62uwf/you_really_think_amd_has_a_chance/)
-- [30k in $NOW is the time for 23k $ZS to get it&#39;s shit together](https://www.reddit.com/r/wallstreetbets/comments/1u5zzag/30k_in_now_is_the_time_for_23k_zs_to_get_its_shit/)
-- [Bers](https://www.reddit.com/r/wallstreetbets/comments/1u5zpqc/bers/)
-- [Tomorrow at 9:30 with SPCX and Iran peace deal](https://www.reddit.com/r/wallstreetbets/comments/1u5yxf7/tomorrow_at_930_with_spcx_and_iran_peace_deal/)
-- [U.S.-Iran deal to end war &quot;now in place&quot;: Pakistani PM &lpar;Axios&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u5xbnj/usiran_deal_to_end_war_now_in_place_pakistani_pm/)
+- [Had to redo the meme](https://www.reddit.com/r/wallstreetbets/comments/1u70o6q/had_to_redo_the_meme/)
+- [Spacex Swiss Cheese](https://www.reddit.com/r/wallstreetbets/comments/1u70icj/spacex_swiss_cheese/)
+- [If you think you’re dumb look at this guy at Morningstar who thinks SpaceX has a “narrow” moat](https://www.reddit.com/r/wallstreetbets/comments/1u701m1/if_you_think_youre_dumb_look_at_this_guy_at/)
+- [SpaceX, $SPCX, is now trading above $220/share in overnight trading](https://www.reddit.com/r/wallstreetbets/comments/1u6z65o/spacex_spcx_is_now_trading_above_220share_in/)
+- [Is this a diversified portfolio?](https://www.reddit.com/r/wallstreetbets/comments/1u6w3qd/is_this_a_diversified_portfolio/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
