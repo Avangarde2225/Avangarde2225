@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Had to redo the meme](https://www.reddit.com/r/wallstreetbets/comments/1u70o6q/had_to_redo_the_meme/)
-- [Spacex Swiss Cheese](https://www.reddit.com/r/wallstreetbets/comments/1u70icj/spacex_swiss_cheese/)
-- [If you think you’re dumb look at this guy at Morningstar who thinks SpaceX has a “narrow” moat](https://www.reddit.com/r/wallstreetbets/comments/1u701m1/if_you_think_youre_dumb_look_at_this_guy_at/)
-- [SpaceX, $SPCX, is now trading above $220/share in overnight trading](https://www.reddit.com/r/wallstreetbets/comments/1u6z65o/spacex_spcx_is_now_trading_above_220share_in/)
-- [Is this a diversified portfolio?](https://www.reddit.com/r/wallstreetbets/comments/1u6w3qd/is_this_a_diversified_portfolio/)
+- [A year ago, Michael Burry sold everything except Estee Lauder. He also bought puts on Nvidia.](https://www.reddit.com/r/wallstreetbets/comments/1u7wup4/a_year_ago_michael_burry_sold_everything_except/)
+- [Open AI&#39;s money fire goes on](https://www.reddit.com/r/wallstreetbets/comments/1u7w7nf/open_ais_money_fire_goes_on/)
+- [Microsoft DD &lpar;Not AI for once!&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u7u0a9/microsoft_dd_not_ai_for_once/)
+- [$SPCX Baby Bear Play](https://www.reddit.com/r/wallstreetbets/comments/1u7sfqw/spcx_baby_bear_play/)
+- [Michael Burry says he’s tempted to bet against SpaceX, but passes on expensive options](https://www.reddit.com/r/wallstreetbets/comments/1u7qnev/michael_burry_says_hes_tempted_to_bet_against/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
