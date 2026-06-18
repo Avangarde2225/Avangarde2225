@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [A year ago, Michael Burry sold everything except Estee Lauder. He also bought puts on Nvidia.](https://www.reddit.com/r/wallstreetbets/comments/1u7wup4/a_year_ago_michael_burry_sold_everything_except/)
-- [Open AI&#39;s money fire goes on](https://www.reddit.com/r/wallstreetbets/comments/1u7w7nf/open_ais_money_fire_goes_on/)
-- [Microsoft DD &lpar;Not AI for once!&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1u7u0a9/microsoft_dd_not_ai_for_once/)
-- [$SPCX Baby Bear Play](https://www.reddit.com/r/wallstreetbets/comments/1u7sfqw/spcx_baby_bear_play/)
-- [Michael Burry says he’s tempted to bet against SpaceX, but passes on expensive options](https://www.reddit.com/r/wallstreetbets/comments/1u7qnev/michael_burry_says_hes_tempted_to_bet_against/)
+- [When bro discovers stocks for the first time](https://www.reddit.com/r/wallstreetbets/comments/1u8t7lj/when_bro_discovers_stocks_for_the_first_time/)
+- [Saylor&#39;s perpetual preferred stock losing the promised 100$ peg](https://www.reddit.com/r/wallstreetbets/comments/1u8qw1u/saylors_perpetual_preferred_stock_losing_the/)
+- [The top is so in](https://www.reddit.com/r/wallstreetbets/comments/1u8plzt/the_top_is_so_in/)
+- [150k SPCX YOLO OTDE and 7/17, cooked or cooking?](https://www.reddit.com/r/wallstreetbets/comments/1u8p50z/150k_spcx_yolo_otde_and_717_cooked_or_cooking/)
+- [I&#39;m a WallStreetBets Millionaire! AMA](https://www.reddit.com/r/wallstreetbets/comments/1u8ns62/im_a_wallstreetbets_millionaire_ama/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
