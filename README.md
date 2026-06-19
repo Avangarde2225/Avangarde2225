@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When bro discovers stocks for the first time](https://www.reddit.com/r/wallstreetbets/comments/1u8t7lj/when_bro_discovers_stocks_for_the_first_time/)
-- [Saylor&#39;s perpetual preferred stock losing the promised 100$ peg](https://www.reddit.com/r/wallstreetbets/comments/1u8qw1u/saylors_perpetual_preferred_stock_losing_the/)
-- [The top is so in](https://www.reddit.com/r/wallstreetbets/comments/1u8plzt/the_top_is_so_in/)
-- [150k SPCX YOLO OTDE and 7/17, cooked or cooking?](https://www.reddit.com/r/wallstreetbets/comments/1u8p50z/150k_spcx_yolo_otde_and_717_cooked_or_cooking/)
-- [I&#39;m a WallStreetBets Millionaire! AMA](https://www.reddit.com/r/wallstreetbets/comments/1u8ns62/im_a_wallstreetbets_millionaire_ama/)
+- [Vance delays trip to Switzerland to lead new US talks with Iran on its nuclear program](https://www.reddit.com/r/wallstreetbets/comments/1u9p18h/vance_delays_trip_to_switzerland_to_lead_new_us/)
+- [Iran-US Negotiations Collapse Before They Begin as Lebanon Strikes Spark Diplomatic Crisis](https://www.reddit.com/r/wallstreetbets/comments/1u9og15/iranus_negotiations_collapse_before_they_begin_as/)
+- [Old content, but worthy of you crazy goobers](https://www.reddit.com/r/wallstreetbets/comments/1u9oedx/old_content_but_worthy_of_you_crazy_goobers/)
+- [Smith and Wesson &lpar;$SWBI&rpar; BANG BANG BANG](https://www.reddit.com/r/wallstreetbets/comments/1u9nakp/smith_and_wesson_swbi_bang_bang_bang/)
+- [Good day](https://www.reddit.com/r/wallstreetbets/comments/1u9n39m/good_day/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
