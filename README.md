@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Vance delays trip to Switzerland to lead new US talks with Iran on its nuclear program](https://www.reddit.com/r/wallstreetbets/comments/1u9p18h/vance_delays_trip_to_switzerland_to_lead_new_us/)
-- [Iran-US Negotiations Collapse Before They Begin as Lebanon Strikes Spark Diplomatic Crisis](https://www.reddit.com/r/wallstreetbets/comments/1u9og15/iranus_negotiations_collapse_before_they_begin_as/)
-- [Old content, but worthy of you crazy goobers](https://www.reddit.com/r/wallstreetbets/comments/1u9oedx/old_content_but_worthy_of_you_crazy_goobers/)
-- [Smith and Wesson &lpar;$SWBI&rpar; BANG BANG BANG](https://www.reddit.com/r/wallstreetbets/comments/1u9nakp/smith_and_wesson_swbi_bang_bang_bang/)
-- [Good day](https://www.reddit.com/r/wallstreetbets/comments/1u9n39m/good_day/)
+- [Drank the Kool-aid. We can come back?](https://www.reddit.com/r/wallstreetbets/comments/1uajz9v/drank_the_koolaid_we_can_come_back/)
+- [“They are FINISHED” - a very stable genius](https://www.reddit.com/r/wallstreetbets/comments/1uaijeq/they_are_finished_a_very_stable_genius/)
+- [Trump envoys head to Switzerland for potential Iran talks](https://www.reddit.com/r/wallstreetbets/comments/1uaia3k/trump_envoys_head_to_switzerland_for_potential/)
+- [Charter Communications. Potential 56 bagger.](https://www.reddit.com/r/wallstreetbets/comments/1uah6wm/charter_communications_potential_56_bagger/)
+- [Long gamble in ARM turned into regret](https://www.reddit.com/r/wallstreetbets/comments/1uagkol/long_gamble_in_arm_turned_into_regret/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
