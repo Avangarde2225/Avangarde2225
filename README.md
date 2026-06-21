@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Drank the Kool-aid. We can come back?](https://www.reddit.com/r/wallstreetbets/comments/1uajz9v/drank_the_koolaid_we_can_come_back/)
-- [“They are FINISHED” - a very stable genius](https://www.reddit.com/r/wallstreetbets/comments/1uaijeq/they_are_finished_a_very_stable_genius/)
-- [Trump envoys head to Switzerland for potential Iran talks](https://www.reddit.com/r/wallstreetbets/comments/1uaia3k/trump_envoys_head_to_switzerland_for_potential/)
-- [Charter Communications. Potential 56 bagger.](https://www.reddit.com/r/wallstreetbets/comments/1uah6wm/charter_communications_potential_56_bagger/)
-- [Long gamble in ARM turned into regret](https://www.reddit.com/r/wallstreetbets/comments/1uagkol/long_gamble_in_arm_turned_into_regret/)
+- [Metaverse CEO](https://www.reddit.com/r/wallstreetbets/comments/1ub9typ/metaverse_ceo/)
+- [Me, an American, waiting for Market Monday after a 3 day weekend](https://www.reddit.com/r/wallstreetbets/comments/1ub65b3/me_an_american_waiting_for_market_monday_after_a/)
+- [Europoor discovers WSB](https://www.reddit.com/r/wallstreetbets/comments/1ub60wz/europoor_discovers_wsb/)
+- [Not bad](https://www.reddit.com/r/wallstreetbets/comments/1ub0nzy/not_bad/)
+- [SNAP can only go up from here](https://www.reddit.com/r/wallstreetbets/comments/1uax8o6/snap_can_only_go_up_from_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
