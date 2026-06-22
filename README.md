@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Metaverse CEO](https://www.reddit.com/r/wallstreetbets/comments/1ub9typ/metaverse_ceo/)
-- [Me, an American, waiting for Market Monday after a 3 day weekend](https://www.reddit.com/r/wallstreetbets/comments/1ub65b3/me_an_american_waiting_for_market_monday_after_a/)
-- [Europoor discovers WSB](https://www.reddit.com/r/wallstreetbets/comments/1ub60wz/europoor_discovers_wsb/)
-- [Not bad](https://www.reddit.com/r/wallstreetbets/comments/1ub0nzy/not_bad/)
-- [SNAP can only go up from here](https://www.reddit.com/r/wallstreetbets/comments/1uax8o6/snap_can_only_go_up_from_here/)
+- [Are there any 🏳️‍🌈🐻 in the room with us?](https://www.reddit.com/r/wallstreetbets/comments/1uc82ex/are_there_any_in_the_room_with_us/)
+- [Bears celebrating too early after Iran walks out](https://www.reddit.com/r/wallstreetbets/comments/1uc7zq2/bears_celebrating_too_early_after_iran_walks_out/)
+- [SWISS TALKS A SUCCESS - Iran says talks laid groundwork for final agreement](https://www.reddit.com/r/wallstreetbets/comments/1uc7lzj/swiss_talks_a_success_iran_says_talks_laid/)
+- [Nasdaq-100 adds 5 new dominant companies into its index today](https://www.reddit.com/r/wallstreetbets/comments/1uc6nra/nasdaq100_adds_5_new_dominant_companies_into_its/)
+- [This could be happening boys. The match that decides who gets to setup a toll on the strait of hormuz.](https://www.reddit.com/r/wallstreetbets/comments/1uc5nze/this_could_be_happening_boys_the_match_that/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
