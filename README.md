@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Are there any 🏳️‍🌈🐻 in the room with us?](https://www.reddit.com/r/wallstreetbets/comments/1uc82ex/are_there_any_in_the_room_with_us/)
-- [Bears celebrating too early after Iran walks out](https://www.reddit.com/r/wallstreetbets/comments/1uc7zq2/bears_celebrating_too_early_after_iran_walks_out/)
-- [SWISS TALKS A SUCCESS - Iran says talks laid groundwork for final agreement](https://www.reddit.com/r/wallstreetbets/comments/1uc7lzj/swiss_talks_a_success_iran_says_talks_laid/)
-- [Nasdaq-100 adds 5 new dominant companies into its index today](https://www.reddit.com/r/wallstreetbets/comments/1uc6nra/nasdaq100_adds_5_new_dominant_companies_into_its/)
-- [This could be happening boys. The match that decides who gets to setup a toll on the strait of hormuz.](https://www.reddit.com/r/wallstreetbets/comments/1uc5nze/this_could_be_happening_boys_the_match_that/)
+- [SPACEX chart be looking like a rocket ship](https://www.reddit.com/r/wallstreetbets/comments/1ud3o5d/spacex_chart_be_looking_like_a_rocket_ship/)
+- [SpaceX made me negative](https://www.reddit.com/r/wallstreetbets/comments/1ud3hix/spacex_made_me_negative/)
+- [I think I’ve gambled enough…..selling Wendsday morning. I think we’ll hit $1300 before earnings.](https://www.reddit.com/r/wallstreetbets/comments/1ud32cr/i_think_ive_gambled_enoughselling_wendsday/)
+- [Been a real 7 Years](https://www.reddit.com/r/wallstreetbets/comments/1ud2lfn/been_a_real_7_years/)
+- [💎👊 nothing crazy going on here](https://www.reddit.com/r/wallstreetbets/comments/1ud19i1/nothing_crazy_going_on_here/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
