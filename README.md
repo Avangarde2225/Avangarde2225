@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SPACEX chart be looking like a rocket ship](https://www.reddit.com/r/wallstreetbets/comments/1ud3o5d/spacex_chart_be_looking_like_a_rocket_ship/)
-- [SpaceX made me negative](https://www.reddit.com/r/wallstreetbets/comments/1ud3hix/spacex_made_me_negative/)
-- [I think I’ve gambled enough…..selling Wendsday morning. I think we’ll hit $1300 before earnings.](https://www.reddit.com/r/wallstreetbets/comments/1ud32cr/i_think_ive_gambled_enoughselling_wendsday/)
-- [Been a real 7 Years](https://www.reddit.com/r/wallstreetbets/comments/1ud2lfn/been_a_real_7_years/)
-- [💎👊 nothing crazy going on here](https://www.reddit.com/r/wallstreetbets/comments/1ud19i1/nothing_crazy_going_on_here/)
+- [At this point I fully believe I’m cursed or retarded](https://www.reddit.com/r/wallstreetbets/comments/1udz60k/at_this_point_i_fully_believe_im_cursed_or/)
+- [&quot;The sellers are exhausted&quot; - The sellers:](https://www.reddit.com/r/wallstreetbets/comments/1udykzd/the_sellers_are_exhausted_the_sellers/)
+- [Anthropic Customer Sues US Over Loss of Fable AI Access](https://www.reddit.com/r/wallstreetbets/comments/1udyjyv/anthropic_customer_sues_us_over_loss_of_fable_ai/)
+- [We need to save Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/1udygxi/we_need_to_save_wendys/)
+- [bought $40k in COST calls because of something i noticed at my local costco and i need you to hear me out before you say anything](https://www.reddit.com/r/wallstreetbets/comments/1udy49x/bought_40k_in_cost_calls_because_of_something_i/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
