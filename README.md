@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [At this point I fully believe I’m cursed or retarded](https://www.reddit.com/r/wallstreetbets/comments/1udz60k/at_this_point_i_fully_believe_im_cursed_or/)
-- [&quot;The sellers are exhausted&quot; - The sellers:](https://www.reddit.com/r/wallstreetbets/comments/1udykzd/the_sellers_are_exhausted_the_sellers/)
-- [Anthropic Customer Sues US Over Loss of Fable AI Access](https://www.reddit.com/r/wallstreetbets/comments/1udyjyv/anthropic_customer_sues_us_over_loss_of_fable_ai/)
-- [We need to save Wendy’s](https://www.reddit.com/r/wallstreetbets/comments/1udygxi/we_need_to_save_wendys/)
-- [bought $40k in COST calls because of something i noticed at my local costco and i need you to hear me out before you say anything](https://www.reddit.com/r/wallstreetbets/comments/1udy49x/bought_40k_in_cost_calls_because_of_something_i/)
+- [WEN tendies?](https://www.reddit.com/r/wallstreetbets/comments/1ueuc8p/wen_tendies/)
+- [WEN MOON 105K](https://www.reddit.com/r/wallstreetbets/comments/1uetxo8/wen_moon_105k/)
+- [MSTR is currently sitting on a $12.5B unrealized loss, exceeding the largest trading loss in history &lpar;Bill Hwang/Archegos&rpar; by $2.5B](https://www.reddit.com/r/wallstreetbets/comments/1uetpvv/mstr_is_currently_sitting_on_a_125b_unrealized/)
+- [$WEN to the moon - 350K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1uerxoo/wen_to_the_moon_350k_yolo/)
+- [When will the Pain stop?](https://www.reddit.com/r/wallstreetbets/comments/1uerhdg/when_will_the_pain_stop/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
