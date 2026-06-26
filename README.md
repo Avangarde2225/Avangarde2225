@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WEN tendies?](https://www.reddit.com/r/wallstreetbets/comments/1ueuc8p/wen_tendies/)
-- [WEN MOON 105K](https://www.reddit.com/r/wallstreetbets/comments/1uetxo8/wen_moon_105k/)
-- [MSTR is currently sitting on a $12.5B unrealized loss, exceeding the largest trading loss in history &lpar;Bill Hwang/Archegos&rpar; by $2.5B](https://www.reddit.com/r/wallstreetbets/comments/1uetpvv/mstr_is_currently_sitting_on_a_125b_unrealized/)
-- [$WEN to the moon - 350K YOLO](https://www.reddit.com/r/wallstreetbets/comments/1uerxoo/wen_to_the_moon_350k_yolo/)
-- [When will the Pain stop?](https://www.reddit.com/r/wallstreetbets/comments/1uerhdg/when_will_the_pain_stop/)
+- [Who this?](https://www.reddit.com/r/wallstreetbets/comments/1ufsm7g/who_this/)
+- [Quick comes, quick goes!](https://www.reddit.com/r/wallstreetbets/comments/1ufrm8x/quick_comes_quick_goes/)
+- [Oil price falls to levels not seen since before Iran war](https://www.reddit.com/r/wallstreetbets/comments/1ufrd3s/oil_price_falls_to_levels_not_seen_since_before/)
+- [Bought the &quot;dip&quot; on software just last Wednesday... God help us all.](https://www.reddit.com/r/wallstreetbets/comments/1ufptxy/bought_the_dip_on_software_just_last_wednesday/)
+- [Capital loss ~733k. Anyone with gains of 800k+? We could marry and keep the money instead of sharing with Uncle Sam](https://www.reddit.com/r/wallstreetbets/comments/1ufop6q/capital_loss_733k_anyone_with_gains_of_800k_we/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
