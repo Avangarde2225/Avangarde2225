@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Who this?](https://www.reddit.com/r/wallstreetbets/comments/1ufsm7g/who_this/)
-- [Quick comes, quick goes!](https://www.reddit.com/r/wallstreetbets/comments/1ufrm8x/quick_comes_quick_goes/)
-- [Oil price falls to levels not seen since before Iran war](https://www.reddit.com/r/wallstreetbets/comments/1ufrd3s/oil_price_falls_to_levels_not_seen_since_before/)
-- [Bought the &quot;dip&quot; on software just last Wednesday... God help us all.](https://www.reddit.com/r/wallstreetbets/comments/1ufptxy/bought_the_dip_on_software_just_last_wednesday/)
-- [Capital loss ~733k. Anyone with gains of 800k+? We could marry and keep the money instead of sharing with Uncle Sam](https://www.reddit.com/r/wallstreetbets/comments/1ufop6q/capital_loss_733k_anyone_with_gains_of_800k_we/)
+- [Can the Pretzel Bacon Pub Burger save Wendy’s?](https://www.reddit.com/r/wallstreetbets/comments/1ugozgj/can_the_pretzel_bacon_pub_burger_save_wendys/)
+- [I ain’t selling until MU is 2000. Today dip don’t scared me.](https://www.reddit.com/r/wallstreetbets/comments/1ugo9s2/i_aint_selling_until_mu_is_2000_today_dip_dont/)
+- [I’m ready WEN you are.](https://www.reddit.com/r/wallstreetbets/comments/1ugnh0s/im_ready_wen_you_are/)
+- [What&#39;s the buy you regret the most?](https://www.reddit.com/r/wallstreetbets/comments/1ugl3eg/whats_the_buy_you_regret_the_most/)
+- [Weekly Earnings Thread 6/29 - 7/3](https://www.reddit.com/r/wallstreetbets/comments/1ugjgt3/weekly_earnings_thread_629_73/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
