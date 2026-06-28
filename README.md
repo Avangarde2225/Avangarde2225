@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Can the Pretzel Bacon Pub Burger save Wendy’s?](https://www.reddit.com/r/wallstreetbets/comments/1ugozgj/can_the_pretzel_bacon_pub_burger_save_wendys/)
-- [I ain’t selling until MU is 2000. Today dip don’t scared me.](https://www.reddit.com/r/wallstreetbets/comments/1ugo9s2/i_aint_selling_until_mu_is_2000_today_dip_dont/)
-- [I’m ready WEN you are.](https://www.reddit.com/r/wallstreetbets/comments/1ugnh0s/im_ready_wen_you_are/)
-- [What&#39;s the buy you regret the most?](https://www.reddit.com/r/wallstreetbets/comments/1ugl3eg/whats_the_buy_you_regret_the_most/)
-- [Weekly Earnings Thread 6/29 - 7/3](https://www.reddit.com/r/wallstreetbets/comments/1ugjgt3/weekly_earnings_thread_629_73/)
+- [Cathie Wood Invests $11.5 Million in Coinbase as Crypto Stock Slumps](https://www.reddit.com/r/wallstreetbets/comments/1uhjt2g/cathie_wood_invests_115_million_in_coinbase_as/)
+- [Ready for Tuesday](https://www.reddit.com/r/wallstreetbets/comments/1uhje0n/ready_for_tuesday/)
+- [Though it was free money, it was, just not for me.](https://www.reddit.com/r/wallstreetbets/comments/1uhich3/though_it_was_free_money_it_was_just_not_for_me/)
+- [I think I discovered an actual free money glitch](https://www.reddit.com/r/wallstreetbets/comments/1uhfw5c/i_think_i_discovered_an_actual_free_money_glitch/)
+- [I believe an AI/semiconductor run-up to earnings strategy will yield gains](https://www.reddit.com/r/wallstreetbets/comments/1uhfcfc/i_believe_an_aisemiconductor_runup_to_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
