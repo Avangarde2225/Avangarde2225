@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Cathie Wood Invests $11.5 Million in Coinbase as Crypto Stock Slumps](https://www.reddit.com/r/wallstreetbets/comments/1uhjt2g/cathie_wood_invests_115_million_in_coinbase_as/)
-- [Ready for Tuesday](https://www.reddit.com/r/wallstreetbets/comments/1uhje0n/ready_for_tuesday/)
-- [Though it was free money, it was, just not for me.](https://www.reddit.com/r/wallstreetbets/comments/1uhich3/though_it_was_free_money_it_was_just_not_for_me/)
-- [I think I discovered an actual free money glitch](https://www.reddit.com/r/wallstreetbets/comments/1uhfw5c/i_think_i_discovered_an_actual_free_money_glitch/)
-- [I believe an AI/semiconductor run-up to earnings strategy will yield gains](https://www.reddit.com/r/wallstreetbets/comments/1uhfcfc/i_believe_an_aisemiconductor_runup_to_earnings/)
+- [The highest ROI bet!! 🌚](https://www.reddit.com/r/wallstreetbets/comments/1uiezna/the_highest_roi_bet/)
+- [Barak Ravid strikes again.](https://www.reddit.com/r/wallstreetbets/comments/1uiewym/barak_ravid_strikes_again/)
+- [KOSPI opens 3% lower as financial regulators indefinitely postpone the launch of weekly options.](https://www.reddit.com/r/wallstreetbets/comments/1uie8bf/kospi_opens_3_lower_as_financial_regulators/)
+- [Samsung, SK Reportedly to Invest $1.3 Trillion Over 10 Years](https://www.reddit.com/r/wallstreetbets/comments/1uidu6z/samsung_sk_reportedly_to_invest_13_trillion_over/)
+- [BB then &amp; now](https://www.reddit.com/r/wallstreetbets/comments/1uib0mk/bb_then_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
