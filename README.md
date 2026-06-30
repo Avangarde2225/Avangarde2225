@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The highest ROI bet!! 🌚](https://www.reddit.com/r/wallstreetbets/comments/1uiezna/the_highest_roi_bet/)
-- [Barak Ravid strikes again.](https://www.reddit.com/r/wallstreetbets/comments/1uiewym/barak_ravid_strikes_again/)
-- [KOSPI opens 3% lower as financial regulators indefinitely postpone the launch of weekly options.](https://www.reddit.com/r/wallstreetbets/comments/1uie8bf/kospi_opens_3_lower_as_financial_regulators/)
-- [Samsung, SK Reportedly to Invest $1.3 Trillion Over 10 Years](https://www.reddit.com/r/wallstreetbets/comments/1uidu6z/samsung_sk_reportedly_to_invest_13_trillion_over/)
-- [BB then &amp; now](https://www.reddit.com/r/wallstreetbets/comments/1uib0mk/bb_then_now/)
+- [Preparing for another week in Nasdaqistan](https://www.reddit.com/r/wallstreetbets/comments/1ujbsxf/preparing_for_another_week_in_nasdaqistan/)
+- [Nice to see this come back from the dead 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ujbchw/nice_to_see_this_come_back_from_the_dead/)
+- [Calls on oracle? #regard #swingtrade](https://www.reddit.com/r/wallstreetbets/comments/1uj8zaf/calls_on_oracle_regard_swingtrade/)
+- [Super Micro -8% after Taiwan raids offices in expanding Nvidia AI chip smuggling probe](https://www.reddit.com/r/wallstreetbets/comments/1uj3gef/super_micro_8_after_taiwan_raids_offices_in/)
+- [$345,000 Yolo $BB](https://www.reddit.com/r/wallstreetbets/comments/1uj39ph/345000_yolo_bb/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
