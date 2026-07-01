@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Preparing for another week in Nasdaqistan](https://www.reddit.com/r/wallstreetbets/comments/1ujbsxf/preparing_for_another_week_in_nasdaqistan/)
-- [Nice to see this come back from the dead 🚀](https://www.reddit.com/r/wallstreetbets/comments/1ujbchw/nice_to_see_this_come_back_from_the_dead/)
-- [Calls on oracle? #regard #swingtrade](https://www.reddit.com/r/wallstreetbets/comments/1uj8zaf/calls_on_oracle_regard_swingtrade/)
-- [Super Micro -8% after Taiwan raids offices in expanding Nvidia AI chip smuggling probe](https://www.reddit.com/r/wallstreetbets/comments/1uj3gef/super_micro_8_after_taiwan_raids_offices_in/)
-- [$345,000 Yolo $BB](https://www.reddit.com/r/wallstreetbets/comments/1uj39ph/345000_yolo_bb/)
+- [AMD just keeps going up](https://www.reddit.com/r/wallstreetbets/comments/1uk852b/amd_just_keeps_going_up/)
+- [Anthropic says Trump admin has lifted export controls on Claude Fable 5 and Mythos 5](https://www.reddit.com/r/wallstreetbets/comments/1uk680o/anthropic_says_trump_admin_has_lifted_export/)
+- [Microsoft plans another round of job cuts, impacting thousands of roles](https://www.reddit.com/r/wallstreetbets/comments/1uk4txb/microsoft_plans_another_round_of_job_cuts/)
+- [Nike results top estimates even as China sales drop 12%; retailer expects $986 million tariff refund](https://www.reddit.com/r/wallstreetbets/comments/1uk38w1/nike_results_top_estimates_even_as_china_sales/)
+- [Canadian Stocks Beating US for a Second Year as Banks Surge](https://www.reddit.com/r/wallstreetbets/comments/1uk2ohs/canadian_stocks_beating_us_for_a_second_year_as/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
