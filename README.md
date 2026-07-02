@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AMD just keeps going up](https://www.reddit.com/r/wallstreetbets/comments/1uk852b/amd_just_keeps_going_up/)
-- [Anthropic says Trump admin has lifted export controls on Claude Fable 5 and Mythos 5](https://www.reddit.com/r/wallstreetbets/comments/1uk680o/anthropic_says_trump_admin_has_lifted_export/)
-- [Microsoft plans another round of job cuts, impacting thousands of roles](https://www.reddit.com/r/wallstreetbets/comments/1uk4txb/microsoft_plans_another_round_of_job_cuts/)
-- [Nike results top estimates even as China sales drop 12%; retailer expects $986 million tariff refund](https://www.reddit.com/r/wallstreetbets/comments/1uk38w1/nike_results_top_estimates_even_as_china_sales/)
-- [Canadian Stocks Beating US for a Second Year as Banks Surge](https://www.reddit.com/r/wallstreetbets/comments/1uk2ohs/canadian_stocks_beating_us_for_a_second_year_as/)
+- [Kroger to acquire Micron in $72 billion deal](https://www.reddit.com/r/wallstreetbets/comments/1ul4abr/kroger_to_acquire_micron_in_72_billion_deal/)
+- [I&#39;m cooked lost over 50k of my hard earned money if I sell now.](https://www.reddit.com/r/wallstreetbets/comments/1ul3tl7/im_cooked_lost_over_50k_of_my_hard_earned_money/)
+- [SK Hynix Files For Nasdaq Debut Under Symbol SKHY – Prepares For Multi-Billion Dollar ADS Sale](https://www.reddit.com/r/wallstreetbets/comments/1ul24ic/sk_hynix_files_for_nasdaq_debut_under_symbol_skhy/)
+- [Everyone here doubted my YOLO. Now 8 days later I&#39;m 21yo and retiring. Thank you Zuck 🙏❤️](https://www.reddit.com/r/wallstreetbets/comments/1ul1o9g/everyone_here_doubted_my_yolo_now_8_days_later_im/)
+- [Trading has changed my life immeasurably 👼](https://www.reddit.com/r/wallstreetbets/comments/1ul16da/trading_has_changed_my_life_immeasurably/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
