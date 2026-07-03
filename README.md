@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Kroger to acquire Micron in $72 billion deal](https://www.reddit.com/r/wallstreetbets/comments/1ul4abr/kroger_to_acquire_micron_in_72_billion_deal/)
-- [I&#39;m cooked lost over 50k of my hard earned money if I sell now.](https://www.reddit.com/r/wallstreetbets/comments/1ul3tl7/im_cooked_lost_over_50k_of_my_hard_earned_money/)
-- [SK Hynix Files For Nasdaq Debut Under Symbol SKHY – Prepares For Multi-Billion Dollar ADS Sale](https://www.reddit.com/r/wallstreetbets/comments/1ul24ic/sk_hynix_files_for_nasdaq_debut_under_symbol_skhy/)
-- [Everyone here doubted my YOLO. Now 8 days later I&#39;m 21yo and retiring. Thank you Zuck 🙏❤️](https://www.reddit.com/r/wallstreetbets/comments/1ul1o9g/everyone_here_doubted_my_yolo_now_8_days_later_im/)
-- [Trading has changed my life immeasurably 👼](https://www.reddit.com/r/wallstreetbets/comments/1ul16da/trading_has_changed_my_life_immeasurably/)
+- [🥴](https://www.reddit.com/r/wallstreetbets/comments/1um008x/_/)
+- [You can own Jensen Huang&#39;s Tom Ford Leather Jacket](https://www.reddit.com/r/wallstreetbets/comments/1ulybxa/you_can_own_jensen_huangs_tom_ford_leather_jacket/)
+- [SpaceX will pump before QQQ inclusion. $600k position](https://www.reddit.com/r/wallstreetbets/comments/1ulv2h7/spacex_will_pump_before_qqq_inclusion_600k/)
+- [Mrs. Obama, it&#39;s been an honor](https://www.reddit.com/r/wallstreetbets/comments/1uluw9b/mrs_obama_its_been_an_honor/)
+- [Hard choice](https://www.reddit.com/r/wallstreetbets/comments/1ulu1hz/hard_choice/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
