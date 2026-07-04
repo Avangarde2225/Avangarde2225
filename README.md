@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [🥴](https://www.reddit.com/r/wallstreetbets/comments/1um008x/_/)
-- [You can own Jensen Huang&#39;s Tom Ford Leather Jacket](https://www.reddit.com/r/wallstreetbets/comments/1ulybxa/you_can_own_jensen_huangs_tom_ford_leather_jacket/)
-- [SpaceX will pump before QQQ inclusion. $600k position](https://www.reddit.com/r/wallstreetbets/comments/1ulv2h7/spacex_will_pump_before_qqq_inclusion_600k/)
-- [Mrs. Obama, it&#39;s been an honor](https://www.reddit.com/r/wallstreetbets/comments/1uluw9b/mrs_obama_its_been_an_honor/)
-- [Hard choice](https://www.reddit.com/r/wallstreetbets/comments/1ulu1hz/hard_choice/)
+- [$70K in $ADBE Calls](https://www.reddit.com/r/wallstreetbets/comments/1umukxk/70k_in_adbe_calls/)
+- [How are my options looking?](https://www.reddit.com/r/wallstreetbets/comments/1umta9x/how_are_my_options_looking/)
+- [+38,074. CVNA Puts, WEN Calls. Realized + a few positions rolling into Q3](https://www.reddit.com/r/wallstreetbets/comments/1umor8y/38074_cvna_puts_wen_calls_realized_a_few/)
+- [Weekend Discussion Thread for the Weekend of July 4-5](https://www.reddit.com/r/wallstreetbets/comments/1umoiql/weekend_discussion_thread_for_the_weekend_of_july/)
+- [HOOD play!](https://www.reddit.com/r/wallstreetbets/comments/1ummuzw/hood_play/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
