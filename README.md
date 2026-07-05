@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$70K in $ADBE Calls](https://www.reddit.com/r/wallstreetbets/comments/1umukxk/70k_in_adbe_calls/)
-- [How are my options looking?](https://www.reddit.com/r/wallstreetbets/comments/1umta9x/how_are_my_options_looking/)
-- [+38,074. CVNA Puts, WEN Calls. Realized + a few positions rolling into Q3](https://www.reddit.com/r/wallstreetbets/comments/1umor8y/38074_cvna_puts_wen_calls_realized_a_few/)
-- [Weekend Discussion Thread for the Weekend of July 4-5](https://www.reddit.com/r/wallstreetbets/comments/1umoiql/weekend_discussion_thread_for_the_weekend_of_july/)
-- [HOOD play!](https://www.reddit.com/r/wallstreetbets/comments/1ummuzw/hood_play/)
+- [Patiently waiting for the market to open](https://www.reddit.com/r/wallstreetbets/comments/1unnvzp/patiently_waiting_for_the_market_to_open/)
+- [RKLB YOLO](https://www.reddit.com/r/wallstreetbets/comments/1unm6cq/rklb_yolo/)
+- [Leverage in South Korean chip stocks is out of control](https://www.reddit.com/r/wallstreetbets/comments/1unk8bf/leverage_in_south_korean_chip_stocks_is_out_of/)
+- [What&#39;s the top 3 holding in your portfolio right now?](https://www.reddit.com/r/wallstreetbets/comments/1uniprc/whats_the_top_3_holding_in_your_portfolio_right/)
+- [The famous &quot;I cant im too poor&quot; starter pack](https://www.reddit.com/r/wallstreetbets/comments/1undt05/the_famous_i_cant_im_too_poor_starter_pack/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
