@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Patiently waiting for the market to open](https://www.reddit.com/r/wallstreetbets/comments/1unnvzp/patiently_waiting_for_the_market_to_open/)
-- [RKLB YOLO](https://www.reddit.com/r/wallstreetbets/comments/1unm6cq/rklb_yolo/)
-- [Leverage in South Korean chip stocks is out of control](https://www.reddit.com/r/wallstreetbets/comments/1unk8bf/leverage_in_south_korean_chip_stocks_is_out_of/)
-- [What&#39;s the top 3 holding in your portfolio right now?](https://www.reddit.com/r/wallstreetbets/comments/1uniprc/whats_the_top_3_holding_in_your_portfolio_right/)
-- [The famous &quot;I cant im too poor&quot; starter pack](https://www.reddit.com/r/wallstreetbets/comments/1undt05/the_famous_i_cant_im_too_poor_starter_pack/)
+- [CCXI - AGLT](https://www.reddit.com/r/wallstreetbets/comments/1uoiwql/ccxi_aglt/)
+- [$AVAV — Thing That Actually Shoots Down Other Things](https://www.reddit.com/r/wallstreetbets/comments/1uoiuun/avav_thing_that_actually_shoots_down_other_things/)
+- [Netflix&#39;s top shows have been losing 30-70% of their audience between seasons 1 and 2. Executives are trying to figure out why.](https://www.reddit.com/r/wallstreetbets/comments/1uoiivp/netflixs_top_shows_have_been_losing_3070_of_their/)
+- [Tech stocks to the moon or down the hell?](https://www.reddit.com/r/wallstreetbets/comments/1uocya8/tech_stocks_to_the_moon_or_down_the_hell/)
+- [What Are Your Moves Tomorrow, July 6, 2026](https://www.reddit.com/r/wallstreetbets/comments/1uobx5h/what_are_your_moves_tomorrow_july_6_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
