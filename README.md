@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [CCXI - AGLT](https://www.reddit.com/r/wallstreetbets/comments/1uoiwql/ccxi_aglt/)
-- [$AVAV — Thing That Actually Shoots Down Other Things](https://www.reddit.com/r/wallstreetbets/comments/1uoiuun/avav_thing_that_actually_shoots_down_other_things/)
-- [Netflix&#39;s top shows have been losing 30-70% of their audience between seasons 1 and 2. Executives are trying to figure out why.](https://www.reddit.com/r/wallstreetbets/comments/1uoiivp/netflixs_top_shows_have_been_losing_3070_of_their/)
-- [Tech stocks to the moon or down the hell?](https://www.reddit.com/r/wallstreetbets/comments/1uocya8/tech_stocks_to_the_moon_or_down_the_hell/)
-- [What Are Your Moves Tomorrow, July 6, 2026](https://www.reddit.com/r/wallstreetbets/comments/1uobx5h/what_are_your_moves_tomorrow_july_6_2026/)
+- [Micron Breaks Ground On $9 Billion Hiroshima Memory Chip Plant](https://www.reddit.com/r/wallstreetbets/comments/1upgbna/micron_breaks_ground_on_9_billion_hiroshima/)
+- [Samsung Electronics sees record preliminary 2Q profit but shares fall](https://www.reddit.com/r/wallstreetbets/comments/1upg5fp/samsung_electronics_sees_record_preliminary_2q/)
+- [Toyota to invest $3.6 billion to move Tacoma pickup truck production from Mexico to Texas](https://www.reddit.com/r/wallstreetbets/comments/1upf5ym/toyota_to_invest_36_billion_to_move_tacoma_pickup/)
+- [Being a perma-bear is a bad habit](https://www.reddit.com/r/wallstreetbets/comments/1upduld/being_a_permabear_is_a_bad_habit/)
+- [$AVEX — unjammable military drones, first profitable quarter, still mispriced](https://www.reddit.com/r/wallstreetbets/comments/1updsgf/avex_unjammable_military_drones_first_profitable/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
