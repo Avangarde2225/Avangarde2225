@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Micron Breaks Ground On $9 Billion Hiroshima Memory Chip Plant](https://www.reddit.com/r/wallstreetbets/comments/1upgbna/micron_breaks_ground_on_9_billion_hiroshima/)
-- [Samsung Electronics sees record preliminary 2Q profit but shares fall](https://www.reddit.com/r/wallstreetbets/comments/1upg5fp/samsung_electronics_sees_record_preliminary_2q/)
-- [Toyota to invest $3.6 billion to move Tacoma pickup truck production from Mexico to Texas](https://www.reddit.com/r/wallstreetbets/comments/1upf5ym/toyota_to_invest_36_billion_to_move_tacoma_pickup/)
-- [Being a perma-bear is a bad habit](https://www.reddit.com/r/wallstreetbets/comments/1upduld/being_a_permabear_is_a_bad_habit/)
-- [$AVEX — unjammable military drones, first profitable quarter, still mispriced](https://www.reddit.com/r/wallstreetbets/comments/1updsgf/avex_unjammable_military_drones_first_profitable/)
+- [US launches strikes on Iran after tankers hit in Strait of Hormuz](https://www.reddit.com/r/wallstreetbets/comments/1uqe4a1/us_launches_strikes_on_iran_after_tankers_hit_in/)
+- [Today was life changing day](https://www.reddit.com/r/wallstreetbets/comments/1uqdhy1/today_was_life_changing_day/)
+- [Down 46% from the highs. JPMorgan just called it a rare valuation opportunity.](https://www.reddit.com/r/wallstreetbets/comments/1uqc0hj/down_46_from_the_highs_jpmorgan_just_called_it_a/)
+- [In Loving Memory of Remy 9/05/2015 - 7/07/2026](https://www.reddit.com/r/wallstreetbets/comments/1uqa2ec/in_loving_memory_of_remy_9052015_7072026/)
+- [Just bought $4M DELL](https://www.reddit.com/r/wallstreetbets/comments/1uq8f1f/just_bought_4m_dell/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
