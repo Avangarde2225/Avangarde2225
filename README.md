@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [US launches strikes on Iran after tankers hit in Strait of Hormuz](https://www.reddit.com/r/wallstreetbets/comments/1uqe4a1/us_launches_strikes_on_iran_after_tankers_hit_in/)
-- [Today was life changing day](https://www.reddit.com/r/wallstreetbets/comments/1uqdhy1/today_was_life_changing_day/)
-- [Down 46% from the highs. JPMorgan just called it a rare valuation opportunity.](https://www.reddit.com/r/wallstreetbets/comments/1uqc0hj/down_46_from_the_highs_jpmorgan_just_called_it_a/)
-- [In Loving Memory of Remy 9/05/2015 - 7/07/2026](https://www.reddit.com/r/wallstreetbets/comments/1uqa2ec/in_loving_memory_of_remy_9052015_7072026/)
-- [Just bought $4M DELL](https://www.reddit.com/r/wallstreetbets/comments/1uq8f1f/just_bought_4m_dell/)
+- [SK Hynix US Offering Is More Than 7 Times Oversubscribed - Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/1urbskq/sk_hynix_us_offering_is_more_than_7_times/)
+- [1,100 Shares $BE &lpar;Margin + Cash&rpar;: Margin Called + Naked Options](https://www.reddit.com/r/wallstreetbets/comments/1ur7wll/1100_shares_be_margin_cash_margin_called_naked/)
+- [TSMC leverage yolo](https://www.reddit.com/r/wallstreetbets/comments/1ur63jv/tsmc_leverage_yolo/)
+- [If you are feeling bad about your life or losing trades right now. Don&#39;t worry, it could be a lot worse.](https://www.reddit.com/r/wallstreetbets/comments/1ur5tpl/if_you_are_feeling_bad_about_your_life_or_losing/)
+- [US diesel futures post biggest daily gains in four years after Russia bans exports](https://www.reddit.com/r/wallstreetbets/comments/1ur55mf/us_diesel_futures_post_biggest_daily_gains_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
