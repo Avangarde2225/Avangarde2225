@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SK Hynix US Offering Is More Than 7 Times Oversubscribed - Bloomberg](https://www.reddit.com/r/wallstreetbets/comments/1urbskq/sk_hynix_us_offering_is_more_than_7_times/)
-- [1,100 Shares $BE &lpar;Margin + Cash&rpar;: Margin Called + Naked Options](https://www.reddit.com/r/wallstreetbets/comments/1ur7wll/1100_shares_be_margin_cash_margin_called_naked/)
-- [TSMC leverage yolo](https://www.reddit.com/r/wallstreetbets/comments/1ur63jv/tsmc_leverage_yolo/)
-- [If you are feeling bad about your life or losing trades right now. Don&#39;t worry, it could be a lot worse.](https://www.reddit.com/r/wallstreetbets/comments/1ur5tpl/if_you_are_feeling_bad_about_your_life_or_losing/)
-- [US diesel futures post biggest daily gains in four years after Russia bans exports](https://www.reddit.com/r/wallstreetbets/comments/1ur55mf/us_diesel_futures_post_biggest_daily_gains_in/)
+- [Us at 8PM every night hoping to not see everything go red](https://www.reddit.com/r/wallstreetbets/comments/1us8x2h/us_at_8pm_every_night_hoping_to_not_see/)
+- [This sub anytime a chip stock dives…](https://www.reddit.com/r/wallstreetbets/comments/1us8l7j/this_sub_anytime_a_chip_stock_dives/)
+- [THESE FUCKING KOREANS NEED TO BE STOPPED](https://www.reddit.com/r/wallstreetbets/comments/1us85ul/these_fucking_koreans_need_to_be_stopped/)
+- [I was like wtf happened? Then I checked the time... Oh yeah, the Koreans are up.](https://www.reddit.com/r/wallstreetbets/comments/1us7qz3/i_was_like_wtf_happened_then_i_checked_the_time/)
+- [Micron boosts US investment plan again, commits $250 billion through 2035](https://www.reddit.com/r/wallstreetbets/comments/1us6el4/micron_boosts_us_investment_plan_again_commits/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
