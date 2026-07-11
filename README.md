@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Us at 8PM every night hoping to not see everything go red](https://www.reddit.com/r/wallstreetbets/comments/1us8x2h/us_at_8pm_every_night_hoping_to_not_see/)
-- [This sub anytime a chip stock dives…](https://www.reddit.com/r/wallstreetbets/comments/1us8l7j/this_sub_anytime_a_chip_stock_dives/)
-- [THESE FUCKING KOREANS NEED TO BE STOPPED](https://www.reddit.com/r/wallstreetbets/comments/1us85ul/these_fucking_koreans_need_to_be_stopped/)
-- [I was like wtf happened? Then I checked the time... Oh yeah, the Koreans are up.](https://www.reddit.com/r/wallstreetbets/comments/1us7qz3/i_was_like_wtf_happened_then_i_checked_the_time/)
-- [Micron boosts US investment plan again, commits $250 billion through 2035](https://www.reddit.com/r/wallstreetbets/comments/1us6el4/micron_boosts_us_investment_plan_again_commits/)
+- [Which one of you degenerates is this?](https://www.reddit.com/r/wallstreetbets/comments/1ut61fj/which_one_of_you_degenerates_is_this/)
+- [RKLB Bottom?](https://www.reddit.com/r/wallstreetbets/comments/1ut1qx0/rklb_bottom/)
+- [Apple sues OpenAI alleging trade secret theft, says scheme was &#39;at every level&#39;](https://www.reddit.com/r/wallstreetbets/comments/1uszpy6/apple_sues_openai_alleging_trade_secret_theft/)
+- [Full Port MSFT Bull Call Spread](https://www.reddit.com/r/wallstreetbets/comments/1uszlq1/full_port_msft_bull_call_spread/)
+- [Thought I was done but I did it again](https://www.reddit.com/r/wallstreetbets/comments/1uszl8i/thought_i_was_done_but_i_did_it_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
