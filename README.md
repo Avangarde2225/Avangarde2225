@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Which one of you degenerates is this?](https://www.reddit.com/r/wallstreetbets/comments/1ut61fj/which_one_of_you_degenerates_is_this/)
-- [RKLB Bottom?](https://www.reddit.com/r/wallstreetbets/comments/1ut1qx0/rklb_bottom/)
-- [Apple sues OpenAI alleging trade secret theft, says scheme was &#39;at every level&#39;](https://www.reddit.com/r/wallstreetbets/comments/1uszpy6/apple_sues_openai_alleging_trade_secret_theft/)
-- [Full Port MSFT Bull Call Spread](https://www.reddit.com/r/wallstreetbets/comments/1uszlq1/full_port_msft_bull_call_spread/)
-- [Thought I was done but I did it again](https://www.reddit.com/r/wallstreetbets/comments/1uszl8i/thought_i_was_done_but_i_did_it_again/)
+- [Another round of the strait being closed again](https://www.reddit.com/r/wallstreetbets/comments/1uu144a/another_round_of_the_strait_being_closed_again/)
+- [GF broke up with me. Least I have gains?](https://www.reddit.com/r/wallstreetbets/comments/1uu0q0c/gf_broke_up_with_me_least_i_have_gains/)
+- [Uh oh boys strait closed again](https://www.reddit.com/r/wallstreetbets/comments/1utyf4l/uh_oh_boys_strait_closed_again/)
+- [If June CPI comes in hotter than expected, is the better trade Treasuries or SPY/QQQ puts?](https://www.reddit.com/r/wallstreetbets/comments/1utwubm/if_june_cpi_comes_in_hotter_than_expected_is_the/)
+- [Big bank profit engines expected to roar into earnings as Main Street keeps spending](https://www.reddit.com/r/wallstreetbets/comments/1utuuus/big_bank_profit_engines_expected_to_roar_into/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
