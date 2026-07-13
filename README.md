@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Another round of the strait being closed again](https://www.reddit.com/r/wallstreetbets/comments/1uu144a/another_round_of_the_strait_being_closed_again/)
-- [GF broke up with me. Least I have gains?](https://www.reddit.com/r/wallstreetbets/comments/1uu0q0c/gf_broke_up_with_me_least_i_have_gains/)
-- [Uh oh boys strait closed again](https://www.reddit.com/r/wallstreetbets/comments/1utyf4l/uh_oh_boys_strait_closed_again/)
-- [If June CPI comes in hotter than expected, is the better trade Treasuries or SPY/QQQ puts?](https://www.reddit.com/r/wallstreetbets/comments/1utwubm/if_june_cpi_comes_in_hotter_than_expected_is_the/)
-- [Big bank profit engines expected to roar into earnings as Main Street keeps spending](https://www.reddit.com/r/wallstreetbets/comments/1utuuus/big_bank_profit_engines_expected_to_roar_into/)
+- [What Are Your Moves Tomorrow, July 13, 2026](https://www.reddit.com/r/wallstreetbets/comments/1uupv27/what_are_your_moves_tomorrow_july_13_2026/)
+- [SOFI will SO FLY - 1.3M YOLO](https://www.reddit.com/r/wallstreetbets/comments/1uumaxi/sofi_will_so_fly_13m_yolo/)
+- [Ruined my portfolio with SPCX but all I need are my puts to 20x next week and I’m gucci ✌️](https://www.reddit.com/r/wallstreetbets/comments/1uujmwy/ruined_my_portfolio_with_spcx_but_all_i_need_are/)
+- [Believe it or not, still looks like calls.](https://www.reddit.com/r/wallstreetbets/comments/1uujieh/believe_it_or_not_still_looks_like_calls/)
+- [You damn degenerates, leave some cash on the sidelines](https://www.reddit.com/r/wallstreetbets/comments/1uuhztw/you_damn_degenerates_leave_some_cash_on_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
