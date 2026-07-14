@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What Are Your Moves Tomorrow, July 13, 2026](https://www.reddit.com/r/wallstreetbets/comments/1uupv27/what_are_your_moves_tomorrow_july_13_2026/)
-- [SOFI will SO FLY - 1.3M YOLO](https://www.reddit.com/r/wallstreetbets/comments/1uumaxi/sofi_will_so_fly_13m_yolo/)
-- [Ruined my portfolio with SPCX but all I need are my puts to 20x next week and I’m gucci ✌️](https://www.reddit.com/r/wallstreetbets/comments/1uujmwy/ruined_my_portfolio_with_spcx_but_all_i_need_are/)
-- [Believe it or not, still looks like calls.](https://www.reddit.com/r/wallstreetbets/comments/1uujieh/believe_it_or_not_still_looks_like_calls/)
-- [You damn degenerates, leave some cash on the sidelines](https://www.reddit.com/r/wallstreetbets/comments/1uuhztw/you_damn_degenerates_leave_some_cash_on_the/)
+- [What is this color guys? It&#39;s been so long since I saw something other than red](https://www.reddit.com/r/wallstreetbets/comments/1uvu1ao/what_is_this_color_guys_its_been_so_long_since_i/)
+- [F](https://www.reddit.com/r/wallstreetbets/comments/1uvt7bw/f/)
+- [Does anybody know if the Intel Grandma guy held? Thinking about him](https://www.reddit.com/r/wallstreetbets/comments/1uvt0l6/does_anybody_know_if_the_intel_grandma_guy_held/)
+- [Bear time, come dance!](https://www.reddit.com/r/wallstreetbets/comments/1uvswa8/bear_time_come_dance/)
+- [$CMPS Compass Pathways: A Structural Mispricing in Plain Sight?](https://www.reddit.com/r/wallstreetbets/comments/1uvshgc/cmps_compass_pathways_a_structural_mispricing_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
