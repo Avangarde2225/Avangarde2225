@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [What is this color guys? It&#39;s been so long since I saw something other than red](https://www.reddit.com/r/wallstreetbets/comments/1uvu1ao/what_is_this_color_guys_its_been_so_long_since_i/)
-- [F](https://www.reddit.com/r/wallstreetbets/comments/1uvt7bw/f/)
-- [Does anybody know if the Intel Grandma guy held? Thinking about him](https://www.reddit.com/r/wallstreetbets/comments/1uvt0l6/does_anybody_know_if_the_intel_grandma_guy_held/)
-- [Bear time, come dance!](https://www.reddit.com/r/wallstreetbets/comments/1uvswa8/bear_time_come_dance/)
-- [$CMPS Compass Pathways: A Structural Mispricing in Plain Sight?](https://www.reddit.com/r/wallstreetbets/comments/1uvshgc/cmps_compass_pathways_a_structural_mispricing_in/)
+- [&quot;One of us&quot;](https://www.reddit.com/r/wallstreetbets/comments/1uwqi7h/one_of_us/)
+- [Intel Foundry Snags AMD, NVIDIA, and OpenAI as Design Wins on 18A &amp;amp; 14A Nodes While EMIB Achieves 98% Yields](https://www.reddit.com/r/wallstreetbets/comments/1uwqb2b/intel_foundry_snags_amd_nvidia_and_openai_as/)
+- [Down 200k on SpaceX, -35.52% on my Roth IRA for 112k, another 80k loss via options in my regular trading account](https://www.reddit.com/r/wallstreetbets/comments/1uwow9k/down_200k_on_spacex_3552_on_my_roth_ira_for_112k/)
+- [Now available at a Circuit City near you!](https://www.reddit.com/r/wallstreetbets/comments/1uwoajc/now_available_at_a_circuit_city_near_you/)
+- [IBM shares plunge 25% as customers shift spending to AI](https://www.reddit.com/r/wallstreetbets/comments/1uwo588/ibm_shares_plunge_25_as_customers_shift_spending/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
