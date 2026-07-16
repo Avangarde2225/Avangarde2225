@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [&quot;One of us&quot;](https://www.reddit.com/r/wallstreetbets/comments/1uwqi7h/one_of_us/)
-- [Intel Foundry Snags AMD, NVIDIA, and OpenAI as Design Wins on 18A &amp;amp; 14A Nodes While EMIB Achieves 98% Yields](https://www.reddit.com/r/wallstreetbets/comments/1uwqb2b/intel_foundry_snags_amd_nvidia_and_openai_as/)
-- [Down 200k on SpaceX, -35.52% on my Roth IRA for 112k, another 80k loss via options in my regular trading account](https://www.reddit.com/r/wallstreetbets/comments/1uwow9k/down_200k_on_spacex_3552_on_my_roth_ira_for_112k/)
-- [Now available at a Circuit City near you!](https://www.reddit.com/r/wallstreetbets/comments/1uwoajc/now_available_at_a_circuit_city_near_you/)
-- [IBM shares plunge 25% as customers shift spending to AI](https://www.reddit.com/r/wallstreetbets/comments/1uwo588/ibm_shares_plunge_25_as_customers_shift_spending/)
+- [You&#39;re not a True Regard until the casino itself is concerned for you](https://www.reddit.com/r/wallstreetbets/comments/1uxnp8b/youre_not_a_true_regard_until_the_casino_itself/)
+- [125K to 1K: Enjoy my loss porn](https://www.reddit.com/r/wallstreetbets/comments/1uxnecp/125k_to_1k_enjoy_my_loss_porn/)
+- [Hey, I have VT in there!](https://www.reddit.com/r/wallstreetbets/comments/1uxlm09/hey_i_have_vt_in_there/)
+- [HISTORIC SELL-OFF FOR MOMENTUM IN JULY](https://www.reddit.com/r/wallstreetbets/comments/1uxlj2e/historic_selloff_for_momentum_in_july/)
+- [AST SpaceMobile Announces Proposed Private Offering of $1.0 Billion of Convertible Senior Notes Due 2034](https://www.reddit.com/r/wallstreetbets/comments/1uxk83o/ast_spacemobile_announces_proposed_private/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
