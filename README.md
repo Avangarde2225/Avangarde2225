@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SpaceX Shares Fall After Company Aborts Starship Test Launch](https://www.reddit.com/r/wallstreetbets/comments/1uyjsnp/spacex_shares_fall_after_company_aborts_starship/)
-- [Greed can cost dearly.](https://www.reddit.com/r/wallstreetbets/comments/1uyjd2i/greed_can_cost_dearly/)
-- [Chinese filing implies DeepSeek valuation of around $52 billion](https://www.reddit.com/r/wallstreetbets/comments/1uyily5/chinese_filing_implies_deepseek_valuation_of/)
-- [I present to you the best investment fund that has ever existed](https://www.reddit.com/r/wallstreetbets/comments/1uyhxr4/i_present_to_you_the_best_investment_fund_that/)
-- [FDA to Warn of Taco Bell Lettuce in 5 States Over Parasite](https://www.reddit.com/r/wallstreetbets/comments/1uyhrdk/fda_to_warn_of_taco_bell_lettuce_in_5_states_over/)
+- [Lowkey the pigeon was right](https://www.reddit.com/r/wallstreetbets/comments/1uzhhjy/lowkey_the_pigeon_was_right/)
+- [Welp that’s my life screwed up forever](https://www.reddit.com/r/wallstreetbets/comments/1uzgyew/welp_thats_my_life_screwed_up_forever/)
+- [Boeing self-certifying…](https://www.reddit.com/r/wallstreetbets/comments/1uzgocy/boeing_selfcertifying/)
+- [Fully Regarted](https://www.reddit.com/r/wallstreetbets/comments/1uzfta2/fully_regarted/)
+- [10x returns on my SPXC puts. Sorry I let you all down and didnt 20x like I promised.](https://www.reddit.com/r/wallstreetbets/comments/1uzfino/10x_returns_on_my_spxc_puts_sorry_i_let_you_all/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
