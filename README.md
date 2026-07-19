@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lowkey the pigeon was right](https://www.reddit.com/r/wallstreetbets/comments/1uzhhjy/lowkey_the_pigeon_was_right/)
-- [Welp that’s my life screwed up forever](https://www.reddit.com/r/wallstreetbets/comments/1uzgyew/welp_thats_my_life_screwed_up_forever/)
-- [Boeing self-certifying…](https://www.reddit.com/r/wallstreetbets/comments/1uzgocy/boeing_selfcertifying/)
-- [Fully Regarted](https://www.reddit.com/r/wallstreetbets/comments/1uzfta2/fully_regarted/)
-- [10x returns on my SPXC puts. Sorry I let you all down and didnt 20x like I promised.](https://www.reddit.com/r/wallstreetbets/comments/1uzfino/10x_returns_on_my_spxc_puts_sorry_i_let_you_all/)
+- [AVEX and ONDS- is the thesis intact?](https://www.reddit.com/r/wallstreetbets/comments/1v0c52s/avex_and_onds_is_the_thesis_intact/)
+- [LEAPS is the way to go](https://www.reddit.com/r/wallstreetbets/comments/1v084cj/leaps_is_the_way_to_go/)
+- [Gay Bear Summer](https://www.reddit.com/r/wallstreetbets/comments/1v06v4u/gay_bear_summer/)
+- [Anyone else have a 20% rule?](https://www.reddit.com/r/wallstreetbets/comments/1uzzzab/anyone_else_have_a_20_rule/)
+- [Recover or same fate again?](https://www.reddit.com/r/wallstreetbets/comments/1uzzl3w/recover_or_same_fate_again/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
