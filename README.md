@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [AVEX and ONDS- is the thesis intact?](https://www.reddit.com/r/wallstreetbets/comments/1v0c52s/avex_and_onds_is_the_thesis_intact/)
-- [LEAPS is the way to go](https://www.reddit.com/r/wallstreetbets/comments/1v084cj/leaps_is_the_way_to_go/)
-- [Gay Bear Summer](https://www.reddit.com/r/wallstreetbets/comments/1v06v4u/gay_bear_summer/)
-- [Anyone else have a 20% rule?](https://www.reddit.com/r/wallstreetbets/comments/1uzzzab/anyone_else_have_a_20_rule/)
-- [Recover or same fate again?](https://www.reddit.com/r/wallstreetbets/comments/1uzzl3w/recover_or_same_fate_again/)
+- [Why did my loss get taken down??](https://www.reddit.com/r/wallstreetbets/comments/1v19eun/why_did_my_loss_get_taken_down/)
+- [When do I start praying](https://www.reddit.com/r/wallstreetbets/comments/1v16t9w/when_do_i_start_praying/)
+- [Google is about to report record earnings on Wednesday. How much do we think they will drop?](https://www.reddit.com/r/wallstreetbets/comments/1v16env/google_is_about_to_report_record_earnings_on/)
+- [Oil’s back above $90](https://www.reddit.com/r/wallstreetbets/comments/1v15m3c/oils_back_above_90/)
+- [What Are Your Moves Tomorrow, July 20, 2026](https://www.reddit.com/r/wallstreetbets/comments/1v10ane/what_are_your_moves_tomorrow_july_20_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
