@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why did my loss get taken down??](https://www.reddit.com/r/wallstreetbets/comments/1v19eun/why_did_my_loss_get_taken_down/)
-- [When do I start praying](https://www.reddit.com/r/wallstreetbets/comments/1v16t9w/when_do_i_start_praying/)
-- [Google is about to report record earnings on Wednesday. How much do we think they will drop?](https://www.reddit.com/r/wallstreetbets/comments/1v16env/google_is_about_to_report_record_earnings_on/)
-- [Oil’s back above $90](https://www.reddit.com/r/wallstreetbets/comments/1v15m3c/oils_back_above_90/)
-- [What Are Your Moves Tomorrow, July 20, 2026](https://www.reddit.com/r/wallstreetbets/comments/1v10ane/what_are_your_moves_tomorrow_july_20_2026/)
+- [Why doesn&#39;t Meta acquire OpenAI / Anthropic?](https://www.reddit.com/r/wallstreetbets/comments/1v238de/why_doesnt_meta_acquire_openai_anthropic/)
+- [I panic bought/sold NBIS 7 times today, is there a limit for how many times I can do this?](https://www.reddit.com/r/wallstreetbets/comments/1v21yjr/i_panic_boughtsold_nbis_7_times_today_is_there_a/)
+- [.](https://www.reddit.com/r/wallstreetbets/comments/1v1zuci/_/)
+- [$10K Loss for Your Joy](https://www.reddit.com/r/wallstreetbets/comments/1v1xenu/10k_loss_for_your_joy/)
+- [SPCX puts - early assignment](https://www.reddit.com/r/wallstreetbets/comments/1v1wwa7/spcx_puts_early_assignment/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
