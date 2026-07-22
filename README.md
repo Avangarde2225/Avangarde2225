@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Why doesn&#39;t Meta acquire OpenAI / Anthropic?](https://www.reddit.com/r/wallstreetbets/comments/1v238de/why_doesnt_meta_acquire_openai_anthropic/)
-- [I panic bought/sold NBIS 7 times today, is there a limit for how many times I can do this?](https://www.reddit.com/r/wallstreetbets/comments/1v21yjr/i_panic_boughtsold_nbis_7_times_today_is_there_a/)
-- [.](https://www.reddit.com/r/wallstreetbets/comments/1v1zuci/_/)
-- [$10K Loss for Your Joy](https://www.reddit.com/r/wallstreetbets/comments/1v1xenu/10k_loss_for_your_joy/)
-- [SPCX puts - early assignment](https://www.reddit.com/r/wallstreetbets/comments/1v1wwa7/spcx_puts_early_assignment/)
+- [Was up over $50k in May! Can I get it back ???](https://www.reddit.com/r/wallstreetbets/comments/1v2yqt8/was_up_over_50k_in_may_can_i_get_it_back/)
+- [Trump anounces no tarrifs on drugs for next 2 years and tarrifs on drugs after that](https://www.reddit.com/r/wallstreetbets/comments/1v2y9yx/trump_anounces_no_tarrifs_on_drugs_for_next_2/)
+- [Korean student who lost $200k on 500% margin loan plans to borrow again and return to markets as soon as possible](https://www.reddit.com/r/wallstreetbets/comments/1v2wy28/korean_student_who_lost_200k_on_500_margin_loan/)
+- [Super Micro surges 15% on new order and margin disclosure after SpaceX announcement](https://www.reddit.com/r/wallstreetbets/comments/1v2vrn0/super_micro_surges_15_on_new_order_and_margin/)
+- [Put My Kids college fund on MU](https://www.reddit.com/r/wallstreetbets/comments/1v2unj3/put_my_kids_college_fund_on_mu/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
