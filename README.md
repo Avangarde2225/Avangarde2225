@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Was up over $50k in May! Can I get it back ???](https://www.reddit.com/r/wallstreetbets/comments/1v2yqt8/was_up_over_50k_in_may_can_i_get_it_back/)
-- [Trump anounces no tarrifs on drugs for next 2 years and tarrifs on drugs after that](https://www.reddit.com/r/wallstreetbets/comments/1v2y9yx/trump_anounces_no_tarrifs_on_drugs_for_next_2/)
-- [Korean student who lost $200k on 500% margin loan plans to borrow again and return to markets as soon as possible](https://www.reddit.com/r/wallstreetbets/comments/1v2wy28/korean_student_who_lost_200k_on_500_margin_loan/)
-- [Super Micro surges 15% on new order and margin disclosure after SpaceX announcement](https://www.reddit.com/r/wallstreetbets/comments/1v2vrn0/super_micro_surges_15_on_new_order_and_margin/)
-- [Put My Kids college fund on MU](https://www.reddit.com/r/wallstreetbets/comments/1v2unj3/put_my_kids_college_fund_on_mu/)
+- [Not closing until we hit 200](https://www.reddit.com/r/wallstreetbets/comments/1v3y5g4/not_closing_until_we_hit_200/)
+- [Tesla to 300](https://www.reddit.com/r/wallstreetbets/comments/1v3xodh/tesla_to_300/)
+- [I was so fine a year ago now im looking for jobs](https://www.reddit.com/r/wallstreetbets/comments/1v3x0jl/i_was_so_fine_a_year_ago_now_im_looking_for_jobs/)
+- [All stocks, no options](https://www.reddit.com/r/wallstreetbets/comments/1v3u75t/all_stocks_no_options/)
+- [IBM lowers full-year forecast after earnings warning](https://www.reddit.com/r/wallstreetbets/comments/1v3sqnx/ibm_lowers_fullyear_forecast_after_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
