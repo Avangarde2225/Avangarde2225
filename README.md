@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Not closing until we hit 200](https://www.reddit.com/r/wallstreetbets/comments/1v3y5g4/not_closing_until_we_hit_200/)
-- [Tesla to 300](https://www.reddit.com/r/wallstreetbets/comments/1v3xodh/tesla_to_300/)
-- [I was so fine a year ago now im looking for jobs](https://www.reddit.com/r/wallstreetbets/comments/1v3x0jl/i_was_so_fine_a_year_ago_now_im_looking_for_jobs/)
-- [All stocks, no options](https://www.reddit.com/r/wallstreetbets/comments/1v3u75t/all_stocks_no_options/)
-- [IBM lowers full-year forecast after earnings warning](https://www.reddit.com/r/wallstreetbets/comments/1v3sqnx/ibm_lowers_fullyear_forecast_after_earnings/)
+- [When you ask god for a sign](https://www.reddit.com/r/wallstreetbets/comments/1v4w3a7/when_you_ask_god_for_a_sign/)
+- [Bear season is taking hold](https://www.reddit.com/r/wallstreetbets/comments/1v4ub9r/bear_season_is_taking_hold/)
+- [Trump to slap &#39;sweeping&#39; new tariffs on 60 trade partners as global duties expire](https://www.reddit.com/r/wallstreetbets/comments/1v4txfi/trump_to_slap_sweeping_new_tariffs_on_60_trade/)
+- [I lost 72,000 today.](https://www.reddit.com/r/wallstreetbets/comments/1v4s0k8/i_lost_72000_today/)
+- [Larry‘s deal with pentagon.. Is orcl next intel for US gov?](https://www.reddit.com/r/wallstreetbets/comments/1v4rn16/larrys_deal_with_pentagon_is_orcl_next_intel_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
