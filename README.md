@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When you ask god for a sign](https://www.reddit.com/r/wallstreetbets/comments/1v4w3a7/when_you_ask_god_for_a_sign/)
-- [Bear season is taking hold](https://www.reddit.com/r/wallstreetbets/comments/1v4ub9r/bear_season_is_taking_hold/)
-- [Trump to slap &#39;sweeping&#39; new tariffs on 60 trade partners as global duties expire](https://www.reddit.com/r/wallstreetbets/comments/1v4txfi/trump_to_slap_sweeping_new_tariffs_on_60_trade/)
-- [I lost 72,000 today.](https://www.reddit.com/r/wallstreetbets/comments/1v4s0k8/i_lost_72000_today/)
-- [Larry‘s deal with pentagon.. Is orcl next intel for US gov?](https://www.reddit.com/r/wallstreetbets/comments/1v4rn16/larrys_deal_with_pentagon_is_orcl_next_intel_for/)
+- [319k GOOGL Yolo](https://www.reddit.com/r/wallstreetbets/comments/1v5tkjj/319k_googl_yolo/)
+- [It only took a few years](https://www.reddit.com/r/wallstreetbets/comments/1v5su9g/it_only_took_a_few_years/)
+- [US to Lift Ban on Imports of Mexican Cattle, WSJ Reports](https://www.reddit.com/r/wallstreetbets/comments/1v5shh6/us_to_lift_ban_on_imports_of_mexican_cattle_wsj/)
+- [Good idea me, leaving this over the weekend](https://www.reddit.com/r/wallstreetbets/comments/1v5sep7/good_idea_me_leaving_this_over_the_weekend/)
+- [Cooking or copium? TSLA Calls &lpar;After earnings&rpar; Averaged down from 19.55 to 11.24](https://www.reddit.com/r/wallstreetbets/comments/1v5s8wv/cooking_or_copium_tsla_calls_after_earnings/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
