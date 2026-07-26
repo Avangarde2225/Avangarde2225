@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [319k GOOGL Yolo](https://www.reddit.com/r/wallstreetbets/comments/1v5tkjj/319k_googl_yolo/)
-- [It only took a few years](https://www.reddit.com/r/wallstreetbets/comments/1v5su9g/it_only_took_a_few_years/)
-- [US to Lift Ban on Imports of Mexican Cattle, WSJ Reports](https://www.reddit.com/r/wallstreetbets/comments/1v5shh6/us_to_lift_ban_on_imports_of_mexican_cattle_wsj/)
-- [Good idea me, leaving this over the weekend](https://www.reddit.com/r/wallstreetbets/comments/1v5sep7/good_idea_me_leaving_this_over_the_weekend/)
-- [Cooking or copium? TSLA Calls &lpar;After earnings&rpar; Averaged down from 19.55 to 11.24](https://www.reddit.com/r/wallstreetbets/comments/1v5s8wv/cooking_or_copium_tsla_calls_after_earnings/)
+- [Million dollar SLS yolo &lpar;two slides&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1v6mmlu/million_dollar_sls_yolo_two_slides/)
+- [Apparently SpaceX launched a rocket at my portfolio.](https://www.reddit.com/r/wallstreetbets/comments/1v6hf4t/apparently_spacex_launched_a_rocket_at_my/)
+- [Smooth brained activity.](https://www.reddit.com/r/wallstreetbets/comments/1v6f9uk/smooth_brained_activity/)
+- [Meta and Microsoft earnings this week](https://www.reddit.com/r/wallstreetbets/comments/1v6ca75/meta_and_microsoft_earnings_this_week/)
+- [Debt mgmt to wealth mgmt: $15k to $1.5M in &lt; 2 months](https://www.reddit.com/r/wallstreetbets/comments/1v6a4yw/debt_mgmt_to_wealth_mgmt_15k_to_15m_in_2_months/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
