@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TIM COOK THE GAME THEORY BOSS](https://www.reddit.com/r/wallstreetbets/comments/1v8j8ex/tim_cook_the_game_theory_boss/)
-- [Words of encouragement](https://www.reddit.com/r/wallstreetbets/comments/1v8iqky/words_of_encouragement/)
-- [100,000% returns on APPL](https://www.reddit.com/r/wallstreetbets/comments/1v8huit/100000_returns_on_appl/)
-- [100 ATM weekly call credit spreads on SPX &lpar;$50,000&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1v8g64t/100_atm_weekly_call_credit_spreads_on_spx_50000/)
-- [Don&#39;t do options](https://www.reddit.com/r/wallstreetbets/comments/1v8g5ug/dont_do_options/)
+- [Market tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1v9h2pj/market_tomorrow/)
+- [Houthis Claim Strike on Another Saudi Oil Tanker](https://www.reddit.com/r/wallstreetbets/comments/1v9ehv9/houthis_claim_strike_on_another_saudi_oil_tanker/)
+- [Sandisk &lpar;SNDK&rpar; continues its crash after hours, down almost -20% on the day, and -60% off its highs in just over 1 month.](https://www.reddit.com/r/wallstreetbets/comments/1v9e60m/sandisk_sndk_continues_its_crash_after_hours_down/)
+- [This is who you are liquidating](https://www.reddit.com/r/wallstreetbets/comments/1v9dxdx/this_is_who_you_are_liquidating/)
+- [&lt;Sad momo noises&gt; [OC]](https://www.reddit.com/r/wallstreetbets/comments/1v9czh2/sad_momo_noises_oc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
