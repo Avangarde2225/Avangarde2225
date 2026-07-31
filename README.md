@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Samsung Electronics second-quarter operating profit beats estimates on soaring AI chip demand](https://www.reddit.com/r/wallstreetbets/comments/1vadk9l/samsung_electronics_secondquarter_operating/)
-- [Mood](https://www.reddit.com/r/wallstreetbets/comments/1vacfb9/mood/)
-- [Microsoft earnings report going well](https://www.reddit.com/r/wallstreetbets/comments/1vabhcp/microsoft_earnings_report_going_well/)
-- [The markets today](https://www.reddit.com/r/wallstreetbets/comments/1vabeqb/the_markets_today/)
-- [Wow](https://www.reddit.com/r/wallstreetbets/comments/1vaba7w/wow/)
+- [We are so back](https://www.reddit.com/r/wallstreetbets/comments/1vbbw0o/we_are_so_back/)
+- [farewell sweet prince](https://www.reddit.com/r/wallstreetbets/comments/1vbbtm5/farewell_sweet_prince/)
+- [SK Hynix and Samsung shares surge over 20% as AI rally roars back](https://www.reddit.com/r/wallstreetbets/comments/1vbb95o/sk_hynix_and_samsung_shares_surge_over_20_as_ai/)
+- [I thought putting on 4x leverage on AI stocks already up 1000% YTD was safe!](https://www.reddit.com/r/wallstreetbets/comments/1vb9i7p/i_thought_putting_on_4x_leverage_on_ai_stocks/)
+- [Thoughts on Leopold going tits up - big lesson in this](https://www.reddit.com/r/wallstreetbets/comments/1vb7zzh/thoughts_on_leopold_going_tits_up_big_lesson_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
