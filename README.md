@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [We are so back](https://www.reddit.com/r/wallstreetbets/comments/1vbbw0o/we_are_so_back/)
-- [farewell sweet prince](https://www.reddit.com/r/wallstreetbets/comments/1vbbtm5/farewell_sweet_prince/)
-- [SK Hynix and Samsung shares surge over 20% as AI rally roars back](https://www.reddit.com/r/wallstreetbets/comments/1vbb95o/sk_hynix_and_samsung_shares_surge_over_20_as_ai/)
-- [I thought putting on 4x leverage on AI stocks already up 1000% YTD was safe!](https://www.reddit.com/r/wallstreetbets/comments/1vb9i7p/i_thought_putting_on_4x_leverage_on_ai_stocks/)
-- [Thoughts on Leopold going tits up - big lesson in this](https://www.reddit.com/r/wallstreetbets/comments/1vb7zzh/thoughts_on_leopold_going_tits_up_big_lesson_in/)
+- [Loss porn -73k at 20 years old](https://www.reddit.com/r/wallstreetbets/comments/1vc86ja/loss_porn_73k_at_20_years_old/)
+- [Why the fuck is Netflix down 40% over the past year?](https://www.reddit.com/r/wallstreetbets/comments/1vc7l58/why_the_fuck_is_netflix_down_40_over_the_past_year/)
+- [A notepad in front of U.S. Secretary of the Treasury Scott Bessent reads &quot;To Do Buy Japanese Yen $5-10 bil&quot;](https://www.reddit.com/r/wallstreetbets/comments/1vc7et8/a_notepad_in_front_of_us_secretary_of_the/)
+- [SPY hitting us with the middle finger EOD](https://www.reddit.com/r/wallstreetbets/comments/1vc6oiq/spy_hitting_us_with_the_middle_finger_eod/)
+- [U.S., Israel preparing to bombard energy-related targets in Iran](https://www.reddit.com/r/wallstreetbets/comments/1vc6nh1/us_israel_preparing_to_bombard_energyrelated/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
