@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Loss porn -73k at 20 years old](https://www.reddit.com/r/wallstreetbets/comments/1vc86ja/loss_porn_73k_at_20_years_old/)
-- [Why the fuck is Netflix down 40% over the past year?](https://www.reddit.com/r/wallstreetbets/comments/1vc7l58/why_the_fuck_is_netflix_down_40_over_the_past_year/)
-- [A notepad in front of U.S. Secretary of the Treasury Scott Bessent reads &quot;To Do Buy Japanese Yen $5-10 bil&quot;](https://www.reddit.com/r/wallstreetbets/comments/1vc7et8/a_notepad_in_front_of_us_secretary_of_the/)
-- [SPY hitting us with the middle finger EOD](https://www.reddit.com/r/wallstreetbets/comments/1vc6oiq/spy_hitting_us_with_the_middle_finger_eod/)
-- [U.S., Israel preparing to bombard energy-related targets in Iran](https://www.reddit.com/r/wallstreetbets/comments/1vc6nh1/us_israel_preparing_to_bombard_energyrelated/)
+- [Buy the dip maggots](https://www.reddit.com/r/wallstreetbets/comments/1vd3vfk/buy_the_dip_maggots/)
+- [$500 to $13000 in one day](https://www.reddit.com/r/wallstreetbets/comments/1vd2fzc/500_to_13000_in_one_day/)
+- [Cheesecake factory is where it’s at](https://www.reddit.com/r/wallstreetbets/comments/1vd0za1/cheesecake_factory_is_where_its_at/)
+- [Crazy week, what should I do with my remaining calls?](https://www.reddit.com/r/wallstreetbets/comments/1vd0uw5/crazy_week_what_should_i_do_with_my_remaining/)
+- [All-in on semiconduct leverage](https://www.reddit.com/r/wallstreetbets/comments/1vcwsre/allin_on_semiconduct_leverage/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
