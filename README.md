@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Buy the dip maggots](https://www.reddit.com/r/wallstreetbets/comments/1vd3vfk/buy_the_dip_maggots/)
-- [$500 to $13000 in one day](https://www.reddit.com/r/wallstreetbets/comments/1vd2fzc/500_to_13000_in_one_day/)
-- [Cheesecake factory is where it’s at](https://www.reddit.com/r/wallstreetbets/comments/1vd0za1/cheesecake_factory_is_where_its_at/)
-- [Crazy week, what should I do with my remaining calls?](https://www.reddit.com/r/wallstreetbets/comments/1vd0uw5/crazy_week_what_should_i_do_with_my_remaining/)
-- [All-in on semiconduct leverage](https://www.reddit.com/r/wallstreetbets/comments/1vcwsre/allin_on_semiconduct_leverage/)
+- [The best setup in the market right now is a gay dating app](https://www.reddit.com/r/wallstreetbets/comments/1vdyths/the_best_setup_in_the_market_right_now_is_a_gay/)
+- [Cooking both Vegas and Wall st.](https://www.reddit.com/r/wallstreetbets/comments/1vdwbbu/cooking_both_vegas_and_wall_st/)
+- [Oil Prices Plummet as Investors Digest Pause in Fighting in Iran War](https://www.reddit.com/r/wallstreetbets/comments/1vdvzbp/oil_prices_plummet_as_investors_digest_pause_in/)
+- [Thank you, Timmy!](https://www.reddit.com/r/wallstreetbets/comments/1vdtfgb/thank_you_timmy/)
+- [If earnings only drop twice a year now, what the hell are we supposed to gamble on?](https://www.reddit.com/r/wallstreetbets/comments/1vdt88m/if_earnings_only_drop_twice_a_year_now_what_the/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
