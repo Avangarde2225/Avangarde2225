@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The best setup in the market right now is a gay dating app](https://www.reddit.com/r/wallstreetbets/comments/1vdyths/the_best_setup_in_the_market_right_now_is_a_gay/)
-- [Cooking both Vegas and Wall st.](https://www.reddit.com/r/wallstreetbets/comments/1vdwbbu/cooking_both_vegas_and_wall_st/)
-- [Oil Prices Plummet as Investors Digest Pause in Fighting in Iran War](https://www.reddit.com/r/wallstreetbets/comments/1vdvzbp/oil_prices_plummet_as_investors_digest_pause_in/)
-- [Thank you, Timmy!](https://www.reddit.com/r/wallstreetbets/comments/1vdtfgb/thank_you_timmy/)
-- [If earnings only drop twice a year now, what the hell are we supposed to gamble on?](https://www.reddit.com/r/wallstreetbets/comments/1vdt88m/if_earnings_only_drop_twice_a_year_now_what_the/)
+- [Koreans now all in on 2x inverse ETF](https://www.reddit.com/r/wallstreetbets/comments/1vevv2v/koreans_now_all_in_on_2x_inverse_etf/)
+- [Never give up, always keep gambling](https://www.reddit.com/r/wallstreetbets/comments/1veu58v/never_give_up_always_keep_gambling/)
+- [Price analysts to Micron investors](https://www.reddit.com/r/wallstreetbets/comments/1vettb0/price_analysts_to_micron_investors/)
+- [The market on ceasefire news](https://www.reddit.com/r/wallstreetbets/comments/1vetnuq/the_market_on_ceasefire_news/)
+- [eating good thanks $amc](https://www.reddit.com/r/wallstreetbets/comments/1vet8us/eating_good_thanks_amc/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
