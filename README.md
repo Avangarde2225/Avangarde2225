@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Escaping the rat race… see you in valhalla $HTZ #23KNUKE](https://www.reddit.com/r/wallstreetbets/comments/1vhmzgy/escaping_the_rat_race_see_you_in_valhalla_htz/)
-- [DOCS +70% after hours on heavy volume - what am I missing?](https://www.reddit.com/r/wallstreetbets/comments/1vhlkrm/docs_70_after_hours_on_heavy_volume_what_am_i/)
-- [17250 shares on margin $HTZ](https://www.reddit.com/r/wallstreetbets/comments/1vhj1o0/17250_shares_on_margin_htz/)
-- [How did SPCX maintain its share price today despite adding 900,000,000 more shares?](https://www.reddit.com/r/wallstreetbets/comments/1vhixh5/how_did_spcx_maintain_its_share_price_today/)
-- [Ready to be HTZ again](https://www.reddit.com/r/wallstreetbets/comments/1vhi1ex/ready_to_be_htz_again/)
+- [Diary of a regard](https://www.reddit.com/r/wallstreetbets/comments/1vihdhq/diary_of_a_regard/)
+- [RYCEY Gains](https://www.reddit.com/r/wallstreetbets/comments/1vigkhi/rycey_gains/)
+- [$1,510,891.00 in one month. Up 8,376% AMA](https://www.reddit.com/r/wallstreetbets/comments/1vidi4f/151089100_in_one_month_up_8376_ama/)
+- [420k BTDR for earnings](https://www.reddit.com/r/wallstreetbets/comments/1vidcz4/420k_btdr_for_earnings/)
+- [Aug Week 1 +46k](https://www.reddit.com/r/wallstreetbets/comments/1vibwst/aug_week_1_46k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
