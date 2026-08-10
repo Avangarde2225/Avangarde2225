@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I still have some money left....thinking maybe it is time to chill for a minute.](https://www.reddit.com/r/wallstreetbets/comments/1vjbc4k/i_still_have_some_money_leftthinking_maybe_it_is/)
-- [Updt: On my naked short Call](https://www.reddit.com/r/wallstreetbets/comments/1vjaq92/updt_on_my_naked_short_call/)
-- [learned my lesson](https://www.reddit.com/r/wallstreetbets/comments/1vj9b2j/learned_my_lesson/)
-- [Berkshire Hathaway was a buyer of stocks last quarter for first time in 3 years. You know what it means when Berkshire starts buying, right?](https://www.reddit.com/r/wallstreetbets/comments/1vj8ro3/berkshire_hathaway_was_a_buyer_of_stocks_last/)
-- [Found the Man Himself in a Charity Shop](https://www.reddit.com/r/wallstreetbets/comments/1vj76oc/found_the_man_himself_in_a_charity_shop/)
+- [Ok. Which One Of You Is This Wheeling Mitchy Mac Around?](https://www.reddit.com/r/wallstreetbets/comments/1vk61p7/ok_which_one_of_you_is_this_wheeling_mitchy_mac/)
+- [Lionel HTZ: &quot;No, Money Down!&quot;](https://www.reddit.com/r/wallstreetbets/comments/1vk5v50/lionel_htz_no_money_down/)
+- [Mike Cannon-Brookes says Atlassian is taming AI costs](https://www.reddit.com/r/wallstreetbets/comments/1vk5sge/mike_cannonbrookes_says_atlassian_is_taming_ai/)
+- [Time to HERTZ the 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/1vk5mtn/time_to_hertz_the/)
+- [$40k on $HTZ - capping max gain by selling CCs](https://www.reddit.com/r/wallstreetbets/comments/1vk5hv5/40k_on_htz_capping_max_gain_by_selling_ccs/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
