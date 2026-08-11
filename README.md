@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Ok. Which One Of You Is This Wheeling Mitchy Mac Around?](https://www.reddit.com/r/wallstreetbets/comments/1vk61p7/ok_which_one_of_you_is_this_wheeling_mitchy_mac/)
-- [Lionel HTZ: &quot;No, Money Down!&quot;](https://www.reddit.com/r/wallstreetbets/comments/1vk5v50/lionel_htz_no_money_down/)
-- [Mike Cannon-Brookes says Atlassian is taming AI costs](https://www.reddit.com/r/wallstreetbets/comments/1vk5sge/mike_cannonbrookes_says_atlassian_is_taming_ai/)
-- [Time to HERTZ the 🌈🐻](https://www.reddit.com/r/wallstreetbets/comments/1vk5mtn/time_to_hertz_the/)
-- [$40k on $HTZ - capping max gain by selling CCs](https://www.reddit.com/r/wallstreetbets/comments/1vk5hv5/40k_on_htz_capping_max_gain_by_selling_ccs/)
+- [To all my fellow gamblers here trying to fix our problems and better our lives 🙏🏻](https://www.reddit.com/r/wallstreetbets/comments/1vl28cp/to_all_my_fellow_gamblers_here_trying_to_fix_our/)
+- [Nvidia lines up $500 billion in financing as CEO Jensen Huang tells CNBC his chips are ‘investable asset’](https://www.reddit.com/r/wallstreetbets/comments/1vl0z4e/nvidia_lines_up_500_billion_in_financing_as_ceo/)
+- [#msft](https://www.reddit.com/r/wallstreetbets/comments/1vl0wy2/msft/)
+- [Do I take the L or hold](https://www.reddit.com/r/wallstreetbets/comments/1vkz5j9/do_i_take_the_l_or_hold/)
+- [Riot Platforms signs $9.1 billion, 191 MW AI lease at Rockdale: Q2 Earnings](https://www.reddit.com/r/wallstreetbets/comments/1vky8y2/riot_platforms_signs_91_billion_191_mw_ai_lease/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
