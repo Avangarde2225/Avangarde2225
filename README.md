@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [To all my fellow gamblers here trying to fix our problems and better our lives 🙏🏻](https://www.reddit.com/r/wallstreetbets/comments/1vl28cp/to_all_my_fellow_gamblers_here_trying_to_fix_our/)
-- [Nvidia lines up $500 billion in financing as CEO Jensen Huang tells CNBC his chips are ‘investable asset’](https://www.reddit.com/r/wallstreetbets/comments/1vl0z4e/nvidia_lines_up_500_billion_in_financing_as_ceo/)
-- [#msft](https://www.reddit.com/r/wallstreetbets/comments/1vl0wy2/msft/)
-- [Do I take the L or hold](https://www.reddit.com/r/wallstreetbets/comments/1vkz5j9/do_i_take_the_l_or_hold/)
-- [Riot Platforms signs $9.1 billion, 191 MW AI lease at Rockdale: Q2 Earnings](https://www.reddit.com/r/wallstreetbets/comments/1vky8y2/riot_platforms_signs_91_billion_191_mw_ai_lease/)
+- [Tomorrow @ 0830](https://www.reddit.com/r/wallstreetbets/comments/1vlz5m2/tomorrow_0830/)
+- [Is this some kind of hint](https://www.reddit.com/r/wallstreetbets/comments/1vlz3jh/is_this_some_kind_of_hint/)
+- [Preview of tomorrow&#39;s 8:30am CPI](https://www.reddit.com/r/wallstreetbets/comments/1vlyvuy/preview_of_tomorrows_830am_cpi/)
+- [What to buy](https://www.reddit.com/r/wallstreetbets/comments/1vlyv1s/what_to_buy/)
+- [Being right hertz - take that nerds 👑](https://www.reddit.com/r/wallstreetbets/comments/1vlx3lj/being_right_hertz_take_that_nerds/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
