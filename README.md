@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It&#39;s a sign, market crash tomorrow QQQ to 385](https://www.reddit.com/r/wallstreetbets/comments/1vnsltt/its_a_sign_market_crash_tomorrow_qqq_to_385/)
-- [Went to support my fellow regrads…](https://www.reddit.com/r/wallstreetbets/comments/1vnsbr8/went_to_support_my_fellow_regrads/)
-- [Long ADBE @ $227.69 for $53,279, up $9,586 &lpar;+18%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1vnroul/long_adbe_22769_for_53279_up_9586_18/)
-- [Is AI About to Kill Bitcoin Mining?](https://www.reddit.com/r/wallstreetbets/comments/1vnqt18/is_ai_about_to_kill_bitcoin_mining/)
-- [Reddit - $RDTL Gains](https://www.reddit.com/r/wallstreetbets/comments/1vnqmdw/reddit_rdtl_gains/)
+- [Only connoisseurs of WSB have a meme folder.](https://www.reddit.com/r/wallstreetbets/comments/1vonoon/only_connoisseurs_of_wsb_have_a_meme_folder/)
+- [What AI bubble?](https://www.reddit.com/r/wallstreetbets/comments/1vongo3/what_ai_bubble/)
+- [Oracle’s $165 Billion Data Center Plan Hits a Gas Pipeline Delay](https://www.reddit.com/r/wallstreetbets/comments/1vonaov/oracles_165_billion_data_center_plan_hits_a_gas/)
+- [Can you guys tell when I discovered option trading?](https://www.reddit.com/r/wallstreetbets/comments/1von5sm/can_you_guys_tell_when_i_discovered_option_trading/)
+- [Market has me feeling like this lately](https://www.reddit.com/r/wallstreetbets/comments/1von4cx/market_has_me_feeling_like_this_lately/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
