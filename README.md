@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Only connoisseurs of WSB have a meme folder.](https://www.reddit.com/r/wallstreetbets/comments/1vonoon/only_connoisseurs_of_wsb_have_a_meme_folder/)
-- [What AI bubble?](https://www.reddit.com/r/wallstreetbets/comments/1vongo3/what_ai_bubble/)
-- [Oracle’s $165 Billion Data Center Plan Hits a Gas Pipeline Delay](https://www.reddit.com/r/wallstreetbets/comments/1vonaov/oracles_165_billion_data_center_plan_hits_a_gas/)
-- [Can you guys tell when I discovered option trading?](https://www.reddit.com/r/wallstreetbets/comments/1von5sm/can_you_guys_tell_when_i_discovered_option_trading/)
-- [Market has me feeling like this lately](https://www.reddit.com/r/wallstreetbets/comments/1von4cx/market_has_me_feeling_like_this_lately/)
+- [There&#39;s something wrong with my graph](https://www.reddit.com/r/wallstreetbets/comments/1vpiklp/theres_something_wrong_with_my_graph/)
+- [A tradeR in the wild](https://www.reddit.com/r/wallstreetbets/comments/1vpia0v/a_trader_in_the_wild/)
+- [Which one of you degens is this?](https://www.reddit.com/r/wallstreetbets/comments/1vphhnh/which_one_of_you_degens_is_this/)
+- [Quick 5 figure profit off NBIS](https://www.reddit.com/r/wallstreetbets/comments/1vpfuvw/quick_5_figure_profit_off_nbis/)
+- [Betting against HTZ meme. Net +15k in a few days](https://www.reddit.com/r/wallstreetbets/comments/1vpcch9/betting_against_htz_meme_net_15k_in_a_few_days/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
