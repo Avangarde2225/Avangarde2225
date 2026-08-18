@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [When even dividend crap is breaking out like this, you know that so many dollars are being printed they&#39;re running out of places to hide](https://www.reddit.com/r/wallstreetbets/comments/1vqayyw/when_even_dividend_crap_is_breaking_out_like_this/)
-- [Is this enough signal to short Crude?](https://www.reddit.com/r/wallstreetbets/comments/1vq8j5t/is_this_enough_signal_to_short_crude/)
-- [I know this sounds crazy! Citigroup](https://www.reddit.com/r/wallstreetbets/comments/1vq7qhk/i_know_this_sounds_crazy_citigroup/)
-- [What Are Your Moves Tomorrow, August 17, 2026](https://www.reddit.com/r/wallstreetbets/comments/1vq701m/what_are_your_moves_tomorrow_august_17_2026/)
-- [SEZL dropped c.35% post earnings beat. Could this be a red flag for KLAR next week?](https://www.reddit.com/r/wallstreetbets/comments/1vq4e9s/sezl_dropped_c35_post_earnings_beat_could_this_be/)
+- [Gen Z swaps retirement saving for sports betting](https://www.reddit.com/r/wallstreetbets/comments/1vr9h9v/gen_z_swaps_retirement_saving_for_sports_betting/)
+- [Upped my 50k to make 500k bet on SpaceX to reach 300 by January 2028 to $100k to make a million. Now represents 10% of my total port](https://www.reddit.com/r/wallstreetbets/comments/1vr99g0/upped_my_50k_to_make_500k_bet_on_spacex_to_reach/)
+- [Hayden Panettiere Johnson &amp; Johnson market short?](https://www.reddit.com/r/wallstreetbets/comments/1vr8wjg/hayden_panettiere_johnson_johnson_market_short/)
+- [Paper handed my full port, 3.7k gain vs 18-19k gain](https://www.reddit.com/r/wallstreetbets/comments/1vr8183/paper_handed_my_full_port_37k_gain_vs_1819k_gain/)
+- [Nvidia to provide up to $105 billion guarantee for OpenAI&#39;s Ohio data center](https://www.reddit.com/r/wallstreetbets/comments/1vr73ke/nvidia_to_provide_up_to_105_billion_guarantee_for/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
