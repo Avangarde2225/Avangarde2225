@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Gen Z swaps retirement saving for sports betting](https://www.reddit.com/r/wallstreetbets/comments/1vr9h9v/gen_z_swaps_retirement_saving_for_sports_betting/)
-- [Upped my 50k to make 500k bet on SpaceX to reach 300 by January 2028 to $100k to make a million. Now represents 10% of my total port](https://www.reddit.com/r/wallstreetbets/comments/1vr99g0/upped_my_50k_to_make_500k_bet_on_spacex_to_reach/)
-- [Hayden Panettiere Johnson &amp; Johnson market short?](https://www.reddit.com/r/wallstreetbets/comments/1vr8wjg/hayden_panettiere_johnson_johnson_market_short/)
-- [Paper handed my full port, 3.7k gain vs 18-19k gain](https://www.reddit.com/r/wallstreetbets/comments/1vr8183/paper_handed_my_full_port_37k_gain_vs_1819k_gain/)
-- [Nvidia to provide up to $105 billion guarantee for OpenAI&#39;s Ohio data center](https://www.reddit.com/r/wallstreetbets/comments/1vr73ke/nvidia_to_provide_up_to_105_billion_guarantee_for/)
+- [OpenAI Is Slowing Down Its AI Training](https://www.reddit.com/r/wallstreetbets/comments/1vs4pi2/openai_is_slowing_down_its_ai_training/)
+- [Guys… run for the exit](https://www.reddit.com/r/wallstreetbets/comments/1vs3xfe/guys_run_for_the_exit/)
+- [KLAR loss](https://www.reddit.com/r/wallstreetbets/comments/1vs3xcp/klar_loss/)
+- [Closed NBIS for $20,793.68 gain &lpar;+24%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1vs12cc/closed_nbis_for_2079368_gain_24/)
+- [NASDAQ plans to have 23 hour trading, 5 days a week by December 6th](https://www.reddit.com/r/wallstreetbets/comments/1vs0jh8/nasdaq_plans_to_have_23_hour_trading_5_days_a/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
