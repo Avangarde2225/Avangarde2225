@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [OpenAI Is Slowing Down Its AI Training](https://www.reddit.com/r/wallstreetbets/comments/1vs4pi2/openai_is_slowing_down_its_ai_training/)
-- [Guys… run for the exit](https://www.reddit.com/r/wallstreetbets/comments/1vs3xfe/guys_run_for_the_exit/)
-- [KLAR loss](https://www.reddit.com/r/wallstreetbets/comments/1vs3xcp/klar_loss/)
-- [Closed NBIS for $20,793.68 gain &lpar;+24%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1vs12cc/closed_nbis_for_2079368_gain_24/)
-- [NASDAQ plans to have 23 hour trading, 5 days a week by December 6th](https://www.reddit.com/r/wallstreetbets/comments/1vs0jh8/nasdaq_plans_to_have_23_hour_trading_5_days_a/)
+- [Scalping MRNA like a Crazy Maniac, 31 In and Out Trades, 32.6K Profits](https://www.reddit.com/r/wallstreetbets/comments/1vt0h99/scalping_mrna_like_a_crazy_maniac_31_in_and_out/)
+- [Win small, lose big 💪](https://www.reddit.com/r/wallstreetbets/comments/1vszqq9/win_small_lose_big/)
+- [What Are Your Moves Tomorrow, August 20, 2026](https://www.reddit.com/r/wallstreetbets/comments/1vsxde7/what_are_your_moves_tomorrow_august_20_2026/)
+- [OpenAI &#39;will be a public company in 2027&#39; or sooner, CFO Friar tells employees](https://www.reddit.com/r/wallstreetbets/comments/1vsx6ax/openai_will_be_a_public_company_in_2027_or_sooner/)
+- [Nike - just lose it.](https://www.reddit.com/r/wallstreetbets/comments/1vswfnx/nike_just_lose_it/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
