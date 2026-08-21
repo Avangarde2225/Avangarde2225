@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Scalping MRNA like a Crazy Maniac, 31 In and Out Trades, 32.6K Profits](https://www.reddit.com/r/wallstreetbets/comments/1vt0h99/scalping_mrna_like_a_crazy_maniac_31_in_and_out/)
-- [Win small, lose big 💪](https://www.reddit.com/r/wallstreetbets/comments/1vszqq9/win_small_lose_big/)
-- [What Are Your Moves Tomorrow, August 20, 2026](https://www.reddit.com/r/wallstreetbets/comments/1vsxde7/what_are_your_moves_tomorrow_august_20_2026/)
-- [OpenAI &#39;will be a public company in 2027&#39; or sooner, CFO Friar tells employees](https://www.reddit.com/r/wallstreetbets/comments/1vsx6ax/openai_will_be_a_public_company_in_2027_or_sooner/)
-- [Nike - just lose it.](https://www.reddit.com/r/wallstreetbets/comments/1vswfnx/nike_just_lose_it/)
+- [The guy who went all in Intel right before it dropped from $50 to $20](https://www.reddit.com/r/wallstreetbets/comments/1vtyx19/the_guy_who_went_all_in_intel_right_before_it/)
+- [Over 800k placed on applovin](https://www.reddit.com/r/wallstreetbets/comments/1vtyfld/over_800k_placed_on_applovin/)
+- [Zuckerberg is a failure](https://www.reddit.com/r/wallstreetbets/comments/1vtxz1o/zuckerberg_is_a_failure/)
+- [$RARE Ultragenyx Pharma INC,FDA APPROVAL](https://www.reddit.com/r/wallstreetbets/comments/1vtx0og/rare_ultragenyx_pharma_incfda_approval/)
+- [Shares because I’m gay $RDDT](https://www.reddit.com/r/wallstreetbets/comments/1vtwy3t/shares_because_im_gay_rddt/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
