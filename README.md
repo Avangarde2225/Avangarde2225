@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The guy who went all in Intel right before it dropped from $50 to $20](https://www.reddit.com/r/wallstreetbets/comments/1vtyx19/the_guy_who_went_all_in_intel_right_before_it/)
-- [Over 800k placed on applovin](https://www.reddit.com/r/wallstreetbets/comments/1vtyfld/over_800k_placed_on_applovin/)
-- [Zuckerberg is a failure](https://www.reddit.com/r/wallstreetbets/comments/1vtxz1o/zuckerberg_is_a_failure/)
-- [$RARE Ultragenyx Pharma INC,FDA APPROVAL](https://www.reddit.com/r/wallstreetbets/comments/1vtx0og/rare_ultragenyx_pharma_incfda_approval/)
-- [Shares because I’m gay $RDDT](https://www.reddit.com/r/wallstreetbets/comments/1vtwy3t/shares_because_im_gay_rddt/)
+- [Salesforce partners not seeing meaningful revenue from Agentforce AI platform, report says](https://www.reddit.com/r/wallstreetbets/comments/1vutz6c/salesforce_partners_not_seeing_meaningful_revenue/)
+- [I traded CRCL off yesterday’s BTC move and made $24K🚀](https://www.reddit.com/r/wallstreetbets/comments/1vutct8/i_traded_crcl_off_yesterdays_btc_move_and_made_24k/)
+- [give me hope guys!](https://www.reddit.com/r/wallstreetbets/comments/1vus0fd/give_me_hope_guys/)
+- [Aug Week 3 +62k](https://www.reddit.com/r/wallstreetbets/comments/1vurssc/aug_week_3_62k/)
+- [Weekend Discussion Thread for the Weekend of August 22-23](https://www.reddit.com/r/wallstreetbets/comments/1vuqyzj/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
