@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Salesforce partners not seeing meaningful revenue from Agentforce AI platform, report says](https://www.reddit.com/r/wallstreetbets/comments/1vutz6c/salesforce_partners_not_seeing_meaningful_revenue/)
-- [I traded CRCL off yesterday’s BTC move and made $24K🚀](https://www.reddit.com/r/wallstreetbets/comments/1vutct8/i_traded_crcl_off_yesterdays_btc_move_and_made_24k/)
-- [give me hope guys!](https://www.reddit.com/r/wallstreetbets/comments/1vus0fd/give_me_hope_guys/)
-- [Aug Week 3 +62k](https://www.reddit.com/r/wallstreetbets/comments/1vurssc/aug_week_3_62k/)
-- [Weekend Discussion Thread for the Weekend of August 22-23](https://www.reddit.com/r/wallstreetbets/comments/1vuqyzj/weekend_discussion_thread_for_the_weekend_of/)
+- [Does the 15% hike in prices mean that NVIDIA is going to rise?](https://www.reddit.com/r/wallstreetbets/comments/1vvru4z/does_the_15_hike_in_prices_mean_that_nvidia_is/)
+- [New Research Just Dropped](https://www.reddit.com/r/wallstreetbets/comments/1vvrioh/new_research_just_dropped/)
+- [NVIDIA customers notified about AI-related price hikes above 15%, Bloomberg News reports](https://www.reddit.com/r/wallstreetbets/comments/1vvrh14/nvidia_customers_notified_about_airelated_price/)
+- [$90k 1 week CBRS options](https://www.reddit.com/r/wallstreetbets/comments/1vvpq3l/90k_1_week_cbrs_options/)
+- [What&#39;s with the price-dependent periods of reduced volatility?](https://www.reddit.com/r/wallstreetbets/comments/1vvohaa/whats_with_the_pricedependent_periods_of_reduced/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
