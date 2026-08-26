@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Situation unAwareness 2.0](https://www.reddit.com/r/wallstreetbets/comments/1vxk48v/situation_unawareness_20/)
-- [every woman is getting on ozempic](https://www.reddit.com/r/wallstreetbets/comments/1vxjzxm/every_woman_is_getting_on_ozempic/)
-- [Wendy&#39;s CEO Says Food Quality Hasn’t Been Chain’s Top Priority—Vows Changes](https://www.reddit.com/r/wallstreetbets/comments/1vxilt1/wendys_ceo_says_food_quality_hasnt_been_chains/)
-- [The AI Trade is Dead, OpenAI and Anthropic undershot the moon, pressure private equity](https://www.reddit.com/r/wallstreetbets/comments/1vxfisg/the_ai_trade_is_dead_openai_and_anthropic/)
-- [When the bears&#39; YOLO pays off](https://www.reddit.com/r/wallstreetbets/comments/1vxfiqw/when_the_bears_yolo_pays_off/)
+- [TSLA Calls Made Me $45K😅](https://www.reddit.com/r/wallstreetbets/comments/1vyen42/tsla_calls_made_me_45k/)
+- [Buy at the very bottom?](https://www.reddit.com/r/wallstreetbets/comments/1vycz2n/buy_at_the_very_bottom/)
+- [Something of a regard myself](https://www.reddit.com/r/wallstreetbets/comments/1vyce6i/something_of_a_regard_myself/)
+- [OpenAI’s Head of Data Centers Has Left the Company](https://www.reddit.com/r/wallstreetbets/comments/1vybwg5/openais_head_of_data_centers_has_left_the_company/)
+- [Dicks Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1vyaybm/dicks_loss_porn/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
