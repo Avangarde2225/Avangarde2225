@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [TSLA Calls Made Me $45K😅](https://www.reddit.com/r/wallstreetbets/comments/1vyen42/tsla_calls_made_me_45k/)
-- [Buy at the very bottom?](https://www.reddit.com/r/wallstreetbets/comments/1vycz2n/buy_at_the_very_bottom/)
-- [Something of a regard myself](https://www.reddit.com/r/wallstreetbets/comments/1vyce6i/something_of_a_regard_myself/)
-- [OpenAI’s Head of Data Centers Has Left the Company](https://www.reddit.com/r/wallstreetbets/comments/1vybwg5/openais_head_of_data_centers_has_left_the_company/)
-- [Dicks Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1vyaybm/dicks_loss_porn/)
+- [Well, look who is back !](https://www.reddit.com/r/wallstreetbets/comments/1vzjy5a/well_look_who_is_back/)
+- [AI Data center trade will never die because the government &lpar;NSA, CIA, FBI, etc.&rpar; can always buy up spare compute for AI mass surveillance](https://www.reddit.com/r/wallstreetbets/comments/1vzijvr/ai_data_center_trade_will_never_die_because_the/)
+- [Platinum, sooner or later](https://www.reddit.com/r/wallstreetbets/comments/1vzie9z/platinum_sooner_or_later/)
+- [Im not leaving](https://www.reddit.com/r/wallstreetbets/comments/1vzhd2q/im_not_leaving/)
+- [Jensen Huang crushing bears&#39; hopes and dreams](https://www.reddit.com/r/wallstreetbets/comments/1vzfluq/jensen_huang_crushing_bears_hopes_and_dreams/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
