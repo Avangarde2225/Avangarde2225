@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Well, look who is back !](https://www.reddit.com/r/wallstreetbets/comments/1vzjy5a/well_look_who_is_back/)
-- [AI Data center trade will never die because the government &lpar;NSA, CIA, FBI, etc.&rpar; can always buy up spare compute for AI mass surveillance](https://www.reddit.com/r/wallstreetbets/comments/1vzijvr/ai_data_center_trade_will_never_die_because_the/)
-- [Platinum, sooner or later](https://www.reddit.com/r/wallstreetbets/comments/1vzie9z/platinum_sooner_or_later/)
-- [Im not leaving](https://www.reddit.com/r/wallstreetbets/comments/1vzhd2q/im_not_leaving/)
-- [Jensen Huang crushing bears&#39; hopes and dreams](https://www.reddit.com/r/wallstreetbets/comments/1vzfluq/jensen_huang_crushing_bears_hopes_and_dreams/)
+- [Advent, Stripe consortium is said to drop pursuit of PayPal, Bloomberg News reports](https://www.reddit.com/r/wallstreetbets/comments/1w0eshq/advent_stripe_consortium_is_said_to_drop_pursuit/)
+- [Made $82K NVDA Calls](https://www.reddit.com/r/wallstreetbets/comments/1w09f7s/made_82k_nvda_calls/)
+- [MRVL Just Reminded Everyone Why Earnings Calls Are a Casino](https://www.reddit.com/r/wallstreetbets/comments/1w07xl0/mrvl_just_reminded_everyone_why_earnings_calls/)
+- [Just Buy NVDA at $12/share](https://www.reddit.com/r/wallstreetbets/comments/1w069t1/just_buy_nvda_at_12share/)
+- [MRVL Q2&#39;27](https://www.reddit.com/r/wallstreetbets/comments/1w05h5t/mrvl_q227/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
