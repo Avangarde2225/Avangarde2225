@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Advent, Stripe consortium is said to drop pursuit of PayPal, Bloomberg News reports](https://www.reddit.com/r/wallstreetbets/comments/1w0eshq/advent_stripe_consortium_is_said_to_drop_pursuit/)
-- [Made $82K NVDA Calls](https://www.reddit.com/r/wallstreetbets/comments/1w09f7s/made_82k_nvda_calls/)
-- [MRVL Just Reminded Everyone Why Earnings Calls Are a Casino](https://www.reddit.com/r/wallstreetbets/comments/1w07xl0/mrvl_just_reminded_everyone_why_earnings_calls/)
-- [Just Buy NVDA at $12/share](https://www.reddit.com/r/wallstreetbets/comments/1w069t1/just_buy_nvda_at_12share/)
-- [MRVL Q2&#39;27](https://www.reddit.com/r/wallstreetbets/comments/1w05h5t/mrvl_q227/)
+- [$DELL — Am I crazy or is a $20 call actually a steal going into earnings?](https://www.reddit.com/r/wallstreetbets/comments/1w19va7/dell_am_i_crazy_or_is_a_20_call_actually_a_steal/)
+- [CRM - After earning bet](https://www.reddit.com/r/wallstreetbets/comments/1w19csw/crm_after_earning_bet/)
+- [Trump announces deal with Venezuela to secure more than 65 billion barrels of oil reserves](https://www.reddit.com/r/wallstreetbets/comments/1w16fht/trump_announces_deal_with_venezuela_to_secure/)
+- [I Made $45K NOW Calls🔥](https://www.reddit.com/r/wallstreetbets/comments/1w13z4n/i_made_45k_now_calls/)
+- [My Biggest Options Win to Date — Thanks, Master Chief! 🫡🚀](https://www.reddit.com/r/wallstreetbets/comments/1w123tm/my_biggest_options_win_to_date_thanks_master_chief/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
