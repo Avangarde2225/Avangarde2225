@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$DELL — Am I crazy or is a $20 call actually a steal going into earnings?](https://www.reddit.com/r/wallstreetbets/comments/1w19va7/dell_am_i_crazy_or_is_a_20_call_actually_a_steal/)
-- [CRM - After earning bet](https://www.reddit.com/r/wallstreetbets/comments/1w19csw/crm_after_earning_bet/)
-- [Trump announces deal with Venezuela to secure more than 65 billion barrels of oil reserves](https://www.reddit.com/r/wallstreetbets/comments/1w16fht/trump_announces_deal_with_venezuela_to_secure/)
-- [I Made $45K NOW Calls🔥](https://www.reddit.com/r/wallstreetbets/comments/1w13z4n/i_made_45k_now_calls/)
-- [My Biggest Options Win to Date — Thanks, Master Chief! 🫡🚀](https://www.reddit.com/r/wallstreetbets/comments/1w123tm/my_biggest_options_win_to_date_thanks_master_chief/)
+- [Memory is now 50% of AI spending.](https://www.reddit.com/r/wallstreetbets/comments/1w1tunb/memory_is_now_50_of_ai_spending/)
+- [Mag 7 Companies Reported Earnings Growth Above 100% Boosted by Investment Gains](https://www.reddit.com/r/wallstreetbets/comments/1w1tmec/mag_7_companies_reported_earnings_growth_above/)
+- [Long Victoria’s Secret &lpar;$VSXY&rpar; with the release of GTA VI](https://www.reddit.com/r/wallstreetbets/comments/1w1t9iy/long_victorias_secret_vsxy_with_the_release_of/)
+- [Lessons from my $8k IREN loss.. &lpar;regard edition&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1w1soci/lessons_from_my_8k_iren_loss_regard_edition/)
+- [Will Warsh&#39;s Jackson Hole speech torpedo markets for Monday?](https://www.reddit.com/r/wallstreetbets/comments/1w1ro40/will_warshs_jackson_hole_speech_torpedo_markets/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
