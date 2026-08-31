@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Memory is now 50% of AI spending.](https://www.reddit.com/r/wallstreetbets/comments/1w1tunb/memory_is_now_50_of_ai_spending/)
-- [Mag 7 Companies Reported Earnings Growth Above 100% Boosted by Investment Gains](https://www.reddit.com/r/wallstreetbets/comments/1w1tmec/mag_7_companies_reported_earnings_growth_above/)
-- [Long Victoria’s Secret &lpar;$VSXY&rpar; with the release of GTA VI](https://www.reddit.com/r/wallstreetbets/comments/1w1t9iy/long_victorias_secret_vsxy_with_the_release_of/)
-- [Lessons from my $8k IREN loss.. &lpar;regard edition&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1w1soci/lessons_from_my_8k_iren_loss_regard_edition/)
-- [Will Warsh&#39;s Jackson Hole speech torpedo markets for Monday?](https://www.reddit.com/r/wallstreetbets/comments/1w1ro40/will_warshs_jackson_hole_speech_torpedo_markets/)
+- [Yen weakens past ¥160 per dollar, eroding intervention gains](https://www.reddit.com/r/wallstreetbets/comments/1w2zc02/yen_weakens_past_160_per_dollar_eroding/)
+- [Most risky position I’ve ever been in](https://www.reddit.com/r/wallstreetbets/comments/1w2ya8c/most_risky_position_ive_ever_been_in/)
+- [Will these print tomorrow?](https://www.reddit.com/r/wallstreetbets/comments/1w2xv6d/will_these_print_tomorrow/)
+- [Just buy more](https://www.reddit.com/r/wallstreetbets/comments/1w2v52i/just_buy_more/)
+- [What Are Your Moves Tomorrow, August 31, 2026](https://www.reddit.com/r/wallstreetbets/comments/1w2rq7l/what_are_your_moves_tomorrow_august_31_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
