@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple 🍎 Savior](https://www.reddit.com/r/wallstreetbets/comments/1w4tcl0/apple_savior/)
-- [They did tell you](https://www.reddit.com/r/wallstreetbets/comments/1w4sblz/they_did_tell_you/)
-- [Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1w4qywn/loss_porn/)
-- [Dell Calls lets ride](https://www.reddit.com/r/wallstreetbets/comments/1w4qpuq/dell_calls_lets_ride/)
-- [It’s Joever](https://www.reddit.com/r/wallstreetbets/comments/1w4qgpj/its_joever/)
+- [I thought playing with options is how we can get rich quickly?](https://www.reddit.com/r/wallstreetbets/comments/1w5ssr1/i_thought_playing_with_options_is_how_we_can_get/)
+- [AVGO 700K YOLO - Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1w5qn81/avgo_700k_yolo_am_i_cooked/)
+- [TODAY DELL CALL 3 bagger Made 180K 🔥](https://www.reddit.com/r/wallstreetbets/comments/1w5pgx1/today_dell_call_3_bagger_made_180k/)
+- [All In on Zoom](https://www.reddit.com/r/wallstreetbets/comments/1w5ocuj/all_in_on_zoom/)
+- [Broadcom&#39;s stock drops 5% as weak guidance overshadows earnings beat](https://www.reddit.com/r/wallstreetbets/comments/1w5mdvt/broadcoms_stock_drops_5_as_weak_guidance/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
