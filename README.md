@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I thought playing with options is how we can get rich quickly?](https://www.reddit.com/r/wallstreetbets/comments/1w5ssr1/i_thought_playing_with_options_is_how_we_can_get/)
-- [AVGO 700K YOLO - Am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1w5qn81/avgo_700k_yolo_am_i_cooked/)
-- [TODAY DELL CALL 3 bagger Made 180K 🔥](https://www.reddit.com/r/wallstreetbets/comments/1w5pgx1/today_dell_call_3_bagger_made_180k/)
-- [All In on Zoom](https://www.reddit.com/r/wallstreetbets/comments/1w5ocuj/all_in_on_zoom/)
-- [Broadcom&#39;s stock drops 5% as weak guidance overshadows earnings beat](https://www.reddit.com/r/wallstreetbets/comments/1w5mdvt/broadcoms_stock_drops_5_as_weak_guidance/)
+- [60k leaps on BROS, revenge calls because I threw away 15k on weeklies last week](https://www.reddit.com/r/wallstreetbets/comments/1w6pj6b/60k_leaps_on_bros_revenge_calls_because_i_threw/)
+- [Holdin LULU bags be like...](https://www.reddit.com/r/wallstreetbets/comments/1w6pbkp/holdin_lulu_bags_be_like/)
+- [TTWO full port](https://www.reddit.com/r/wallstreetbets/comments/1w6p5q1/ttwo_full_port/)
+- [Made a profit of $159k on the SNOW call options expiring on September 4th](https://www.reddit.com/r/wallstreetbets/comments/1w6lsia/made_a_profit_of_159k_on_the_snow_call_options/)
+- [DELL 450C](https://www.reddit.com/r/wallstreetbets/comments/1w6lhv8/dell_450c/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
