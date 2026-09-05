@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [60k leaps on BROS, revenge calls because I threw away 15k on weeklies last week](https://www.reddit.com/r/wallstreetbets/comments/1w6pj6b/60k_leaps_on_bros_revenge_calls_because_i_threw/)
-- [Holdin LULU bags be like...](https://www.reddit.com/r/wallstreetbets/comments/1w6pbkp/holdin_lulu_bags_be_like/)
-- [TTWO full port](https://www.reddit.com/r/wallstreetbets/comments/1w6p5q1/ttwo_full_port/)
-- [Made a profit of $159k on the SNOW call options expiring on September 4th](https://www.reddit.com/r/wallstreetbets/comments/1w6lsia/made_a_profit_of_159k_on_the_snow_call_options/)
-- [DELL 450C](https://www.reddit.com/r/wallstreetbets/comments/1w6lhv8/dell_450c/)
+- [3 day break..LFG!!](https://www.reddit.com/r/wallstreetbets/comments/1w7lu8n/3_day_breaklfg/)
+- [I need help understanding](https://www.reddit.com/r/wallstreetbets/comments/1w7l8h6/i_need_help_understanding/)
+- [It pays to be a leveraged ETF degen](https://www.reddit.com/r/wallstreetbets/comments/1w7kv24/it_pays_to_be_a_leveraged_etf_degen/)
+- [My OPEN thesis: OpenAI IPO + dyslexia = 🚀](https://www.reddit.com/r/wallstreetbets/comments/1w7jknu/my_open_thesis_openai_ipo_dyslexia/)
+- [DELL gain $44k](https://www.reddit.com/r/wallstreetbets/comments/1w7h4za/dell_gain_44k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
