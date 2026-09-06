@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [3 day break..LFG!!](https://www.reddit.com/r/wallstreetbets/comments/1w7lu8n/3_day_breaklfg/)
-- [I need help understanding](https://www.reddit.com/r/wallstreetbets/comments/1w7l8h6/i_need_help_understanding/)
-- [It pays to be a leveraged ETF degen](https://www.reddit.com/r/wallstreetbets/comments/1w7kv24/it_pays_to_be_a_leveraged_etf_degen/)
-- [My OPEN thesis: OpenAI IPO + dyslexia = 🚀](https://www.reddit.com/r/wallstreetbets/comments/1w7jknu/my_open_thesis_openai_ipo_dyslexia/)
-- [DELL gain $44k](https://www.reddit.com/r/wallstreetbets/comments/1w7h4za/dell_gain_44k/)
+- [Turning $15 million into a billion has the same rate of return as turning $15 into $1,000](https://www.reddit.com/r/wallstreetbets/comments/1w8a5bd/turning_15_million_into_a_billion_has_the_same/)
+- [I lost over a million and cant get over it.](https://www.reddit.com/r/wallstreetbets/comments/1w87dl9/i_lost_over_a_million_and_cant_get_over_it/)
+- [Sandisk + Bloom Energy added in S&amp;P](https://www.reddit.com/r/wallstreetbets/comments/1w85y1v/sandisk_bloom_energy_added_in_sp/)
+- [Imagine not full porting SMCI at mid $20s](https://www.reddit.com/r/wallstreetbets/comments/1w857k3/imagine_not_full_porting_smci_at_mid_20s/)
+- [Road to recovery 696k -&gt; 816k](https://www.reddit.com/r/wallstreetbets/comments/1w7qvp9/road_to_recovery_696k_816k/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
