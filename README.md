@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Turning $15 million into a billion has the same rate of return as turning $15 into $1,000](https://www.reddit.com/r/wallstreetbets/comments/1w8a5bd/turning_15_million_into_a_billion_has_the_same/)
-- [I lost over a million and cant get over it.](https://www.reddit.com/r/wallstreetbets/comments/1w87dl9/i_lost_over_a_million_and_cant_get_over_it/)
-- [Sandisk + Bloom Energy added in S&amp;P](https://www.reddit.com/r/wallstreetbets/comments/1w85y1v/sandisk_bloom_energy_added_in_sp/)
-- [Imagine not full porting SMCI at mid $20s](https://www.reddit.com/r/wallstreetbets/comments/1w857k3/imagine_not_full_porting_smci_at_mid_20s/)
-- [Road to recovery 696k -&gt; 816k](https://www.reddit.com/r/wallstreetbets/comments/1w7qvp9/road_to_recovery_696k_816k/)
+- [Loss](https://www.reddit.com/r/wallstreetbets/comments/1w99fno/loss/)
+- [Outjerked again. It&#39;s real](https://www.reddit.com/r/wallstreetbets/comments/1w98aw7/outjerked_again_its_real/)
+- [Are digital assets still secure? Will we see a shift to tangible investments?](https://www.reddit.com/r/wallstreetbets/comments/1w97z93/are_digital_assets_still_secure_will_we_see_a/)
+- [S&amp;P 100 Said “Just Do It”… Somewhere Else](https://www.reddit.com/r/wallstreetbets/comments/1w97gm0/sp_100_said_just_do_it_somewhere_else/)
+- [S&amp;P 500 P/E ratio down to 19.4x](https://www.reddit.com/r/wallstreetbets/comments/1w8u4xa/sp_500_pe_ratio_down_to_194x/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
