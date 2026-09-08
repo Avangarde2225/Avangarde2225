@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Loss](https://www.reddit.com/r/wallstreetbets/comments/1w99fno/loss/)
-- [Outjerked again. It&#39;s real](https://www.reddit.com/r/wallstreetbets/comments/1w98aw7/outjerked_again_its_real/)
-- [Are digital assets still secure? Will we see a shift to tangible investments?](https://www.reddit.com/r/wallstreetbets/comments/1w97z93/are_digital_assets_still_secure_will_we_see_a/)
-- [S&amp;P 100 Said “Just Do It”… Somewhere Else](https://www.reddit.com/r/wallstreetbets/comments/1w97gm0/sp_100_said_just_do_it_somewhere_else/)
-- [S&amp;P 500 P/E ratio down to 19.4x](https://www.reddit.com/r/wallstreetbets/comments/1w8u4xa/sp_500_pe_ratio_down_to_194x/)
+- [I keep hearing everywhere that energy is the real bottleneck for AI buildout.](https://www.reddit.com/r/wallstreetbets/comments/1wa70bu/i_keep_hearing_everywhere_that_energy_is_the_real/)
+- [Oura IPO: Why the Smart Money is likely Sitting This One Out...Robinhood one of the Underwriters - WSJ](https://www.reddit.com/r/wallstreetbets/comments/1wa68dh/oura_ipo_why_the_smart_money_is_likely_sitting/)
+- [Taco Tuesday 🌮](https://www.reddit.com/r/wallstreetbets/comments/1wa5ugw/taco_tuesday/)
+- [What Are Your Moves Tomorrow, September 8, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wa3sf5/what_are_your_moves_tomorrow_september_8_2026/)
+- [Bloom Energy - YOLO](https://www.reddit.com/r/wallstreetbets/comments/1w9z268/bloom_energy_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
