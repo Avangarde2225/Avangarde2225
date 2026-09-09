@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I keep hearing everywhere that energy is the real bottleneck for AI buildout.](https://www.reddit.com/r/wallstreetbets/comments/1wa70bu/i_keep_hearing_everywhere_that_energy_is_the_real/)
-- [Oura IPO: Why the Smart Money is likely Sitting This One Out...Robinhood one of the Underwriters - WSJ](https://www.reddit.com/r/wallstreetbets/comments/1wa68dh/oura_ipo_why_the_smart_money_is_likely_sitting/)
-- [Taco Tuesday 🌮](https://www.reddit.com/r/wallstreetbets/comments/1wa5ugw/taco_tuesday/)
-- [What Are Your Moves Tomorrow, September 8, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wa3sf5/what_are_your_moves_tomorrow_september_8_2026/)
-- [Bloom Energy - YOLO](https://www.reddit.com/r/wallstreetbets/comments/1w9z268/bloom_energy_yolo/)
+- [“I am the house now” Bessent dares traders to bet against the yen](https://www.reddit.com/r/wallstreetbets/comments/1wb7vpe/i_am_the_house_now_bessent_dares_traders_to_bet/)
+- [$ASST and why it’s so hot right now](https://www.reddit.com/r/wallstreetbets/comments/1wb50m4/asst_and_why_its_so_hot_right_now/)
+- [Road to recovery](https://www.reddit.com/r/wallstreetbets/comments/1wb1ks1/road_to_recovery/)
+- [$CMPS Next Stop $30](https://www.reddit.com/r/wallstreetbets/comments/1wb1bzo/cmps_next_stop_30/)
+- [YOLO - CASY 9/11 calls, $740 strike, $15,000 basis @30.50](https://www.reddit.com/r/wallstreetbets/comments/1wazdjl/yolo_casy_911_calls_740_strike_15000_basis_3050/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
