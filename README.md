@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [“I am the house now” Bessent dares traders to bet against the yen](https://www.reddit.com/r/wallstreetbets/comments/1wb7vpe/i_am_the_house_now_bessent_dares_traders_to_bet/)
-- [$ASST and why it’s so hot right now](https://www.reddit.com/r/wallstreetbets/comments/1wb50m4/asst_and_why_its_so_hot_right_now/)
-- [Road to recovery](https://www.reddit.com/r/wallstreetbets/comments/1wb1ks1/road_to_recovery/)
-- [$CMPS Next Stop $30](https://www.reddit.com/r/wallstreetbets/comments/1wb1bzo/cmps_next_stop_30/)
-- [YOLO - CASY 9/11 calls, $740 strike, $15,000 basis @30.50](https://www.reddit.com/r/wallstreetbets/comments/1wazdjl/yolo_casy_911_calls_740_strike_15000_basis_3050/)
+- [Treasury Secretary Bessent Dares Traders to Bet Against a Stronger Yen: ‘I Am the House&#39;](https://www.reddit.com/r/wallstreetbets/comments/1wc4afo/treasury_secretary_bessent_dares_traders_to_bet/)
+- [Investing in the worst Stock rn - NKE](https://www.reddit.com/r/wallstreetbets/comments/1wc12o1/investing_in_the_worst_stock_rn_nke/)
+- [win again made 47K SKHY call🔥](https://www.reddit.com/r/wallstreetbets/comments/1wbzq0m/win_again_made_47k_skhy_call/)
+- [AAPL 📈](https://www.reddit.com/r/wallstreetbets/comments/1wbzjl7/aapl/)
+- [$15,000 YOLO on VRT - Revenge Trading my META YOLO - Hoping for $60,000](https://www.reddit.com/r/wallstreetbets/comments/1wbz1zy/15000_yolo_on_vrt_revenge_trading_my_meta_yolo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
