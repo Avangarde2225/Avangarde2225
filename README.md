@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [How did SPY move on 911 each year](https://www.reddit.com/r/wallstreetbets/comments/1wd0j2d/how_did_spy_move_on_911_each_year/)
-- [Oil Superglut wen?](https://www.reddit.com/r/wallstreetbets/comments/1wcw4zx/oil_superglut_wen/)
-- [$DECK DD: Hoka is taking over the trail and the stock is dirt cheap &lpar;11 P/E&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wcvpmf/deck_dd_hoka_is_taking_over_the_trail_and_the/)
-- [Absolute YOLO - 350 NVDA contracts expiring in 2 trading days &lpar;$16k&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wcu9rs/absolute_yolo_350_nvda_contracts_expiring_in_2/)
-- [What Are Your Moves Tomorrow, September 11, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wcu49u/what_are_your_moves_tomorrow_september_11_2026/)
+- [Nvidia in talks to invest in Anthropic’s mega IPO, sources say](https://www.reddit.com/r/wallstreetbets/comments/1wdz6w5/nvidia_in_talks_to_invest_in_anthropics_mega_ipo/)
+- [IDGAF imma liquidating my 401k for this one](https://www.reddit.com/r/wallstreetbets/comments/1wdwbqs/idgaf_imma_liquidating_my_401k_for_this_one/)
+- [Retail trying to catch their life changing trade](https://www.reddit.com/r/wallstreetbets/comments/1wdsudk/retail_trying_to_catch_their_life_changing_trade/)
+- [JPMorgan cut off Situational Awareness lending after AI losses](https://www.reddit.com/r/wallstreetbets/comments/1wdsjm1/jpmorgan_cut_off_situational_awareness_lending/)
+- [I have an idea for a sequel to the Big Short](https://www.reddit.com/r/wallstreetbets/comments/1wdr1dt/i_have_an_idea_for_a_sequel_to_the_big_short/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
