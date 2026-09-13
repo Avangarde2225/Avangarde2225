@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Nvidia in talks to invest in Anthropic’s mega IPO, sources say](https://www.reddit.com/r/wallstreetbets/comments/1wdz6w5/nvidia_in_talks_to_invest_in_anthropics_mega_ipo/)
-- [IDGAF imma liquidating my 401k for this one](https://www.reddit.com/r/wallstreetbets/comments/1wdwbqs/idgaf_imma_liquidating_my_401k_for_this_one/)
-- [Retail trying to catch their life changing trade](https://www.reddit.com/r/wallstreetbets/comments/1wdsudk/retail_trying_to_catch_their_life_changing_trade/)
-- [JPMorgan cut off Situational Awareness lending after AI losses](https://www.reddit.com/r/wallstreetbets/comments/1wdsjm1/jpmorgan_cut_off_situational_awareness_lending/)
-- [I have an idea for a sequel to the Big Short](https://www.reddit.com/r/wallstreetbets/comments/1wdr1dt/i_have_an_idea_for_a_sequel_to_the_big_short/)
+- [Warsh should grow a sack and go full Volcker by hiking 100bps next week.](https://www.reddit.com/r/wallstreetbets/comments/1weu05e/warsh_should_grow_a_sack_and_go_full_volcker_by/)
+- [Apple is cool :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wetfy1/apple_is_cool/)
+- [After Koreans piled into us stocks](https://www.reddit.com/r/wallstreetbets/comments/1weshpb/after_koreans_piled_into_us_stocks/)
+- [This time last month, FedWatch gave a 53.5% chance for 2 or more rate hikes by next July. Today, odds stand at 97.4%.](https://www.reddit.com/r/wallstreetbets/comments/1weqshj/this_time_last_month_fedwatch_gave_a_535_chance/)
+- [Turkish fund returned 4,000% in 2025 and 230% in 2026. How do we short?](https://www.reddit.com/r/wallstreetbets/comments/1wejx5q/turkish_fund_returned_4000_in_2025_and_230_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
