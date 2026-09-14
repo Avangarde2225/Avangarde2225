@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Warsh should grow a sack and go full Volcker by hiking 100bps next week.](https://www.reddit.com/r/wallstreetbets/comments/1weu05e/warsh_should_grow_a_sack_and_go_full_volcker_by/)
-- [Apple is cool :&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wetfy1/apple_is_cool/)
-- [After Koreans piled into us stocks](https://www.reddit.com/r/wallstreetbets/comments/1weshpb/after_koreans_piled_into_us_stocks/)
-- [This time last month, FedWatch gave a 53.5% chance for 2 or more rate hikes by next July. Today, odds stand at 97.4%.](https://www.reddit.com/r/wallstreetbets/comments/1weqshj/this_time_last_month_fedwatch_gave_a_535_chance/)
-- [Turkish fund returned 4,000% in 2025 and 230% in 2026. How do we short?](https://www.reddit.com/r/wallstreetbets/comments/1wejx5q/turkish_fund_returned_4000_in_2025_and_230_in/)
+- [It&#39;s time you learn how to fire a shotgun for AI&#39;s killer drone swarms, WSB. I recommend the Beretta A300 Ultima, about $900.](https://www.reddit.com/r/wallstreetbets/comments/1wfq6o6/its_time_you_learn_how_to_fire_a_shotgun_for_ais/)
+- [SNDK short until it drops to $999](https://www.reddit.com/r/wallstreetbets/comments/1wfpe9i/sndk_short_until_it_drops_to_999/)
+- [US government invested in Trillogy metals](https://www.reddit.com/r/wallstreetbets/comments/1wfora7/us_government_invested_in_trillogy_metals/)
+- [Kenny G knows when to get serious.](https://www.reddit.com/r/wallstreetbets/comments/1wfoizb/kenny_g_knows_when_to_get_serious/)
+- [Anthropic tells investors it will be profitable for second straight quarter](https://www.reddit.com/r/wallstreetbets/comments/1wflzl3/anthropic_tells_investors_it_will_be_profitable/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
