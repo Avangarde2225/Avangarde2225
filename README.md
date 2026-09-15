@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [It&#39;s time you learn how to fire a shotgun for AI&#39;s killer drone swarms, WSB. I recommend the Beretta A300 Ultima, about $900.](https://www.reddit.com/r/wallstreetbets/comments/1wfq6o6/its_time_you_learn_how_to_fire_a_shotgun_for_ais/)
-- [SNDK short until it drops to $999](https://www.reddit.com/r/wallstreetbets/comments/1wfpe9i/sndk_short_until_it_drops_to_999/)
-- [US government invested in Trillogy metals](https://www.reddit.com/r/wallstreetbets/comments/1wfora7/us_government_invested_in_trillogy_metals/)
-- [Kenny G knows when to get serious.](https://www.reddit.com/r/wallstreetbets/comments/1wfoizb/kenny_g_knows_when_to_get_serious/)
-- [Anthropic tells investors it will be profitable for second straight quarter](https://www.reddit.com/r/wallstreetbets/comments/1wflzl3/anthropic_tells_investors_it_will_be_profitable/)
+- [ORCL options](https://www.reddit.com/r/wallstreetbets/comments/1wglnoa/orcl_options/)
+- [SNDK1600 Put successfully yielded a profit of 219k](https://www.reddit.com/r/wallstreetbets/comments/1wgjlka/sndk1600_put_successfully_yielded_a_profit_of_219k/)
+- [1.1M to 150k](https://www.reddit.com/r/wallstreetbets/comments/1wgjhts/11m_to_150k/)
+- [What Are Your Moves Tomorrow, September 15, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wgec81/what_are_your_moves_tomorrow_september_15_2026/)
+- [And you&#39;re bearish on Nvidia?](https://www.reddit.com/r/wallstreetbets/comments/1wgeblo/and_youre_bearish_on_nvidia/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
