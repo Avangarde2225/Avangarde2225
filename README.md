@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [ORCL options](https://www.reddit.com/r/wallstreetbets/comments/1wglnoa/orcl_options/)
-- [SNDK1600 Put successfully yielded a profit of 219k](https://www.reddit.com/r/wallstreetbets/comments/1wgjlka/sndk1600_put_successfully_yielded_a_profit_of_219k/)
-- [1.1M to 150k](https://www.reddit.com/r/wallstreetbets/comments/1wgjhts/11m_to_150k/)
-- [What Are Your Moves Tomorrow, September 15, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wgec81/what_are_your_moves_tomorrow_september_15_2026/)
-- [And you&#39;re bearish on Nvidia?](https://www.reddit.com/r/wallstreetbets/comments/1wgeblo/and_youre_bearish_on_nvidia/)
+- [Oracle CFO says &#39;doing more with less&#39; isn&#39;t the answer in all-hands after layoffs](https://www.reddit.com/r/wallstreetbets/comments/1whh1so/oracle_cfo_says_doing_more_with_less_isnt_the/)
+- [Take a hike and the anniversary](https://www.reddit.com/r/wallstreetbets/comments/1whgmrx/take_a_hike_and_the_anniversary/)
+- [*BESSENT: examining $5,000 check proposal at treasury](https://www.reddit.com/r/wallstreetbets/comments/1whg4nl/bessent_examining_5000_check_proposal_at_treasury/)
+- [It’s never going down](https://www.reddit.com/r/wallstreetbets/comments/1whg0t7/its_never_going_down/)
+- [What Are Your Moves Tomorrow, September 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1whb5fy/what_are_your_moves_tomorrow_september_16_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
