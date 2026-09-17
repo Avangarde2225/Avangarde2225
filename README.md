@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Oracle CFO says &#39;doing more with less&#39; isn&#39;t the answer in all-hands after layoffs](https://www.reddit.com/r/wallstreetbets/comments/1whh1so/oracle_cfo_says_doing_more_with_less_isnt_the/)
-- [Take a hike and the anniversary](https://www.reddit.com/r/wallstreetbets/comments/1whgmrx/take_a_hike_and_the_anniversary/)
-- [*BESSENT: examining $5,000 check proposal at treasury](https://www.reddit.com/r/wallstreetbets/comments/1whg4nl/bessent_examining_5000_check_proposal_at_treasury/)
-- [It’s never going down](https://www.reddit.com/r/wallstreetbets/comments/1whg0t7/its_never_going_down/)
-- [What Are Your Moves Tomorrow, September 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1whb5fy/what_are_your_moves_tomorrow_september_16_2026/)
+- [Dario &lpar;Anthropic&rpar; got played 🫵😂](https://www.reddit.com/r/wallstreetbets/comments/1wignzj/dario_anthropic_got_played/)
+- [Round trip on GRPN](https://www.reddit.com/r/wallstreetbets/comments/1wifi7s/round_trip_on_grpn/)
+- [Canadian regard reaches enlightenment, cashes out a milly and diversifies into a 2 stock portfolio. TNZ and LAC &lpar;on margin lol&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wiee0j/canadian_regard_reaches_enlightenment_cashes_out/)
+- [SNDK Puts Made 37K🔥](https://www.reddit.com/r/wallstreetbets/comments/1widkc0/sndk_puts_made_37k/)
+- [Bad Hood](https://www.reddit.com/r/wallstreetbets/comments/1wibl58/bad_hood/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
