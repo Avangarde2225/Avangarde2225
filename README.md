@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Dario &lpar;Anthropic&rpar; got played 🫵😂](https://www.reddit.com/r/wallstreetbets/comments/1wignzj/dario_anthropic_got_played/)
-- [Round trip on GRPN](https://www.reddit.com/r/wallstreetbets/comments/1wifi7s/round_trip_on_grpn/)
-- [Canadian regard reaches enlightenment, cashes out a milly and diversifies into a 2 stock portfolio. TNZ and LAC &lpar;on margin lol&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wiee0j/canadian_regard_reaches_enlightenment_cashes_out/)
-- [SNDK Puts Made 37K🔥](https://www.reddit.com/r/wallstreetbets/comments/1widkc0/sndk_puts_made_37k/)
-- [Bad Hood](https://www.reddit.com/r/wallstreetbets/comments/1wibl58/bad_hood/)
+- [WTI OIL FAILS OVER 4%!!! What happened?](https://www.reddit.com/r/wallstreetbets/comments/1wjb5ff/wti_oil_fails_over_4_what_happened/)
+- [Wendy&#39;s bringing back yellow packaging](https://www.reddit.com/r/wallstreetbets/comments/1wjauxs/wendys_bringing_back_yellow_packaging/)
+- [Should I sell now?](https://www.reddit.com/r/wallstreetbets/comments/1wj9yf7/should_i_sell_now/)
+- [Jensen Huang says Nvidia will sell twice as many chips next year](https://www.reddit.com/r/wallstreetbets/comments/1wj9y05/jensen_huang_says_nvidia_will_sell_twice_as_many/)
+- [A friendly reminder to use dark mode](https://www.reddit.com/r/wallstreetbets/comments/1wj9dd0/a_friendly_reminder_to_use_dark_mode/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
