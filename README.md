@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WTI OIL FAILS OVER 4%!!! What happened?](https://www.reddit.com/r/wallstreetbets/comments/1wjb5ff/wti_oil_fails_over_4_what_happened/)
-- [Wendy&#39;s bringing back yellow packaging](https://www.reddit.com/r/wallstreetbets/comments/1wjauxs/wendys_bringing_back_yellow_packaging/)
-- [Should I sell now?](https://www.reddit.com/r/wallstreetbets/comments/1wj9yf7/should_i_sell_now/)
-- [Jensen Huang says Nvidia will sell twice as many chips next year](https://www.reddit.com/r/wallstreetbets/comments/1wj9y05/jensen_huang_says_nvidia_will_sell_twice_as_many/)
-- [A friendly reminder to use dark mode](https://www.reddit.com/r/wallstreetbets/comments/1wj9dd0/a_friendly_reminder_to_use_dark_mode/)
+- [100% all in on AG.TO. All or nothing.](https://www.reddit.com/r/wallstreetbets/comments/1wk90cr/100_all_in_on_agto_all_or_nothing/)
+- [Anthropic shifts public offering to November](https://www.reddit.com/r/wallstreetbets/comments/1wk6bjx/anthropic_shifts_public_offering_to_november/)
+- [Will these puts print Monday?](https://www.reddit.com/r/wallstreetbets/comments/1wk4xus/will_these_puts_print_monday/)
+- [Anthropic expects 2026 revenue to be $100 billion, according to the NY Times](https://www.reddit.com/r/wallstreetbets/comments/1wk1iut/anthropic_expects_2026_revenue_to_be_100_billion/)
+- [Sold amd covered call at 19 cents and had to cover at $9.61 &lpar; -4957.90%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wk0wat/sold_amd_covered_call_at_19_cents_and_had_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
