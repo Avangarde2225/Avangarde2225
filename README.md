@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [100% all in on AG.TO. All or nothing.](https://www.reddit.com/r/wallstreetbets/comments/1wk90cr/100_all_in_on_agto_all_or_nothing/)
-- [Anthropic shifts public offering to November](https://www.reddit.com/r/wallstreetbets/comments/1wk6bjx/anthropic_shifts_public_offering_to_november/)
-- [Will these puts print Monday?](https://www.reddit.com/r/wallstreetbets/comments/1wk4xus/will_these_puts_print_monday/)
-- [Anthropic expects 2026 revenue to be $100 billion, according to the NY Times](https://www.reddit.com/r/wallstreetbets/comments/1wk1iut/anthropic_expects_2026_revenue_to_be_100_billion/)
-- [Sold amd covered call at 19 cents and had to cover at $9.61 &lpar; -4957.90%&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1wk0wat/sold_amd_covered_call_at_19_cents_and_had_to/)
+- [Labor and management reach an agreement; Micron promises no repercussions and will negotiate again in October.](https://www.reddit.com/r/wallstreetbets/comments/1wkzgbl/labor_and_management_reach_an_agreement_micron/)
+- [Reddit’s upcoming Q3 2026 earnings will crush expectations - Statistical data evidence](https://www.reddit.com/r/wallstreetbets/comments/1wkzafg/reddits_upcoming_q3_2026_earnings_will_crush/)
+- [10Y yield to the moon?](https://www.reddit.com/r/wallstreetbets/comments/1wkygh4/10y_yield_to_the_moon/)
+- [Gang this has to be horseshit](https://www.reddit.com/r/wallstreetbets/comments/1wkwqah/gang_this_has_to_be_horseshit/)
+- [I actually got a job after my last post, and now the gamble is going up again. Not gonna quit my job even if I hit a million this time](https://www.reddit.com/r/wallstreetbets/comments/1wkwk50/i_actually_got_a_job_after_my_last_post_and_now/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
