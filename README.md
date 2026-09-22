@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla Vehicles Maintain Nearly 19% Junk Title Rate Across Age Groups, VIN Analysis Shows](https://www.reddit.com/r/wallstreetbets/comments/1wlz46m/tesla_vehicles_maintain_nearly_19_junk_title_rate/)
-- [Got back into trading just in time to catch a bit of BWET](https://www.reddit.com/r/wallstreetbets/comments/1wlw2mz/got_back_into_trading_just_in_time_to_catch_a_bit/)
-- [What Are Your Moves Tomorrow, September 21, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wlr804/what_are_your_moves_tomorrow_september_21_2026/)
-- [RKLB to $12,000- It&#39;s The Right Shape](https://www.reddit.com/r/wallstreetbets/comments/1wlp8jb/rklb_to_12000_its_the_right_shape/)
-- [Believe it or not, DKNG calls...](https://www.reddit.com/r/wallstreetbets/comments/1wlm7yi/believe_it_or_not_dkng_calls/)
+- [4 years of savings vanished right when I graduated uni. 100k loss porn.](https://www.reddit.com/r/wallstreetbets/comments/1wmvxiv/4_years_of_savings_vanished_right_when_i/)
+- [Up $300k on SPX calls and still holding](https://www.reddit.com/r/wallstreetbets/comments/1wmr9ag/up_300k_on_spx_calls_and_still_holding/)
+- [Should I sell now??](https://www.reddit.com/r/wallstreetbets/comments/1wmq4he/should_i_sell_now/)
+- [Meta jumped from ~550 to 740 in 1 month. What changed?](https://www.reddit.com/r/wallstreetbets/comments/1wmpes6/meta_jumped_from_550_to_740_in_1_month_what/)
+- [They said PCs were dead](https://www.reddit.com/r/wallstreetbets/comments/1wmp27a/they_said_pcs_were_dead/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
