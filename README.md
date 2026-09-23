@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [4 years of savings vanished right when I graduated uni. 100k loss porn.](https://www.reddit.com/r/wallstreetbets/comments/1wmvxiv/4_years_of_savings_vanished_right_when_i/)
-- [Up $300k on SPX calls and still holding](https://www.reddit.com/r/wallstreetbets/comments/1wmr9ag/up_300k_on_spx_calls_and_still_holding/)
-- [Should I sell now??](https://www.reddit.com/r/wallstreetbets/comments/1wmq4he/should_i_sell_now/)
-- [Meta jumped from ~550 to 740 in 1 month. What changed?](https://www.reddit.com/r/wallstreetbets/comments/1wmpes6/meta_jumped_from_550_to_740_in_1_month_what/)
-- [They said PCs were dead](https://www.reddit.com/r/wallstreetbets/comments/1wmp27a/they_said_pcs_were_dead/)
+- [The AMD / OpenAI deal is a literal 100% cashback deal now](https://www.reddit.com/r/wallstreetbets/comments/1wnsrsp/the_amd_openai_deal_is_a_literal_100_cashback/)
+- [How screwed am I?](https://www.reddit.com/r/wallstreetbets/comments/1wnqbb8/how_screwed_am_i/)
+- [Am I regard enough or will it print ?](https://www.reddit.com/r/wallstreetbets/comments/1wnppmq/am_i_regard_enough_or_will_it_print/)
+- [What&#39;s the dumbest reason you ever entered a trade?](https://www.reddit.com/r/wallstreetbets/comments/1wnnfe0/whats_the_dumbest_reason_you_ever_entered_a_trade/)
+- [Thanks to Nvidia 🚀](https://www.reddit.com/r/wallstreetbets/comments/1wnmy52/thanks_to_nvidia/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
