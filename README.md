@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [The AMD / OpenAI deal is a literal 100% cashback deal now](https://www.reddit.com/r/wallstreetbets/comments/1wnsrsp/the_amd_openai_deal_is_a_literal_100_cashback/)
-- [How screwed am I?](https://www.reddit.com/r/wallstreetbets/comments/1wnqbb8/how_screwed_am_i/)
-- [Am I regard enough or will it print ?](https://www.reddit.com/r/wallstreetbets/comments/1wnppmq/am_i_regard_enough_or_will_it_print/)
-- [What&#39;s the dumbest reason you ever entered a trade?](https://www.reddit.com/r/wallstreetbets/comments/1wnnfe0/whats_the_dumbest_reason_you_ever_entered_a_trade/)
-- [Thanks to Nvidia 🚀](https://www.reddit.com/r/wallstreetbets/comments/1wnmy52/thanks_to_nvidia/)
+- [October top is in....](https://www.reddit.com/r/wallstreetbets/comments/1woorjz/october_top_is_in/)
+- [btw I never sold](https://www.reddit.com/r/wallstreetbets/comments/1wonoz7/btw_i_never_sold/)
+- [Lost live savings again, need advice](https://www.reddit.com/r/wallstreetbets/comments/1wokiap/lost_live_savings_again_need_advice/)
+- [Bessent Says US, China Agreed to Extend Trade Truce to Jan. 10](https://www.reddit.com/r/wallstreetbets/comments/1wokft4/bessent_says_us_china_agreed_to_extend_trade/)
+- [Morgan Stanley inadvertently leaks Asia deal pipeline. The list contained more than 100 investment-banking deals in the works](https://www.reddit.com/r/wallstreetbets/comments/1wojlv7/morgan_stanley_inadvertently_leaks_asia_deal/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
