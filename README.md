@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [October top is in....](https://www.reddit.com/r/wallstreetbets/comments/1woorjz/october_top_is_in/)
-- [btw I never sold](https://www.reddit.com/r/wallstreetbets/comments/1wonoz7/btw_i_never_sold/)
-- [Lost live savings again, need advice](https://www.reddit.com/r/wallstreetbets/comments/1wokiap/lost_live_savings_again_need_advice/)
-- [Bessent Says US, China Agreed to Extend Trade Truce to Jan. 10](https://www.reddit.com/r/wallstreetbets/comments/1wokft4/bessent_says_us_china_agreed_to_extend_trade/)
-- [Morgan Stanley inadvertently leaks Asia deal pipeline. The list contained more than 100 investment-banking deals in the works](https://www.reddit.com/r/wallstreetbets/comments/1wojlv7/morgan_stanley_inadvertently_leaks_asia_deal/)
+- [$146K YOLO on RDDT Jan 2028 Calls](https://www.reddit.com/r/wallstreetbets/comments/1wpdnm8/146k_yolo_on_rddt_jan_2028_calls/)
+- [I’m either retired by October 9th or stuck at my job for 60 more years](https://www.reddit.com/r/wallstreetbets/comments/1wpctwt/im_either_retired_by_october_9th_or_stuck_at_my/)
+- [What Are Your Moves Tomorrow, September 25, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wpbz1l/what_are_your_moves_tomorrow_september_25_2026/)
+- [Not posting on my facebook](https://www.reddit.com/r/wallstreetbets/comments/1wpbxai/not_posting_on_my_facebook/)
+- [Cleaned up a quick +$316k while sissies were afraid of capex](https://www.reddit.com/r/wallstreetbets/comments/1wp9vn7/cleaned_up_a_quick_316k_while_sissies_were_afraid/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
