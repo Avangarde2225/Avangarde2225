@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$146K YOLO on RDDT Jan 2028 Calls](https://www.reddit.com/r/wallstreetbets/comments/1wpdnm8/146k_yolo_on_rddt_jan_2028_calls/)
-- [I’m either retired by October 9th or stuck at my job for 60 more years](https://www.reddit.com/r/wallstreetbets/comments/1wpctwt/im_either_retired_by_october_9th_or_stuck_at_my/)
-- [What Are Your Moves Tomorrow, September 25, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wpbz1l/what_are_your_moves_tomorrow_september_25_2026/)
-- [Not posting on my facebook](https://www.reddit.com/r/wallstreetbets/comments/1wpbxai/not_posting_on_my_facebook/)
-- [Cleaned up a quick +$316k while sissies were afraid of capex](https://www.reddit.com/r/wallstreetbets/comments/1wp9vn7/cleaned_up_a_quick_316k_while_sissies_were_afraid/)
+- [Seeing the premarket bounce, I kept averaging down SPY 0DTE Calls.](https://www.reddit.com/r/wallstreetbets/comments/1wqe3pr/seeing_the_premarket_bounce_i_kept_averaging_down/)
+- [Wait till after midterms….](https://www.reddit.com/r/wallstreetbets/comments/1wqdtw3/wait_till_after_midterms/)
+- [Loss porn. Have a wank.](https://www.reddit.com/r/wallstreetbets/comments/1wqc8kr/loss_porn_have_a_wank/)
+- [Can’t Stop losing](https://www.reddit.com/r/wallstreetbets/comments/1wqa78g/cant_stop_losing/)
+- [OpenAI prepares new $500 per month Pro Max plan for ChatGPT](https://www.reddit.com/r/wallstreetbets/comments/1wq769x/openai_prepares_new_500_per_month_pro_max_plan/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
