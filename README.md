@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Seeing the premarket bounce, I kept averaging down SPY 0DTE Calls.](https://www.reddit.com/r/wallstreetbets/comments/1wqe3pr/seeing_the_premarket_bounce_i_kept_averaging_down/)
-- [Wait till after midterms….](https://www.reddit.com/r/wallstreetbets/comments/1wqdtw3/wait_till_after_midterms/)
-- [Loss porn. Have a wank.](https://www.reddit.com/r/wallstreetbets/comments/1wqc8kr/loss_porn_have_a_wank/)
-- [Can’t Stop losing](https://www.reddit.com/r/wallstreetbets/comments/1wqa78g/cant_stop_losing/)
-- [OpenAI prepares new $500 per month Pro Max plan for ChatGPT](https://www.reddit.com/r/wallstreetbets/comments/1wq769x/openai_prepares_new_500_per_month_pro_max_plan/)
+- [Apple faces $5.7 billion patent infringement verdict over iPhone and Apple Watch haptics](https://www.reddit.com/r/wallstreetbets/comments/1wr7137/apple_faces_57_billion_patent_infringement/)
+- [Boeing flags 737 Max software glitch affecting some automated approach functions](https://www.reddit.com/r/wallstreetbets/comments/1wr2v8h/boeing_flags_737_max_software_glitch_affecting/)
+- [NVIDIA will host IonQ, 20 months after saying 15 to 30 years. “Every supercomputer will become a quantum supercomputer.”](https://www.reddit.com/r/wallstreetbets/comments/1wr0olz/nvidia_will_host_ionq_20_months_after_saying_15/)
+- [Can you point where is the AI bubble on this comparison chart?](https://www.reddit.com/r/wallstreetbets/comments/1wr0gb1/can_you_point_where_is_the_ai_bubble_on_this/)
+- [Why can you trade Futures but not Pasts? Seems like the Pasts would be way less risky and easier to model for the traders and market makers.](https://www.reddit.com/r/wallstreetbets/comments/1wqw7km/why_can_you_trade_futures_but_not_pasts_seems/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
