@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple faces $5.7 billion patent infringement verdict over iPhone and Apple Watch haptics](https://www.reddit.com/r/wallstreetbets/comments/1wr7137/apple_faces_57_billion_patent_infringement/)
-- [Boeing flags 737 Max software glitch affecting some automated approach functions](https://www.reddit.com/r/wallstreetbets/comments/1wr2v8h/boeing_flags_737_max_software_glitch_affecting/)
-- [NVIDIA will host IonQ, 20 months after saying 15 to 30 years. “Every supercomputer will become a quantum supercomputer.”](https://www.reddit.com/r/wallstreetbets/comments/1wr0olz/nvidia_will_host_ionq_20_months_after_saying_15/)
-- [Can you point where is the AI bubble on this comparison chart?](https://www.reddit.com/r/wallstreetbets/comments/1wr0gb1/can_you_point_where_is_the_ai_bubble_on_this/)
-- [Why can you trade Futures but not Pasts? Seems like the Pasts would be way less risky and easier to model for the traders and market makers.](https://www.reddit.com/r/wallstreetbets/comments/1wqw7km/why_can_you_trade_futures_but_not_pasts_seems/)
+- [My broker let 39k ITM puts expire worthless](https://www.reddit.com/r/wallstreetbets/comments/1ws1o57/my_broker_let_39k_itm_puts_expire_worthless/)
+- [AMZN earnings](https://www.reddit.com/r/wallstreetbets/comments/1wryctg/amzn_earnings/)
+- [Boost run &lpar;BRUN&rpar; Multibagger in next earning call or ban](https://www.reddit.com/r/wallstreetbets/comments/1wrxrxd/boost_run_brun_multibagger_in_next_earning_call/)
+- [Guys, am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1wrvq2a/guys_am_i_cooked/)
+- [What Are Your Moves Tomorrow, September 28, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wru0hc/what_are_your_moves_tomorrow_september_28_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
