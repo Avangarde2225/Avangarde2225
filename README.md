@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My broker let 39k ITM puts expire worthless](https://www.reddit.com/r/wallstreetbets/comments/1ws1o57/my_broker_let_39k_itm_puts_expire_worthless/)
-- [AMZN earnings](https://www.reddit.com/r/wallstreetbets/comments/1wryctg/amzn_earnings/)
-- [Boost run &lpar;BRUN&rpar; Multibagger in next earning call or ban](https://www.reddit.com/r/wallstreetbets/comments/1wrxrxd/boost_run_brun_multibagger_in_next_earning_call/)
-- [Guys, am I cooked?](https://www.reddit.com/r/wallstreetbets/comments/1wrvq2a/guys_am_i_cooked/)
-- [What Are Your Moves Tomorrow, September 28, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wru0hc/what_are_your_moves_tomorrow_september_28_2026/)
+- [Anthropic warns of ‘existential risks to humanity’ in its $2T IPO prospectus](https://www.reddit.com/r/wallstreetbets/comments/1wsx5ua/anthropic_warns_of_existential_risks_to_humanity/)
+- [Anthropic Files for IPO](https://www.reddit.com/r/wallstreetbets/comments/1wsuydk/anthropic_files_for_ipo/)
+- [AI is like Easter island](https://www.reddit.com/r/wallstreetbets/comments/1wsub3j/ai_is_like_easter_island/)
+- [QQQ $660p 12-18?](https://www.reddit.com/r/wallstreetbets/comments/1wsrfme/qqq_660p_1218/)
+- [AMD acquiring Fei-Fei Li&#39;s World Labs AI firm in deal worth $8.2 billion](https://www.reddit.com/r/wallstreetbets/comments/1wspokn/amd_acquiring_feifei_lis_world_labs_ai_firm_in/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
