@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anthropic warns of ‘existential risks to humanity’ in its $2T IPO prospectus](https://www.reddit.com/r/wallstreetbets/comments/1wsx5ua/anthropic_warns_of_existential_risks_to_humanity/)
-- [Anthropic Files for IPO](https://www.reddit.com/r/wallstreetbets/comments/1wsuydk/anthropic_files_for_ipo/)
-- [AI is like Easter island](https://www.reddit.com/r/wallstreetbets/comments/1wsub3j/ai_is_like_easter_island/)
-- [QQQ $660p 12-18?](https://www.reddit.com/r/wallstreetbets/comments/1wsrfme/qqq_660p_1218/)
-- [AMD acquiring Fei-Fei Li&#39;s World Labs AI firm in deal worth $8.2 billion](https://www.reddit.com/r/wallstreetbets/comments/1wspokn/amd_acquiring_feifei_lis_world_labs_ai_firm_in/)
+- [Everyday opening wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/1wttcx9/everyday_opening_wallstreetbets/)
+- [Top portfolio by value on Wealthsimple’s portfolio pulse feature is 90% index funds](https://www.reddit.com/r/wallstreetbets/comments/1wtsjij/top_portfolio_by_value_on_wealthsimples_portfolio/)
+- [My portfolio value this September, thanks to a lot of people who will not be named](https://www.reddit.com/r/wallstreetbets/comments/1wtsgku/my_portfolio_value_this_september_thanks_to_a_lot/)
+- [How fcked am I?](https://www.reddit.com/r/wallstreetbets/comments/1wts55b/how_fcked_am_i/)
+- [How did WSB&#39;s stock picks of 2026 perform - Q3 Check in](https://www.reddit.com/r/wallstreetbets/comments/1wtopl9/how_did_wsbs_stock_picks_of_2026_perform_q3_check/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
