@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Everyday opening wallstreetbets](https://www.reddit.com/r/wallstreetbets/comments/1wttcx9/everyday_opening_wallstreetbets/)
-- [Top portfolio by value on Wealthsimple’s portfolio pulse feature is 90% index funds](https://www.reddit.com/r/wallstreetbets/comments/1wtsjij/top_portfolio_by_value_on_wealthsimples_portfolio/)
-- [My portfolio value this September, thanks to a lot of people who will not be named](https://www.reddit.com/r/wallstreetbets/comments/1wtsgku/my_portfolio_value_this_september_thanks_to_a_lot/)
-- [How fcked am I?](https://www.reddit.com/r/wallstreetbets/comments/1wts55b/how_fcked_am_i/)
-- [How did WSB&#39;s stock picks of 2026 perform - Q3 Check in](https://www.reddit.com/r/wallstreetbets/comments/1wtopl9/how_did_wsbs_stock_picks_of_2026_perform_q3_check/)
+- [you need this amulet in this market](https://www.reddit.com/r/wallstreetbets/comments/1wunxd6/you_need_this_amulet_in_this_market/)
+- [How low can TLT go?](https://www.reddit.com/r/wallstreetbets/comments/1wunl5i/how_low_can_tlt_go/)
+- [NVDA can suck it.](https://www.reddit.com/r/wallstreetbets/comments/1wun55q/nvda_can_suck_it/)
+- [When Theta Gang reaches WSB levels of autism. $MU $120K](https://www.reddit.com/r/wallstreetbets/comments/1wulkby/when_theta_gang_reaches_wsb_levels_of_autism_mu/)
+- [Nike earnings are tomorrow and nobody seems to give a …💀](https://www.reddit.com/r/wallstreetbets/comments/1wujuph/nike_earnings_are_tomorrow_and_nobody_seems_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
