@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [you need this amulet in this market](https://www.reddit.com/r/wallstreetbets/comments/1wunxd6/you_need_this_amulet_in_this_market/)
-- [How low can TLT go?](https://www.reddit.com/r/wallstreetbets/comments/1wunl5i/how_low_can_tlt_go/)
-- [NVDA can suck it.](https://www.reddit.com/r/wallstreetbets/comments/1wun55q/nvda_can_suck_it/)
-- [When Theta Gang reaches WSB levels of autism. $MU $120K](https://www.reddit.com/r/wallstreetbets/comments/1wulkby/when_theta_gang_reaches_wsb_levels_of_autism_mu/)
-- [Nike earnings are tomorrow and nobody seems to give a …💀](https://www.reddit.com/r/wallstreetbets/comments/1wujuph/nike_earnings_are_tomorrow_and_nobody_seems_to/)
+- [Google is the AI arms dealer](https://www.reddit.com/r/wallstreetbets/comments/1wvieqg/google_is_the_ai_arms_dealer/)
+- [Yes, that means you!](https://www.reddit.com/r/wallstreetbets/comments/1wvi2yb/yes_that_means_you/)
+- [So it turns out I was wrong…](https://www.reddit.com/r/wallstreetbets/comments/1wvhoxf/so_it_turns_out_i_was_wrong/)
+- [Worried the maple money tax man might be coming for me..](https://www.reddit.com/r/wallstreetbets/comments/1wvgnu3/worried_the_maple_money_tax_man_might_be_coming/)
+- [Nike a $20 stock soon ?](https://www.reddit.com/r/wallstreetbets/comments/1wvenmg/nike_a_20_stock_soon/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
