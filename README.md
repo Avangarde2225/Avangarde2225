@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Finally a politician who isn&#39;t insider-trading](https://www.reddit.com/r/wallstreetbets/comments/1wwbv11/finally_a_politician_who_isnt_insidertrading/)
-- [Getting cucked by AAOI, FMCC/FNMa 😞](https://www.reddit.com/r/wallstreetbets/comments/1wwbq0x/getting_cucked_by_aaoi_fmccfnma/)
-- [Patience Young Padawan](https://www.reddit.com/r/wallstreetbets/comments/1wwbpcv/patience_young_padawan/)
-- [600 &gt; 108k - 14,000% in 15 days](https://www.reddit.com/r/wallstreetbets/comments/1wwan2r/600_108k_14000_in_15_days/)
-- [Gambling 24k on Gambling &lpar;$FLUT&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1ww68wq/gambling_24k_on_gambling_flut/)
+- [I found the money glitch!](https://www.reddit.com/r/wallstreetbets/comments/1wx4v7g/i_found_the_money_glitch/)
+- [Houthis acts again](https://www.reddit.com/r/wallstreetbets/comments/1wx3arn/houthis_acts_again/)
+- [4.3M YOLO on $WULF](https://www.reddit.com/r/wallstreetbets/comments/1wwpsu5/43m_yolo_on_wulf/)
+- [Elon Musk Confirmed On X, TSMC Explores Collaboration with Terafab Project](https://www.reddit.com/r/wallstreetbets/comments/1wwnbss/elon_musk_confirmed_on_x_tsmc_explores/)
+- [I thought putting $132k into a UK housebuilder was a good idea.](https://www.reddit.com/r/wallstreetbets/comments/1wwl0zq/i_thought_putting_132k_into_a_uk_housebuilder_was/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
