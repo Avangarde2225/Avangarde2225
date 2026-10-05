@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I found the money glitch!](https://www.reddit.com/r/wallstreetbets/comments/1wx4v7g/i_found_the_money_glitch/)
-- [Houthis acts again](https://www.reddit.com/r/wallstreetbets/comments/1wx3arn/houthis_acts_again/)
-- [4.3M YOLO on $WULF](https://www.reddit.com/r/wallstreetbets/comments/1wwpsu5/43m_yolo_on_wulf/)
-- [Elon Musk Confirmed On X, TSMC Explores Collaboration with Terafab Project](https://www.reddit.com/r/wallstreetbets/comments/1wwnbss/elon_musk_confirmed_on_x_tsmc_explores/)
-- [I thought putting $132k into a UK housebuilder was a good idea.](https://www.reddit.com/r/wallstreetbets/comments/1wwl0zq/i_thought_putting_132k_into_a_uk_housebuilder_was/)
+- [$2billion Anthropic IPO?](https://www.reddit.com/r/wallstreetbets/comments/1wxqyd7/2billion_anthropic_ipo/)
+- [What Are Your Moves Tomorrow, October 5, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wxp1pm/what_are_your_moves_tomorrow_october_5_2026/)
+- [Is this a good investment strategy?](https://www.reddit.com/r/wallstreetbets/comments/1wxor48/is_this_a_good_investment_strategy/)
+- [Oil Prices Lower On G-7 Fuel Release Plan](https://www.reddit.com/r/wallstreetbets/comments/1wxmg0e/oil_prices_lower_on_g7_fuel_release_plan/)
+- [DRTS - Cancer Goes Bye Bye / Portfolio Goes High High](https://www.reddit.com/r/wallstreetbets/comments/1wxl6cr/drts_cancer_goes_bye_bye_portfolio_goes_high_high/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
