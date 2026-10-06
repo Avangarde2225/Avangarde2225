@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [$2billion Anthropic IPO?](https://www.reddit.com/r/wallstreetbets/comments/1wxqyd7/2billion_anthropic_ipo/)
-- [What Are Your Moves Tomorrow, October 5, 2026](https://www.reddit.com/r/wallstreetbets/comments/1wxp1pm/what_are_your_moves_tomorrow_october_5_2026/)
-- [Is this a good investment strategy?](https://www.reddit.com/r/wallstreetbets/comments/1wxor48/is_this_a_good_investment_strategy/)
-- [Oil Prices Lower On G-7 Fuel Release Plan](https://www.reddit.com/r/wallstreetbets/comments/1wxmg0e/oil_prices_lower_on_g7_fuel_release_plan/)
-- [DRTS - Cancer Goes Bye Bye / Portfolio Goes High High](https://www.reddit.com/r/wallstreetbets/comments/1wxl6cr/drts_cancer_goes_bye_bye_portfolio_goes_high_high/)
+- [I found options. Then I understood options.](https://www.reddit.com/r/wallstreetbets/comments/1wyrz75/i_found_options_then_i_understood_options/)
+- [Gain/Loss Scoreboard · Week of Oct 5](https://www.reddit.com/r/wallstreetbets/comments/1wyrqzx/gainloss_scoreboard_week_of_oct_5/)
+- [SPCX &amp; MSTR full port](https://www.reddit.com/r/wallstreetbets/comments/1wyqxxo/spcx_mstr_full_port/)
+- [You too can break even if you gamble long enough](https://www.reddit.com/r/wallstreetbets/comments/1wyq003/you_too_can_break_even_if_you_gamble_long_enough/)
+- [AI haters waiting for an AI bubble to pop](https://www.reddit.com/r/wallstreetbets/comments/1wym7bz/ai_haters_waiting_for_an_ai_bubble_to_pop/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
