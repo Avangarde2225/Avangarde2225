@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I found options. Then I understood options.](https://www.reddit.com/r/wallstreetbets/comments/1wyrz75/i_found_options_then_i_understood_options/)
-- [Gain/Loss Scoreboard · Week of Oct 5](https://www.reddit.com/r/wallstreetbets/comments/1wyrqzx/gainloss_scoreboard_week_of_oct_5/)
-- [SPCX &amp; MSTR full port](https://www.reddit.com/r/wallstreetbets/comments/1wyqxxo/spcx_mstr_full_port/)
-- [You too can break even if you gamble long enough](https://www.reddit.com/r/wallstreetbets/comments/1wyq003/you_too_can_break_even_if_you_gamble_long_enough/)
-- [AI haters waiting for an AI bubble to pop](https://www.reddit.com/r/wallstreetbets/comments/1wym7bz/ai_haters_waiting_for_an_ai_bubble_to_pop/)
+- [Puts on HAL](https://www.reddit.com/r/wallstreetbets/comments/1wzk1pw/puts_on_hal/)
+- [guys i&#39;m so gini-maxxed right now](https://www.reddit.com/r/wallstreetbets/comments/1wzjc8z/guys_im_so_ginimaxxed_right_now/)
+- [And I’m still holding](https://www.reddit.com/r/wallstreetbets/comments/1wzj0k5/and_im_still_holding/)
+- [1280% gain NVDA - too scared to sell](https://www.reddit.com/r/wallstreetbets/comments/1wzimpi/1280_gain_nvda_too_scared_to_sell/)
+- [MU rewards patience and punishes gambling](https://www.reddit.com/r/wallstreetbets/comments/1wzhrmi/mu_rewards_patience_and_punishes_gambling/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
