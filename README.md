@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Puts on HAL](https://www.reddit.com/r/wallstreetbets/comments/1wzk1pw/puts_on_hal/)
-- [guys i&#39;m so gini-maxxed right now](https://www.reddit.com/r/wallstreetbets/comments/1wzjc8z/guys_im_so_ginimaxxed_right_now/)
-- [And I’m still holding](https://www.reddit.com/r/wallstreetbets/comments/1wzj0k5/and_im_still_holding/)
-- [1280% gain NVDA - too scared to sell](https://www.reddit.com/r/wallstreetbets/comments/1wzimpi/1280_gain_nvda_too_scared_to_sell/)
-- [MU rewards patience and punishes gambling](https://www.reddit.com/r/wallstreetbets/comments/1wzhrmi/mu_rewards_patience_and_punishes_gambling/)
+- [Moderate gain porn for y’all.](https://www.reddit.com/r/wallstreetbets/comments/1x0evjd/moderate_gain_porn_for_yall/)
+- [Nearly lost my pants on this one](https://www.reddit.com/r/wallstreetbets/comments/1x0eqvb/nearly_lost_my_pants_on_this_one/)
+- [I was poor now I’m poorer.](https://www.reddit.com/r/wallstreetbets/comments/1x0dvbk/i_was_poor_now_im_poorer/)
+- [$17K in 2017 to now. I just hold and use it as collateral for margin.](https://www.reddit.com/r/wallstreetbets/comments/1x0drw2/17k_in_2017_to_now_i_just_hold_and_use_it_as/)
+- [The evolution of retardism](https://www.reddit.com/r/wallstreetbets/comments/1x0de7b/the_evolution_of_retardism/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
