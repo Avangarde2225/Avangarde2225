@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Moderate gain porn for y’all.](https://www.reddit.com/r/wallstreetbets/comments/1x0evjd/moderate_gain_porn_for_yall/)
-- [Nearly lost my pants on this one](https://www.reddit.com/r/wallstreetbets/comments/1x0eqvb/nearly_lost_my_pants_on_this_one/)
-- [I was poor now I’m poorer.](https://www.reddit.com/r/wallstreetbets/comments/1x0dvbk/i_was_poor_now_im_poorer/)
-- [$17K in 2017 to now. I just hold and use it as collateral for margin.](https://www.reddit.com/r/wallstreetbets/comments/1x0drw2/17k_in_2017_to_now_i_just_hold_and_use_it_as/)
-- [The evolution of retardism](https://www.reddit.com/r/wallstreetbets/comments/1x0de7b/the_evolution_of_retardism/)
+- [SHARES OF T MOBILE , AT&amp;T &amp; VERIZON ARE DOWN AROUND 7% AFTER HOURS ON THE NEWS OF SPACEX ACQUIRING LOW BAND SPECTRUM LICENSE](https://www.reddit.com/r/wallstreetbets/comments/1x180e6/shares_of_t_mobile_att_verizon_are_down_around_7/)
+- [I believe Open AI will be the yahoo of the AI era.](https://www.reddit.com/r/wallstreetbets/comments/1x173ex/i_believe_open_ai_will_be_the_yahoo_of_the_ai_era/)
+- [Holy Moly](https://www.reddit.com/r/wallstreetbets/comments/1x16gek/holy_moly/)
+- [16x💰](https://www.reddit.com/r/wallstreetbets/comments/1x166u4/16x/)
+- [OpenAI perpetual futures just dropped following FT report that annualized revenues are 20 billion short](https://www.reddit.com/r/wallstreetbets/comments/1x132j9/openai_perpetual_futures_just_dropped_following/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
