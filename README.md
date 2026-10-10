@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [SHARES OF T MOBILE , AT&amp;T &amp; VERIZON ARE DOWN AROUND 7% AFTER HOURS ON THE NEWS OF SPACEX ACQUIRING LOW BAND SPECTRUM LICENSE](https://www.reddit.com/r/wallstreetbets/comments/1x180e6/shares_of_t_mobile_att_verizon_are_down_around_7/)
-- [I believe Open AI will be the yahoo of the AI era.](https://www.reddit.com/r/wallstreetbets/comments/1x173ex/i_believe_open_ai_will_be_the_yahoo_of_the_ai_era/)
-- [Holy Moly](https://www.reddit.com/r/wallstreetbets/comments/1x16gek/holy_moly/)
-- [16x💰](https://www.reddit.com/r/wallstreetbets/comments/1x166u4/16x/)
-- [OpenAI perpetual futures just dropped following FT report that annualized revenues are 20 billion short](https://www.reddit.com/r/wallstreetbets/comments/1x132j9/openai_perpetual_futures_just_dropped_following/)
+- [Investing in Lehman Brothers](https://www.reddit.com/r/wallstreetbets/comments/1x241e4/investing_in_lehman_brothers/)
+- [You guys said MU calls.. 🫠](https://www.reddit.com/r/wallstreetbets/comments/1x23g4u/you_guys_said_mu_calls/)
+- [$100K in $ADBE Calls](https://www.reddit.com/r/wallstreetbets/comments/1x21cyd/100k_in_adbe_calls/)
+- [$60k long options, these are going to print](https://www.reddit.com/r/wallstreetbets/comments/1x218gb/60k_long_options_these_are_going_to_print/)
+- [Penguin 🐧 on fire!](https://www.reddit.com/r/wallstreetbets/comments/1x206l5/penguin_on_fire/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
