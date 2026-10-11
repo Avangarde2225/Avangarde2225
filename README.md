@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Investing in Lehman Brothers](https://www.reddit.com/r/wallstreetbets/comments/1x241e4/investing_in_lehman_brothers/)
-- [You guys said MU calls.. 🫠](https://www.reddit.com/r/wallstreetbets/comments/1x23g4u/you_guys_said_mu_calls/)
-- [$100K in $ADBE Calls](https://www.reddit.com/r/wallstreetbets/comments/1x21cyd/100k_in_adbe_calls/)
-- [$60k long options, these are going to print](https://www.reddit.com/r/wallstreetbets/comments/1x218gb/60k_long_options_these_are_going_to_print/)
-- [Penguin 🐧 on fire!](https://www.reddit.com/r/wallstreetbets/comments/1x206l5/penguin_on_fire/)
+- [My $8.8K HSA experiment is now worth $600K 🚀](https://www.reddit.com/r/wallstreetbets/comments/1x2vqxm/my_88k_hsa_experiment_is_now_worth_600k/)
+- [Nvidia in talks to invest further in Reflection AI or buy it, FT reports](https://www.reddit.com/r/wallstreetbets/comments/1x2qs90/nvidia_in_talks_to_invest_further_in_reflection/)
+- [Incredible that all this has happened in just 4 years](https://www.reddit.com/r/wallstreetbets/comments/1x2pibb/incredible_that_all_this_has_happened_in_just_4/)
+- [Mean reversion traders - why are you so certain on bonds?](https://www.reddit.com/r/wallstreetbets/comments/1x2n4v0/mean_reversion_traders_why_are_you_so_certain_on/)
+- [Why I went 100% in MU: The Memory Wager](https://www.reddit.com/r/wallstreetbets/comments/1x2mntt/why_i_went_100_in_mu_the_memory_wager/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
