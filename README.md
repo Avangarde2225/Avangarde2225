@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [My $8.8K HSA experiment is now worth $600K 🚀](https://www.reddit.com/r/wallstreetbets/comments/1x2vqxm/my_88k_hsa_experiment_is_now_worth_600k/)
-- [Nvidia in talks to invest further in Reflection AI or buy it, FT reports](https://www.reddit.com/r/wallstreetbets/comments/1x2qs90/nvidia_in_talks_to_invest_further_in_reflection/)
-- [Incredible that all this has happened in just 4 years](https://www.reddit.com/r/wallstreetbets/comments/1x2pibb/incredible_that_all_this_has_happened_in_just_4/)
-- [Mean reversion traders - why are you so certain on bonds?](https://www.reddit.com/r/wallstreetbets/comments/1x2n4v0/mean_reversion_traders_why_are_you_so_certain_on/)
-- [Why I went 100% in MU: The Memory Wager](https://www.reddit.com/r/wallstreetbets/comments/1x2mntt/why_i_went_100_in_mu_the_memory_wager/)
+- [Anthropic inks unannounced IREN cloud deal.](https://www.reddit.com/r/wallstreetbets/comments/1x3levx/anthropic_inks_unannounced_iren_cloud_deal/)
+- [What Are Your Moves Tomorrow, October 12, 2026](https://www.reddit.com/r/wallstreetbets/comments/1x3hx1e/what_are_your_moves_tomorrow_october_12_2026/)
+- [Small gains](https://www.reddit.com/r/wallstreetbets/comments/1x3e2bp/small_gains/)
+- [Anthropic must pull the IPO in few months. What do you play?](https://www.reddit.com/r/wallstreetbets/comments/1x3dpm4/anthropic_must_pull_the_ipo_in_few_months_what_do/)
+- [SPY on Friday had the lowest daily volume since Dec. 24th 2019 &lpar;and that was a half day&rpar;.](https://www.reddit.com/r/wallstreetbets/comments/1x3cmsv/spy_on_friday_had_the_lowest_daily_volume_since/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
