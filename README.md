@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anthropic inks unannounced IREN cloud deal.](https://www.reddit.com/r/wallstreetbets/comments/1x3levx/anthropic_inks_unannounced_iren_cloud_deal/)
-- [What Are Your Moves Tomorrow, October 12, 2026](https://www.reddit.com/r/wallstreetbets/comments/1x3hx1e/what_are_your_moves_tomorrow_october_12_2026/)
-- [Small gains](https://www.reddit.com/r/wallstreetbets/comments/1x3e2bp/small_gains/)
-- [Anthropic must pull the IPO in few months. What do you play?](https://www.reddit.com/r/wallstreetbets/comments/1x3dpm4/anthropic_must_pull_the_ipo_in_few_months_what_do/)
-- [SPY on Friday had the lowest daily volume since Dec. 24th 2019 &lpar;and that was a half day&rpar;.](https://www.reddit.com/r/wallstreetbets/comments/1x3cmsv/spy_on_friday_had_the_lowest_daily_volume_since/)
+- [Memory Malaise: Market Movement - Oct. 12](https://www.reddit.com/r/wallstreetbets/comments/1x4kuuh/memory_malaise_market_movement_oct_12/)
+- [What a $30bn Aussie data centre IPO debacle actually means](https://www.reddit.com/r/wallstreetbets/comments/1x4j57h/what_a_30bn_aussie_data_centre_ipo_debacle/)
+- [IREN tanked on Anthropic deal what am I missing ?](https://www.reddit.com/r/wallstreetbets/comments/1x4j0dz/iren_tanked_on_anthropic_deal_what_am_i_missing/)
+- [Connecting the dots pt 2: I told you the admin would write checks to CLF and WOLF. This is what they do next.](https://www.reddit.com/r/wallstreetbets/comments/1x4izkb/connecting_the_dots_pt_2_i_told_you_the_admin/)
+- [Loss for ants but I’m an ant](https://www.reddit.com/r/wallstreetbets/comments/1x4cwv2/loss_for_ants_but_im_an_ant/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
