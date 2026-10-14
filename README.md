@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Memory Malaise: Market Movement - Oct. 12](https://www.reddit.com/r/wallstreetbets/comments/1x4kuuh/memory_malaise_market_movement_oct_12/)
-- [What a $30bn Aussie data centre IPO debacle actually means](https://www.reddit.com/r/wallstreetbets/comments/1x4j57h/what_a_30bn_aussie_data_centre_ipo_debacle/)
-- [IREN tanked on Anthropic deal what am I missing ?](https://www.reddit.com/r/wallstreetbets/comments/1x4j0dz/iren_tanked_on_anthropic_deal_what_am_i_missing/)
-- [Connecting the dots pt 2: I told you the admin would write checks to CLF and WOLF. This is what they do next.](https://www.reddit.com/r/wallstreetbets/comments/1x4izkb/connecting_the_dots_pt_2_i_told_you_the_admin/)
-- [Loss for ants but I’m an ant](https://www.reddit.com/r/wallstreetbets/comments/1x4cwv2/loss_for_ants_but_im_an_ant/)
+- [Might as well buy both](https://www.reddit.com/r/wallstreetbets/comments/1x5et93/might_as_well_buy_both/)
+- [What are your moves tomorrow, October 14th, 2026](https://www.reddit.com/r/wallstreetbets/comments/1x5ayiy/what_are_your_moves_tomorrow_october_14th_2026/)
+- [48k to 200k &lpar;lowest point on my wedding day&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1x5aiwk/48k_to_200k_lowest_point_on_my_wedding_day/)
+- [Meta will outperform](https://www.reddit.com/r/wallstreetbets/comments/1x59t0z/meta_will_outperform/)
+- [$BMBL $350k gain](https://www.reddit.com/r/wallstreetbets/comments/1x58pjp/bmbl_350k_gain/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
