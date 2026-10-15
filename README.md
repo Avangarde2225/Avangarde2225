@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Might as well buy both](https://www.reddit.com/r/wallstreetbets/comments/1x5et93/might_as_well_buy_both/)
-- [What are your moves tomorrow, October 14th, 2026](https://www.reddit.com/r/wallstreetbets/comments/1x5ayiy/what_are_your_moves_tomorrow_october_14th_2026/)
-- [48k to 200k &lpar;lowest point on my wedding day&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1x5aiwk/48k_to_200k_lowest_point_on_my_wedding_day/)
-- [Meta will outperform](https://www.reddit.com/r/wallstreetbets/comments/1x59t0z/meta_will_outperform/)
-- [$BMBL $350k gain](https://www.reddit.com/r/wallstreetbets/comments/1x58pjp/bmbl_350k_gain/)
+- [Portfolio be like](https://www.reddit.com/r/wallstreetbets/comments/1x694n1/portfolio_be_like/)
+- [Kospi, Kosdaq Sink More Than 6% as Sell-Side Sidecars Trigger in Both Markets](https://www.reddit.com/r/wallstreetbets/comments/1x68er5/kospi_kosdaq_sink_more_than_6_as_sellside/)
+- [Gonna be a beautiful day tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1x68dm2/gonna_be_a_beautiful_day_tomorrow/)
+- [$340k profits on SPY 0DTE today](https://www.reddit.com/r/wallstreetbets/comments/1x66sbx/340k_profits_on_spy_0dte_today/)
+- [Anthropic revenue jumps to $16.8 billion in third quarter, FT reports](https://www.reddit.com/r/wallstreetbets/comments/1x66l2l/anthropic_revenue_jumps_to_168_billion_in_third/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
