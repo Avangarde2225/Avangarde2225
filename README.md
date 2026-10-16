@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Portfolio be like](https://www.reddit.com/r/wallstreetbets/comments/1x694n1/portfolio_be_like/)
-- [Kospi, Kosdaq Sink More Than 6% as Sell-Side Sidecars Trigger in Both Markets](https://www.reddit.com/r/wallstreetbets/comments/1x68er5/kospi_kosdaq_sink_more_than_6_as_sellside/)
-- [Gonna be a beautiful day tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1x68dm2/gonna_be_a_beautiful_day_tomorrow/)
-- [$340k profits on SPY 0DTE today](https://www.reddit.com/r/wallstreetbets/comments/1x66sbx/340k_profits_on_spy_0dte_today/)
-- [Anthropic revenue jumps to $16.8 billion in third quarter, FT reports](https://www.reddit.com/r/wallstreetbets/comments/1x66l2l/anthropic_revenue_jumps_to_168_billion_in_third/)
+- [Tesla has officially lost the plot..](https://www.reddit.com/r/wallstreetbets/comments/1x73hxs/tesla_has_officially_lost_the_plot/)
+- [Lost it all.](https://www.reddit.com/r/wallstreetbets/comments/1x727cc/lost_it_all/)
+- [Accenture Tells Employees They Can Now Spend Only $29 on Claude Per Month](https://www.reddit.com/r/wallstreetbets/comments/1x725yl/accenture_tells_employees_they_can_now_spend_only/)
+- [18 baggies💰💰](https://www.reddit.com/r/wallstreetbets/comments/1x71zxu/18_baggies/)
+- [Investors lower Anthropic&#39;s valuation over slow revenue growth, discuss cutting it from $2T to $1.5T, sources say](https://www.reddit.com/r/wallstreetbets/comments/1x71rw6/investors_lower_anthropics_valuation_over_slow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
