@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Tesla has officially lost the plot..](https://www.reddit.com/r/wallstreetbets/comments/1x73hxs/tesla_has_officially_lost_the_plot/)
-- [Lost it all.](https://www.reddit.com/r/wallstreetbets/comments/1x727cc/lost_it_all/)
-- [Accenture Tells Employees They Can Now Spend Only $29 on Claude Per Month](https://www.reddit.com/r/wallstreetbets/comments/1x725yl/accenture_tells_employees_they_can_now_spend_only/)
-- [18 baggies💰💰](https://www.reddit.com/r/wallstreetbets/comments/1x71zxu/18_baggies/)
-- [Investors lower Anthropic&#39;s valuation over slow revenue growth, discuss cutting it from $2T to $1.5T, sources say](https://www.reddit.com/r/wallstreetbets/comments/1x71rw6/investors_lower_anthropics_valuation_over_slow/)
+- [Lost Everything. I am so numb.](https://www.reddit.com/r/wallstreetbets/comments/1x7ukwm/lost_everything_i_am_so_numb/)
+- [Lost 17k this month](https://www.reddit.com/r/wallstreetbets/comments/1x7tjhw/lost_17k_this_month/)
+- [1mm swing in a month..Should’ve bought a gogo bar in Pattaya instead](https://www.reddit.com/r/wallstreetbets/comments/1x7rzx9/1mm_swing_in_a_monthshouldve_bought_a_gogo_bar_in/)
+- [Why does the market hate drones?](https://www.reddit.com/r/wallstreetbets/comments/1x7qjdh/why_does_the_market_hate_drones/)
+- [Weekend Discussion Thread for the Weekend of October 17-18](https://www.reddit.com/r/wallstreetbets/comments/1x7qdzy/weekend_discussion_thread_for_the_weekend_of/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
