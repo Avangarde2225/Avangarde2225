@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Lost Everything. I am so numb.](https://www.reddit.com/r/wallstreetbets/comments/1x7ukwm/lost_everything_i_am_so_numb/)
-- [Lost 17k this month](https://www.reddit.com/r/wallstreetbets/comments/1x7tjhw/lost_17k_this_month/)
-- [1mm swing in a month..Should’ve bought a gogo bar in Pattaya instead](https://www.reddit.com/r/wallstreetbets/comments/1x7rzx9/1mm_swing_in_a_monthshouldve_bought_a_gogo_bar_in/)
-- [Why does the market hate drones?](https://www.reddit.com/r/wallstreetbets/comments/1x7qjdh/why_does_the_market_hate_drones/)
-- [Weekend Discussion Thread for the Weekend of October 17-18](https://www.reddit.com/r/wallstreetbets/comments/1x7qdzy/weekend_discussion_thread_for_the_weekend_of/)
+- [Its actually over](https://www.reddit.com/r/wallstreetbets/comments/1x8qbaf/its_actually_over/)
+- [Headline and Core PCE when Trump took office again and now](https://www.reddit.com/r/wallstreetbets/comments/1x8pyn7/headline_and_core_pce_when_trump_took_office/)
+- [Gentlemen of the House! How effed is this portfolio?](https://www.reddit.com/r/wallstreetbets/comments/1x8owp2/gentlemen_of_the_house_how_effed_is_this_portfolio/)
+- [No options, just individual stocks and leverage](https://www.reddit.com/r/wallstreetbets/comments/1x8nydz/no_options_just_individual_stocks_and_leverage/)
+- [It’s been real folks](https://www.reddit.com/r/wallstreetbets/comments/1x8m9f4/its_been_real_folks/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
