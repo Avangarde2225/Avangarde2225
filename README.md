@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Its actually over](https://www.reddit.com/r/wallstreetbets/comments/1x8qbaf/its_actually_over/)
-- [Headline and Core PCE when Trump took office again and now](https://www.reddit.com/r/wallstreetbets/comments/1x8pyn7/headline_and_core_pce_when_trump_took_office/)
-- [Gentlemen of the House! How effed is this portfolio?](https://www.reddit.com/r/wallstreetbets/comments/1x8owp2/gentlemen_of_the_house_how_effed_is_this_portfolio/)
-- [No options, just individual stocks and leverage](https://www.reddit.com/r/wallstreetbets/comments/1x8nydz/no_options_just_individual_stocks_and_leverage/)
-- [It’s been real folks](https://www.reddit.com/r/wallstreetbets/comments/1x8m9f4/its_been_real_folks/)
+- [Oil slips as Trump&#39;s sanction waiver may lead to more Russian fuel supplies](https://www.reddit.com/r/wallstreetbets/comments/1x9kmy4/oil_slips_as_trumps_sanction_waiver_may_lead_to/)
+- [My first 10 bagger in the right direction](https://www.reddit.com/r/wallstreetbets/comments/1x9j14e/my_first_10_bagger_in_the_right_direction/)
+- [Lost 268k in 0DTE options - I will never be able to recover from this financially](https://www.reddit.com/r/wallstreetbets/comments/1x9guju/lost_268k_in_0dte_options_i_will_never_be_able_to/)
+- [Bears practicing their shock when &#39;Black Monday&#39; gets canceled for the 40th week in a row.](https://www.reddit.com/r/wallstreetbets/comments/1x9domz/bears_practicing_their_shock_when_black_monday/)
+- [What Are Your Moves Tomorrow, October 19, 2026](https://www.reddit.com/r/wallstreetbets/comments/1x9ct1y/what_are_your_moves_tomorrow_october_19_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
