@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Oil slips as Trump&#39;s sanction waiver may lead to more Russian fuel supplies](https://www.reddit.com/r/wallstreetbets/comments/1x9kmy4/oil_slips_as_trumps_sanction_waiver_may_lead_to/)
-- [My first 10 bagger in the right direction](https://www.reddit.com/r/wallstreetbets/comments/1x9j14e/my_first_10_bagger_in_the_right_direction/)
-- [Lost 268k in 0DTE options - I will never be able to recover from this financially](https://www.reddit.com/r/wallstreetbets/comments/1x9guju/lost_268k_in_0dte_options_i_will_never_be_able_to/)
-- [Bears practicing their shock when &#39;Black Monday&#39; gets canceled for the 40th week in a row.](https://www.reddit.com/r/wallstreetbets/comments/1x9domz/bears_practicing_their_shock_when_black_monday/)
-- [What Are Your Moves Tomorrow, October 19, 2026](https://www.reddit.com/r/wallstreetbets/comments/1x9ct1y/what_are_your_moves_tomorrow_october_19_2026/)
+- [Surprise SpaceX Earnings Tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1xad35t/surprise_spacex_earnings_tomorrow/)
+- [What Are Your Moves Tomorrow, October 20, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xa7cu6/what_are_your_moves_tomorrow_october_20_2026/)
+- [My portfolio since 2021](https://www.reddit.com/r/wallstreetbets/comments/1xa6qjb/my_portfolio_since_2021/)
+- [Rivian at almost 52w low, so I doubled down](https://www.reddit.com/r/wallstreetbets/comments/1xa2z09/rivian_at_almost_52w_low_so_i_doubled_down/)
+- [5X or nothing on these Google calls](https://www.reddit.com/r/wallstreetbets/comments/1xa271t/5x_or_nothing_on_these_google_calls/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
