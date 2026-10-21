@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Surprise SpaceX Earnings Tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1xad35t/surprise_spacex_earnings_tomorrow/)
-- [What Are Your Moves Tomorrow, October 20, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xa7cu6/what_are_your_moves_tomorrow_october_20_2026/)
-- [My portfolio since 2021](https://www.reddit.com/r/wallstreetbets/comments/1xa6qjb/my_portfolio_since_2021/)
-- [Rivian at almost 52w low, so I doubled down](https://www.reddit.com/r/wallstreetbets/comments/1xa2z09/rivian_at_almost_52w_low_so_i_doubled_down/)
-- [5X or nothing on these Google calls](https://www.reddit.com/r/wallstreetbets/comments/1xa271t/5x_or_nothing_on_these_google_calls/)
+- [Fidelity just reduced the minimum requirement to participate in IPOs from $500,000 to just $25,000](https://www.reddit.com/r/wallstreetbets/comments/1xba7uk/fidelity_just_reduced_the_minimum_requirement_to/)
+- [Where my Netflix Bagholders at?](https://www.reddit.com/r/wallstreetbets/comments/1xba7u3/where_my_netflix_bagholders_at/)
+- [Wish I could get some more of these types of gains right now](https://www.reddit.com/r/wallstreetbets/comments/1xb94d4/wish_i_could_get_some_more_of_these_types_of/)
+- [Anthropic plans to give each kid in America a portion of its $80B in losses.](https://www.reddit.com/r/wallstreetbets/comments/1xb73hx/anthropic_plans_to_give_each_kid_in_america_a/)
+- [Tesla and SpaceX have set up committees to explore a merger](https://www.reddit.com/r/wallstreetbets/comments/1xb5sqo/tesla_and_spacex_have_set_up_committees_to/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
