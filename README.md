@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Fidelity just reduced the minimum requirement to participate in IPOs from $500,000 to just $25,000](https://www.reddit.com/r/wallstreetbets/comments/1xba7uk/fidelity_just_reduced_the_minimum_requirement_to/)
-- [Where my Netflix Bagholders at?](https://www.reddit.com/r/wallstreetbets/comments/1xba7u3/where_my_netflix_bagholders_at/)
-- [Wish I could get some more of these types of gains right now](https://www.reddit.com/r/wallstreetbets/comments/1xb94d4/wish_i_could_get_some_more_of_these_types_of/)
-- [Anthropic plans to give each kid in America a portion of its $80B in losses.](https://www.reddit.com/r/wallstreetbets/comments/1xb73hx/anthropic_plans_to_give_each_kid_in_america_a/)
-- [Tesla and SpaceX have set up committees to explore a merger](https://www.reddit.com/r/wallstreetbets/comments/1xb5sqo/tesla_and_spacex_have_set_up_committees_to/)
+- [Unsubscribed from Netflix.](https://www.reddit.com/r/wallstreetbets/comments/1xc3fdz/unsubscribed_from_netflix/)
+- [Got 33% of my net worth in calls expiring on Friday](https://www.reddit.com/r/wallstreetbets/comments/1xc0y9t/got_33_of_my_net_worth_in_calls_expiring_on_friday/)
+- [I succumbed to temptation and bought $10k of $META today.](https://www.reddit.com/r/wallstreetbets/comments/1xc0ooq/i_succumbed_to_temptation_and_bought_10k_of_meta/)
+- [Google 600K YOLO - In Sundar We Trust](https://www.reddit.com/r/wallstreetbets/comments/1xbz1vw/google_600k_yolo_in_sundar_we_trust/)
+- [&quot;Safe&quot; fullport gone wrong](https://www.reddit.com/r/wallstreetbets/comments/1xbyywi/safe_fullport_gone_wrong/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
