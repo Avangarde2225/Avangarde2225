@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Unsubscribed from Netflix.](https://www.reddit.com/r/wallstreetbets/comments/1xc3fdz/unsubscribed_from_netflix/)
-- [Got 33% of my net worth in calls expiring on Friday](https://www.reddit.com/r/wallstreetbets/comments/1xc0y9t/got_33_of_my_net_worth_in_calls_expiring_on_friday/)
-- [I succumbed to temptation and bought $10k of $META today.](https://www.reddit.com/r/wallstreetbets/comments/1xc0ooq/i_succumbed_to_temptation_and_bought_10k_of_meta/)
-- [Google 600K YOLO - In Sundar We Trust](https://www.reddit.com/r/wallstreetbets/comments/1xbz1vw/google_600k_yolo_in_sundar_we_trust/)
-- [&quot;Safe&quot; fullport gone wrong](https://www.reddit.com/r/wallstreetbets/comments/1xbyywi/safe_fullport_gone_wrong/)
+- [Apple may overtake Nvidia tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1xd14ep/apple_may_overtake_nvidia_tomorrow/)
+- [Getty Images files for bankruptcy amid mounting debt and AI competition](https://www.reddit.com/r/wallstreetbets/comments/1xd13db/getty_images_files_for_bankruptcy_amid_mounting/)
+- [Nvidia CEO Jensen Huang says neocloud demand is &#39;off the charts&#39; but capital is scarce](https://www.reddit.com/r/wallstreetbets/comments/1xcyy2x/nvidia_ceo_jensen_huang_says_neocloud_demand_is/)
+- [Told myself to not touch semiconductor stocks but I still fail…](https://www.reddit.com/r/wallstreetbets/comments/1xcyc5y/told_myself_to_not_touch_semiconductor_stocks_but/)
+- [Historic drawdowns predicting roughtly 4-5% return next 40 days](https://www.reddit.com/r/wallstreetbets/comments/1xcx6oz/historic_drawdowns_predicting_roughtly_45_return/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
