@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Apple may overtake Nvidia tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1xd14ep/apple_may_overtake_nvidia_tomorrow/)
-- [Getty Images files for bankruptcy amid mounting debt and AI competition](https://www.reddit.com/r/wallstreetbets/comments/1xd13db/getty_images_files_for_bankruptcy_amid_mounting/)
-- [Nvidia CEO Jensen Huang says neocloud demand is &#39;off the charts&#39; but capital is scarce](https://www.reddit.com/r/wallstreetbets/comments/1xcyy2x/nvidia_ceo_jensen_huang_says_neocloud_demand_is/)
-- [Told myself to not touch semiconductor stocks but I still fail…](https://www.reddit.com/r/wallstreetbets/comments/1xcyc5y/told_myself_to_not_touch_semiconductor_stocks_but/)
-- [Historic drawdowns predicting roughtly 4-5% return next 40 days](https://www.reddit.com/r/wallstreetbets/comments/1xcx6oz/historic_drawdowns_predicting_roughtly_45_return/)
+- [got rekt before this mooned](https://www.reddit.com/r/wallstreetbets/comments/1xdumgr/got_rekt_before_this_mooned/)
+- [Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1xduhuo/loss_porn/)
+- [Claude Family Tokens](https://www.reddit.com/r/wallstreetbets/comments/1xdu6y3/claude_family_tokens/)
+- [Gartner Survey Finds Only 13% of CIOs Say Their Enterprise Has Realized Significant or Transformational Value from AI](https://www.reddit.com/r/wallstreetbets/comments/1xdsij2/gartner_survey_finds_only_13_of_cios_say_their/)
+- [The bears&#39; future, based on real events](https://www.reddit.com/r/wallstreetbets/comments/1xdpchz/the_bears_future_based_on_real_events/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
