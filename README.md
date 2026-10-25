@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
+- [I’m in the green!](https://www.reddit.com/r/wallstreetbets/comments/1xen4pa/im_in_the_green/)
+- [Just the Tip - that&#39;s always how it starts...](https://www.reddit.com/r/wallstreetbets/comments/1xe9fc7/just_the_tip_thats_always_how_it_starts/)
+- [Selling puts and buying long call options](https://www.reddit.com/r/wallstreetbets/comments/1xdxshn/selling_puts_and_buying_long_call_options/)
 - [got rekt before this mooned](https://www.reddit.com/r/wallstreetbets/comments/1xdumgr/got_rekt_before_this_mooned/)
 - [Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1xduhuo/loss_porn/)
-- [Claude Family Tokens](https://www.reddit.com/r/wallstreetbets/comments/1xdu6y3/claude_family_tokens/)
-- [Gartner Survey Finds Only 13% of CIOs Say Their Enterprise Has Realized Significant or Transformational Value from AI](https://www.reddit.com/r/wallstreetbets/comments/1xdsij2/gartner_survey_finds_only_13_of_cios_say_their/)
-- [The bears&#39; future, based on real events](https://www.reddit.com/r/wallstreetbets/comments/1xdpchz/the_bears_future_based_on_real_events/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
