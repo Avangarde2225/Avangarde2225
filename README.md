@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I’m in the green!](https://www.reddit.com/r/wallstreetbets/comments/1xen4pa/im_in_the_green/)
-- [Just the Tip - that&#39;s always how it starts...](https://www.reddit.com/r/wallstreetbets/comments/1xe9fc7/just_the_tip_thats_always_how_it_starts/)
-- [Selling puts and buying long call options](https://www.reddit.com/r/wallstreetbets/comments/1xdxshn/selling_puts_and_buying_long_call_options/)
-- [got rekt before this mooned](https://www.reddit.com/r/wallstreetbets/comments/1xdumgr/got_rekt_before_this_mooned/)
-- [Loss Porn](https://www.reddit.com/r/wallstreetbets/comments/1xduhuo/loss_porn/)
+- [I just want a bunch of funny finance reaction memes in the comments](https://www.reddit.com/r/wallstreetbets/comments/1xfk66i/i_just_want_a_bunch_of_funny_finance_reaction/)
+- [Elon is Manipulating the Neocloud Market](https://www.reddit.com/r/wallstreetbets/comments/1xfjq8q/elon_is_manipulating_the_neocloud_market/)
+- [It hurts, man](https://www.reddit.com/r/wallstreetbets/comments/1xfj661/it_hurts_man/)
+- [GTA releases have reliably predicted S&amp;P bull markets for 29 years](https://www.reddit.com/r/wallstreetbets/comments/1xfekq4/gta_releases_have_reliably_predicted_sp_bull/)
+- [What Are Your Moves Tomorrow, October 26, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xfc7de/what_are_your_moves_tomorrow_october_26_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
