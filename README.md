@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I just want a bunch of funny finance reaction memes in the comments](https://www.reddit.com/r/wallstreetbets/comments/1xfk66i/i_just_want_a_bunch_of_funny_finance_reaction/)
-- [Elon is Manipulating the Neocloud Market](https://www.reddit.com/r/wallstreetbets/comments/1xfjq8q/elon_is_manipulating_the_neocloud_market/)
-- [It hurts, man](https://www.reddit.com/r/wallstreetbets/comments/1xfj661/it_hurts_man/)
-- [GTA releases have reliably predicted S&amp;P bull markets for 29 years](https://www.reddit.com/r/wallstreetbets/comments/1xfekq4/gta_releases_have_reliably_predicted_sp_bull/)
-- [What Are Your Moves Tomorrow, October 26, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xfc7de/what_are_your_moves_tomorrow_october_26_2026/)
+- [Reddit in a nutshell](https://www.reddit.com/r/wallstreetbets/comments/1xgfgy5/reddit_in_a_nutshell/)
+- [Nvidia Backs $164.5 Billion Of AI Data Centers To Keep GPUs Selling](https://www.reddit.com/r/wallstreetbets/comments/1xgfee1/nvidia_backs_1645_billion_of_ai_data_centers_to/)
+- [RDDT Still Overvalued](https://www.reddit.com/r/wallstreetbets/comments/1xgd9x7/rddt_still_overvalued/)
+- [Anthropic spent only $19B cash since company&#39;s founding, but needs $200B per year after IPO. Anyone know the non-cash loss?](https://www.reddit.com/r/wallstreetbets/comments/1xgbun2/anthropic_spent_only_19b_cash_since_companys/)
+- [I think I’m done.](https://www.reddit.com/r/wallstreetbets/comments/1xgbky8/i_think_im_done/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
