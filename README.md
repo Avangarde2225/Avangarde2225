@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Reddit in a nutshell](https://www.reddit.com/r/wallstreetbets/comments/1xgfgy5/reddit_in_a_nutshell/)
-- [Nvidia Backs $164.5 Billion Of AI Data Centers To Keep GPUs Selling](https://www.reddit.com/r/wallstreetbets/comments/1xgfee1/nvidia_backs_1645_billion_of_ai_data_centers_to/)
-- [RDDT Still Overvalued](https://www.reddit.com/r/wallstreetbets/comments/1xgd9x7/rddt_still_overvalued/)
-- [Anthropic spent only $19B cash since company&#39;s founding, but needs $200B per year after IPO. Anyone know the non-cash loss?](https://www.reddit.com/r/wallstreetbets/comments/1xgbun2/anthropic_spent_only_19b_cash_since_companys/)
-- [I think I’m done.](https://www.reddit.com/r/wallstreetbets/comments/1xgbky8/i_think_im_done/)
+- [See How Anthropic Arrived at Its Mind-Boggling $40 Trillion Market Opportunity](https://www.reddit.com/r/wallstreetbets/comments/1xha3bc/see_how_anthropic_arrived_at_its_mindboggling_40/)
+- [SK Hynix third-quarter profit sharply beats estimates on AI memory boost](https://www.reddit.com/r/wallstreetbets/comments/1xh8xw4/sk_hynix_thirdquarter_profit_sharply_beats/)
+- [Guh](https://www.reddit.com/r/wallstreetbets/comments/1xh6z34/guh/)
+- [SPY 0DTE +171% 4k to 10k](https://www.reddit.com/r/wallstreetbets/comments/1xh6frd/spy_0dte_171_4k_to_10k/)
+- [Anthropic’s cash pile towers over nearly every U.S. company.](https://www.reddit.com/r/wallstreetbets/comments/1xh6799/anthropics_cash_pile_towers_over_nearly_every_us/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
