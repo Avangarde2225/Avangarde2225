@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [See How Anthropic Arrived at Its Mind-Boggling $40 Trillion Market Opportunity](https://www.reddit.com/r/wallstreetbets/comments/1xha3bc/see_how_anthropic_arrived_at_its_mindboggling_40/)
-- [SK Hynix third-quarter profit sharply beats estimates on AI memory boost](https://www.reddit.com/r/wallstreetbets/comments/1xh8xw4/sk_hynix_thirdquarter_profit_sharply_beats/)
-- [Guh](https://www.reddit.com/r/wallstreetbets/comments/1xh6z34/guh/)
-- [SPY 0DTE +171% 4k to 10k](https://www.reddit.com/r/wallstreetbets/comments/1xh6frd/spy_0dte_171_4k_to_10k/)
-- [Anthropic’s cash pile towers over nearly every U.S. company.](https://www.reddit.com/r/wallstreetbets/comments/1xh6799/anthropics_cash_pile_towers_over_nearly_every_us/)
+- [✅sell first, screenshot after](https://www.reddit.com/r/wallstreetbets/comments/1xi76bb/sell_first_screenshot_after/)
+- [Possible repricing &lpar;Optics &lpar;AAOI&rpar;&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1xi5dwu/possible_repricing_optics_aaoi/)
+- [Oracle is backing off from cash burning. Will more companies follow?](https://www.reddit.com/r/wallstreetbets/comments/1xi43fs/oracle_is_backing_off_from_cash_burning_will_more/)
+- [Marvell Is Said to Near Megadeal for Lumentum In AI Push](https://www.reddit.com/r/wallstreetbets/comments/1xi3ozh/marvell_is_said_to_near_megadeal_for_lumentum_in/)
+- [Can’t wait for market open tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1xi30ow/cant_wait_for_market_open_tomorrow/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
