@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [✅sell first, screenshot after](https://www.reddit.com/r/wallstreetbets/comments/1xi76bb/sell_first_screenshot_after/)
-- [Possible repricing &lpar;Optics &lpar;AAOI&rpar;&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1xi5dwu/possible_repricing_optics_aaoi/)
-- [Oracle is backing off from cash burning. Will more companies follow?](https://www.reddit.com/r/wallstreetbets/comments/1xi43fs/oracle_is_backing_off_from_cash_burning_will_more/)
-- [Marvell Is Said to Near Megadeal for Lumentum In AI Push](https://www.reddit.com/r/wallstreetbets/comments/1xi3ozh/marvell_is_said_to_near_megadeal_for_lumentum_in/)
-- [Can’t wait for market open tomorrow](https://www.reddit.com/r/wallstreetbets/comments/1xi30ow/cant_wait_for_market_open_tomorrow/)
+- [Having the worst year of my life so far tbh](https://www.reddit.com/r/wallstreetbets/comments/1xj3u0f/having_the_worst_year_of_my_life_so_far_tbh/)
+- [RDDT leadership is one of us.](https://www.reddit.com/r/wallstreetbets/comments/1xj3jao/rddt_leadership_is_one_of_us/)
+- [Genuinely scared , NQ could be down nearly 3% by NY OPEN](https://www.reddit.com/r/wallstreetbets/comments/1xj39g4/genuinely_scared_nq_could_be_down_nearly_3_by_ny/)
+- [Sandisk sees revenue nearly quintuple — and a stock split is on the way](https://www.reddit.com/r/wallstreetbets/comments/1xj0yt6/sandisk_sees_revenue_nearly_quintuple_and_a_stock/)
+- [we’re cooked, chat](https://www.reddit.com/r/wallstreetbets/comments/1xizlkh/were_cooked_chat/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
