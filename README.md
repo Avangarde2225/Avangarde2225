@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Having the worst year of my life so far tbh](https://www.reddit.com/r/wallstreetbets/comments/1xj3u0f/having_the_worst_year_of_my_life_so_far_tbh/)
-- [RDDT leadership is one of us.](https://www.reddit.com/r/wallstreetbets/comments/1xj3jao/rddt_leadership_is_one_of_us/)
-- [Genuinely scared , NQ could be down nearly 3% by NY OPEN](https://www.reddit.com/r/wallstreetbets/comments/1xj39g4/genuinely_scared_nq_could_be_down_nearly_3_by_ny/)
-- [Sandisk sees revenue nearly quintuple — and a stock split is on the way](https://www.reddit.com/r/wallstreetbets/comments/1xj0yt6/sandisk_sees_revenue_nearly_quintuple_and_a_stock/)
-- [we’re cooked, chat](https://www.reddit.com/r/wallstreetbets/comments/1xizlkh/were_cooked_chat/)
+- [Inverse cramer](https://www.reddit.com/r/wallstreetbets/comments/1xjy812/inverse_cramer/)
+- [-$484k realized loss for October](https://www.reddit.com/r/wallstreetbets/comments/1xjxn73/484k_realized_loss_for_october/)
+- [Sold NVDA Bought a Lambo](https://www.reddit.com/r/wallstreetbets/comments/1xjx858/sold_nvda_bought_a_lambo/)
+- [For your pleasure 100K loss.](https://www.reddit.com/r/wallstreetbets/comments/1xjvvjl/for_your_pleasure_100k_loss/)
+- [🤔](https://www.reddit.com/r/wallstreetbets/comments/1xjvc0r/_/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
