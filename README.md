@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Inverse cramer](https://www.reddit.com/r/wallstreetbets/comments/1xjy812/inverse_cramer/)
-- [-$484k realized loss for October](https://www.reddit.com/r/wallstreetbets/comments/1xjxn73/484k_realized_loss_for_october/)
-- [Sold NVDA Bought a Lambo](https://www.reddit.com/r/wallstreetbets/comments/1xjx858/sold_nvda_bought_a_lambo/)
-- [For your pleasure 100K loss.](https://www.reddit.com/r/wallstreetbets/comments/1xjvvjl/for_your_pleasure_100k_loss/)
-- [🤔](https://www.reddit.com/r/wallstreetbets/comments/1xjvc0r/_/)
+- [I‘m in the presence of two legends](https://www.reddit.com/r/wallstreetbets/comments/1xkqvw5/im_in_the_presence_of_two_legends/)
+- [Oh S Oh F Oh S Oh F](https://www.reddit.com/r/wallstreetbets/comments/1xkq68y/oh_s_oh_f_oh_s_oh_f/)
+- [260k loss in one day $RDDT $BUG $NBIS](https://www.reddit.com/r/wallstreetbets/comments/1xknokd/260k_loss_in_one_day_rddt_bug_nbis/)
+- [The Royal Bank of Scotland &lpar;NatWest&rpar; is a bank trading at a ridiculous 7.8x P/E. Wall Street is Targeting a 50% Upside](https://www.reddit.com/r/wallstreetbets/comments/1xkmvhc/the_royal_bank_of_scotland_natwest_is_a_bank/)
+- [Hey! I think I’m getting good at this thing. Maybe I’ll drop out of school and be a trader!](https://www.reddit.com/r/wallstreetbets/comments/1xkmhzj/hey_i_think_im_getting_good_at_this_thing_maybe/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
