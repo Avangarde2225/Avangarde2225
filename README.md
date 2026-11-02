@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [I‘m in the presence of two legends](https://www.reddit.com/r/wallstreetbets/comments/1xkqvw5/im_in_the_presence_of_two_legends/)
-- [Oh S Oh F Oh S Oh F](https://www.reddit.com/r/wallstreetbets/comments/1xkq68y/oh_s_oh_f_oh_s_oh_f/)
-- [260k loss in one day $RDDT $BUG $NBIS](https://www.reddit.com/r/wallstreetbets/comments/1xknokd/260k_loss_in_one_day_rddt_bug_nbis/)
-- [The Royal Bank of Scotland &lpar;NatWest&rpar; is a bank trading at a ridiculous 7.8x P/E. Wall Street is Targeting a 50% Upside](https://www.reddit.com/r/wallstreetbets/comments/1xkmvhc/the_royal_bank_of_scotland_natwest_is_a_bank/)
-- [Hey! I think I’m getting good at this thing. Maybe I’ll drop out of school and be a trader!](https://www.reddit.com/r/wallstreetbets/comments/1xkmhzj/hey_i_think_im_getting_good_at_this_thing_maybe/)
+- [China’s banks, regulators to meet on measures to arrest stock slide](https://www.reddit.com/r/wallstreetbets/comments/1xlgjwz/chinas_banks_regulators_to_meet_on_measures_to/)
+- [We&#39;ll see what happens.](https://www.reddit.com/r/wallstreetbets/comments/1xlga86/well_see_what_happens/)
+- [FINALLY, I WAS RIGHT](https://www.reddit.com/r/wallstreetbets/comments/1xlg9s5/finally_i_was_right/)
+- [A year&#39;s worth of flipping coins.](https://www.reddit.com/r/wallstreetbets/comments/1xlf5o8/a_years_worth_of_flipping_coins/)
+- [What Are Your Moves Tomorrow, November 2, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xleb57/what_are_your_moves_tomorrow_november_2_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
