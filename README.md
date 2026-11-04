@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [China’s banks, regulators to meet on measures to arrest stock slide](https://www.reddit.com/r/wallstreetbets/comments/1xlgjwz/chinas_banks_regulators_to_meet_on_measures_to/)
-- [We&#39;ll see what happens.](https://www.reddit.com/r/wallstreetbets/comments/1xlga86/well_see_what_happens/)
-- [FINALLY, I WAS RIGHT](https://www.reddit.com/r/wallstreetbets/comments/1xlg9s5/finally_i_was_right/)
-- [A year&#39;s worth of flipping coins.](https://www.reddit.com/r/wallstreetbets/comments/1xlf5o8/a_years_worth_of_flipping_coins/)
-- [What Are Your Moves Tomorrow, November 2, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xleb57/what_are_your_moves_tomorrow_november_2_2026/)
+- [Come on Jimmy, have you seen a red wave of bulls before?](https://www.reddit.com/r/wallstreetbets/comments/1xndglp/come_on_jimmy_have_you_seen_a_red_wave_of_bulls/)
+- [Anthropic sees $23B third-quarter loss in amended IPO filing](https://www.reddit.com/r/wallstreetbets/comments/1xnbn1f/anthropic_sees_23b_thirdquarter_loss_in_amended/)
+- [Disney plans several thousand layoffs, asks some managers to cut costs by up to 20%](https://www.reddit.com/r/wallstreetbets/comments/1xnaqrw/disney_plans_several_thousand_layoffs_asks_some/)
+- [21K loss down to $40](https://www.reddit.com/r/wallstreetbets/comments/1xn8j7n/21k_loss_down_to_40/)
+- [Getting Margin Called for $2.69](https://www.reddit.com/r/wallstreetbets/comments/1xn7des/getting_margin_called_for_269/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
