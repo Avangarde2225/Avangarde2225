@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Come on Jimmy, have you seen a red wave of bulls before?](https://www.reddit.com/r/wallstreetbets/comments/1xndglp/come_on_jimmy_have_you_seen_a_red_wave_of_bulls/)
-- [Anthropic sees $23B third-quarter loss in amended IPO filing](https://www.reddit.com/r/wallstreetbets/comments/1xnbn1f/anthropic_sees_23b_thirdquarter_loss_in_amended/)
-- [Disney plans several thousand layoffs, asks some managers to cut costs by up to 20%](https://www.reddit.com/r/wallstreetbets/comments/1xnaqrw/disney_plans_several_thousand_layoffs_asks_some/)
-- [21K loss down to $40](https://www.reddit.com/r/wallstreetbets/comments/1xn8j7n/21k_loss_down_to_40/)
-- [Getting Margin Called for $2.69](https://www.reddit.com/r/wallstreetbets/comments/1xn7des/getting_margin_called_for_269/)
+- [Living with Mom and trading on margin. The regular investor gets in on Wall Street&#39;s record stock borrowing binge.](https://www.reddit.com/r/wallstreetbets/comments/1xo8kfm/living_with_mom_and_trading_on_margin_the_regular/)
+- [The SOXL problem](https://www.reddit.com/r/wallstreetbets/comments/1xo4480/the_soxl_problem/)
+- [Figma posts $391M in Q3 revenue, beating its own guidance by $16M](https://www.reddit.com/r/wallstreetbets/comments/1xo1fgu/figma_posts_391m_in_q3_revenue_beating_its_own/)
+- [-50K realized loss on APP.](https://www.reddit.com/r/wallstreetbets/comments/1xo0p7e/50k_realized_loss_on_app/)
+- [QQQ in the final minutes](https://www.reddit.com/r/wallstreetbets/comments/1xo0nik/qqq_in_the_final_minutes/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
