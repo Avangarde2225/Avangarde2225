@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Living with Mom and trading on margin. The regular investor gets in on Wall Street&#39;s record stock borrowing binge.](https://www.reddit.com/r/wallstreetbets/comments/1xo8kfm/living_with_mom_and_trading_on_margin_the_regular/)
-- [The SOXL problem](https://www.reddit.com/r/wallstreetbets/comments/1xo4480/the_soxl_problem/)
-- [Figma posts $391M in Q3 revenue, beating its own guidance by $16M](https://www.reddit.com/r/wallstreetbets/comments/1xo1fgu/figma_posts_391m_in_q3_revenue_beating_its_own/)
-- [-50K realized loss on APP.](https://www.reddit.com/r/wallstreetbets/comments/1xo0p7e/50k_realized_loss_on_app/)
-- [QQQ in the final minutes](https://www.reddit.com/r/wallstreetbets/comments/1xo0nik/qqq_in_the_final_minutes/)
+- [WoW Forever. the real reason the ai market crashed today. just listen..](https://www.reddit.com/r/wallstreetbets/comments/1xp1tln/wow_forever_the_real_reason_the_ai_market_crashed/)
+- [Trading of KOSPI stocks suspended amid tech sell-off](https://www.reddit.com/r/wallstreetbets/comments/1xp1b7o/trading_of_kospi_stocks_suspended_amid_tech/)
+- [🏳️‍🌈🐻 got liquidated in a bear market](https://www.reddit.com/r/wallstreetbets/comments/1xp124i/got_liquidated_in_a_bear_market/)
+- [BY POPULAR DEMAND - ZOOM OUT](https://www.reddit.com/r/wallstreetbets/comments/1xp0znu/by_popular_demand_zoom_out/)
+- [Because we are all gay bears today.](https://www.reddit.com/r/wallstreetbets/comments/1xp0yuq/because_we_are_all_gay_bears_today/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
