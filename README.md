@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [WoW Forever. the real reason the ai market crashed today. just listen..](https://www.reddit.com/r/wallstreetbets/comments/1xp1tln/wow_forever_the_real_reason_the_ai_market_crashed/)
-- [Trading of KOSPI stocks suspended amid tech sell-off](https://www.reddit.com/r/wallstreetbets/comments/1xp1b7o/trading_of_kospi_stocks_suspended_amid_tech/)
-- [🏳️‍🌈🐻 got liquidated in a bear market](https://www.reddit.com/r/wallstreetbets/comments/1xp124i/got_liquidated_in_a_bear_market/)
-- [BY POPULAR DEMAND - ZOOM OUT](https://www.reddit.com/r/wallstreetbets/comments/1xp0znu/by_popular_demand_zoom_out/)
-- [Because we are all gay bears today.](https://www.reddit.com/r/wallstreetbets/comments/1xp0yuq/because_we_are_all_gay_bears_today/)
+- [US believes Nvidia’s Huang had romantic relationship with alleged Chinese spy](https://www.reddit.com/r/wallstreetbets/comments/1xpvhml/us_believes_nvidias_huang_had_romantic/)
+- [Japan’s Nikkei Breaks Below Key 60,000 Level on AI Selloff](https://www.reddit.com/r/wallstreetbets/comments/1xptruq/japans_nikkei_breaks_below_key_60000_level_on_ai/)
+- [Lost ~3 years of salary](https://www.reddit.com/r/wallstreetbets/comments/1xpswkr/lost_3_years_of_salary/)
+- [Bull market incoming!](https://www.reddit.com/r/wallstreetbets/comments/1xpsw23/bull_market_incoming/)
+- [Do I belong](https://www.reddit.com/r/wallstreetbets/comments/1xpsqxd/do_i_belong/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
