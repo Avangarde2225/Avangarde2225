@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [US believes Nvidia’s Huang had romantic relationship with alleged Chinese spy](https://www.reddit.com/r/wallstreetbets/comments/1xpvhml/us_believes_nvidias_huang_had_romantic/)
-- [Japan’s Nikkei Breaks Below Key 60,000 Level on AI Selloff](https://www.reddit.com/r/wallstreetbets/comments/1xptruq/japans_nikkei_breaks_below_key_60000_level_on_ai/)
-- [Lost ~3 years of salary](https://www.reddit.com/r/wallstreetbets/comments/1xpswkr/lost_3_years_of_salary/)
-- [Bull market incoming!](https://www.reddit.com/r/wallstreetbets/comments/1xpsw23/bull_market_incoming/)
-- [Do I belong](https://www.reddit.com/r/wallstreetbets/comments/1xpsqxd/do_i_belong/)
+- [Pulled a 3x since the bottom of my several months long losing streak. Only 3 red days since mid-september.](https://www.reddit.com/r/wallstreetbets/comments/1xqk3gd/pulled_a_3x_since_the_bottom_of_my_several_months/)
+- [I am not the CEO of Grindr. Ask me anything.](https://www.reddit.com/r/wallstreetbets/comments/1xqhvjj/i_am_not_the_ceo_of_grindr_ask_me_anything/)
+- [Boomers outperforming the &quot;AI bubble&quot;](https://www.reddit.com/r/wallstreetbets/comments/1xqhd7e/boomers_outperforming_the_ai_bubble/)
+- [Best trading year of my life](https://www.reddit.com/r/wallstreetbets/comments/1xqf354/best_trading_year_of_my_life/)
+- [US intelligence believes Nvidia CEO Jensen Huang had affair with Chinese spy in honeypot operation](https://www.reddit.com/r/wallstreetbets/comments/1xqcq4u/us_intelligence_believes_nvidia_ceo_jensen_huang/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
