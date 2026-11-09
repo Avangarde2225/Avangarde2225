@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Pulled a 3x since the bottom of my several months long losing streak. Only 3 red days since mid-september.](https://www.reddit.com/r/wallstreetbets/comments/1xqk3gd/pulled_a_3x_since_the_bottom_of_my_several_months/)
-- [I am not the CEO of Grindr. Ask me anything.](https://www.reddit.com/r/wallstreetbets/comments/1xqhvjj/i_am_not_the_ceo_of_grindr_ask_me_anything/)
-- [Boomers outperforming the &quot;AI bubble&quot;](https://www.reddit.com/r/wallstreetbets/comments/1xqhd7e/boomers_outperforming_the_ai_bubble/)
-- [Best trading year of my life](https://www.reddit.com/r/wallstreetbets/comments/1xqf354/best_trading_year_of_my_life/)
-- [US intelligence believes Nvidia CEO Jensen Huang had affair with Chinese spy in honeypot operation](https://www.reddit.com/r/wallstreetbets/comments/1xqcq4u/us_intelligence_believes_nvidia_ceo_jensen_huang/)
+- [gotta let your money work for you](https://www.reddit.com/r/wallstreetbets/comments/1xrgwpj/gotta_let_your_money_work_for_you/)
+- [Reverse Cramer is undefeated](https://www.reddit.com/r/wallstreetbets/comments/1xrfmte/reverse_cramer_is_undefeated/)
+- [$CVS is spinning off its struggling retail operations due to anti trust concerns, but is it worth anything?](https://www.reddit.com/r/wallstreetbets/comments/1xrfbie/cvs_is_spinning_off_its_struggling_retail/)
+- [Seoul stocks buck gains on Wall Street to open lower](https://www.reddit.com/r/wallstreetbets/comments/1xrdozl/seoul_stocks_buck_gains_on_wall_street_to_open/)
+- [China’s Bad-Debt Collectors Chase After 100 Million Defaulters](https://www.reddit.com/r/wallstreetbets/comments/1xrc11y/chinas_baddebt_collectors_chase_after_100_million/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
