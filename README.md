@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [gotta let your money work for you](https://www.reddit.com/r/wallstreetbets/comments/1xrgwpj/gotta_let_your_money_work_for_you/)
-- [Reverse Cramer is undefeated](https://www.reddit.com/r/wallstreetbets/comments/1xrfmte/reverse_cramer_is_undefeated/)
-- [$CVS is spinning off its struggling retail operations due to anti trust concerns, but is it worth anything?](https://www.reddit.com/r/wallstreetbets/comments/1xrfbie/cvs_is_spinning_off_its_struggling_retail/)
-- [Seoul stocks buck gains on Wall Street to open lower](https://www.reddit.com/r/wallstreetbets/comments/1xrdozl/seoul_stocks_buck_gains_on_wall_street_to_open/)
-- [China’s Bad-Debt Collectors Chase After 100 Million Defaulters](https://www.reddit.com/r/wallstreetbets/comments/1xrc11y/chinas_baddebt_collectors_chase_after_100_million/)
+- [Hilarious 😂](https://www.reddit.com/r/wallstreetbets/comments/1xsdnrx/hilarious/)
+- [last moments of Jensen before surrendering all of Nvidia trade secrets and 50% of his ownership:](https://www.reddit.com/r/wallstreetbets/comments/1xsdmrn/last_moments_of_jensen_before_surrendering_all_of/)
+- [The Chinese threat](https://www.reddit.com/r/wallstreetbets/comments/1xsdfzq/the_chinese_threat/)
+- [1929: shoeshine boy gives stock tips, 2008: 22 year-old stripper buys ten houses with no money down, 2026:](https://www.reddit.com/r/wallstreetbets/comments/1xsdbjr/1929_shoeshine_boy_gives_stock_tips_2008_22/)
+- [Is Jensen Huang doing a Lou Pai?](https://www.reddit.com/r/wallstreetbets/comments/1xscufx/is_jensen_huang_doing_a_lou_pai/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
