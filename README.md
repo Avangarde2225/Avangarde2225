@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Hilarious 😂](https://www.reddit.com/r/wallstreetbets/comments/1xsdnrx/hilarious/)
-- [last moments of Jensen before surrendering all of Nvidia trade secrets and 50% of his ownership:](https://www.reddit.com/r/wallstreetbets/comments/1xsdmrn/last_moments_of_jensen_before_surrendering_all_of/)
-- [The Chinese threat](https://www.reddit.com/r/wallstreetbets/comments/1xsdfzq/the_chinese_threat/)
-- [1929: shoeshine boy gives stock tips, 2008: 22 year-old stripper buys ten houses with no money down, 2026:](https://www.reddit.com/r/wallstreetbets/comments/1xsdbjr/1929_shoeshine_boy_gives_stock_tips_2008_22/)
-- [Is Jensen Huang doing a Lou Pai?](https://www.reddit.com/r/wallstreetbets/comments/1xscufx/is_jensen_huang_doing_a_lou_pai/)
+- [NVDA died to redeem tech bubble sins](https://www.reddit.com/r/wallstreetbets/comments/1xt6qiu/nvda_died_to_redeem_tech_bubble_sins/)
+- [foreshadowing](https://www.reddit.com/r/wallstreetbets/comments/1xt6mo3/foreshadowing/)
+- [Getting ready to enjoy my time off.](https://www.reddit.com/r/wallstreetbets/comments/1xt6lxy/getting_ready_to_enjoy_my_time_off/)
+- [buy the dip I guess](https://www.reddit.com/r/wallstreetbets/comments/1xt6akf/buy_the_dip_i_guess/)
+- [Prediction for 11/17 ER for a certain mag 7 CEO](https://www.reddit.com/r/wallstreetbets/comments/1xt67dn/prediction_for_1117_er_for_a_certain_mag_7_ceo/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
