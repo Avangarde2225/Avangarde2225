@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [NVDA died to redeem tech bubble sins](https://www.reddit.com/r/wallstreetbets/comments/1xt6qiu/nvda_died_to_redeem_tech_bubble_sins/)
-- [foreshadowing](https://www.reddit.com/r/wallstreetbets/comments/1xt6mo3/foreshadowing/)
-- [Getting ready to enjoy my time off.](https://www.reddit.com/r/wallstreetbets/comments/1xt6lxy/getting_ready_to_enjoy_my_time_off/)
-- [buy the dip I guess](https://www.reddit.com/r/wallstreetbets/comments/1xt6akf/buy_the_dip_i_guess/)
-- [Prediction for 11/17 ER for a certain mag 7 CEO](https://www.reddit.com/r/wallstreetbets/comments/1xt67dn/prediction_for_1117_er_for_a_certain_mag_7_ceo/)
+- [built different](https://www.reddit.com/r/wallstreetbets/comments/1xu2tq1/built_different/)
+- [Board Meeting Adjourned](https://www.reddit.com/r/wallstreetbets/comments/1xu2knw/board_meeting_adjourned/)
+- [Sticking his huang right in your portfolio](https://www.reddit.com/r/wallstreetbets/comments/1xu2jwf/sticking_his_huang_right_in_your_portfolio/)
+- [Alex Karp on AI regulatory capture: &quot;Its every mark. They don&#39;t realize they&#39;re the mark... If they don&#39;t nationalize every client will sue](https://www.reddit.com/r/wallstreetbets/comments/1xu2hsj/alex_karp_on_ai_regulatory_capture_its_every_mark/)
+- [Why the fuck do we care who Jensen fucks? Do you care if your doctor has a side chick?As long as he is the best at his job who gives a fuck.](https://www.reddit.com/r/wallstreetbets/comments/1xu1znj/why_the_fuck_do_we_care_who_jensen_fucks_do_you/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
