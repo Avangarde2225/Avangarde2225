@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [built different](https://www.reddit.com/r/wallstreetbets/comments/1xu2tq1/built_different/)
-- [Board Meeting Adjourned](https://www.reddit.com/r/wallstreetbets/comments/1xu2knw/board_meeting_adjourned/)
-- [Sticking his huang right in your portfolio](https://www.reddit.com/r/wallstreetbets/comments/1xu2jwf/sticking_his_huang_right_in_your_portfolio/)
-- [Alex Karp on AI regulatory capture: &quot;Its every mark. They don&#39;t realize they&#39;re the mark... If they don&#39;t nationalize every client will sue](https://www.reddit.com/r/wallstreetbets/comments/1xu2hsj/alex_karp_on_ai_regulatory_capture_its_every_mark/)
-- [Why the fuck do we care who Jensen fucks? Do you care if your doctor has a side chick?As long as he is the best at his job who gives a fuck.](https://www.reddit.com/r/wallstreetbets/comments/1xu1znj/why_the_fuck_do_we_care_who_jensen_fucks_do_you/)
+- [‘Bring Back THE Boss’: Nvidia Employees Petition for Jensen Huang’s Return](https://www.reddit.com/r/wallstreetbets/comments/1xuwfil/bring_back_the_boss_nvidia_employees_petition_for/)
+- [Is it bad that I miss him already ...](https://www.reddit.com/r/wallstreetbets/comments/1xuw6jx/is_it_bad_that_i_miss_him_already/)
+- [Reuters: US Justice Department has not concluded Alice Huang was Chinese spy](https://www.reddit.com/r/wallstreetbets/comments/1xuvsod/reuters_us_justice_department_has_not_concluded/)
+- [‘I’m a Piece of Sh--’: Jensen Huang’s Last Hours as Nvidia CEO](https://www.reddit.com/r/wallstreetbets/comments/1xuvp44/im_a_piece_of_sh_jensen_huangs_last_hours_as/)
+- [‘I’m a Piece of Sh--’: Jensen Huang’s Last Hours as Nvidia CEO](https://www.reddit.com/r/wallstreetbets/comments/1xuvo8f/im_a_piece_of_sh_jensen_huangs_last_hours_as/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
