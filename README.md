@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [‘Bring Back THE Boss’: Nvidia Employees Petition for Jensen Huang’s Return](https://www.reddit.com/r/wallstreetbets/comments/1xuwfil/bring_back_the_boss_nvidia_employees_petition_for/)
-- [Is it bad that I miss him already ...](https://www.reddit.com/r/wallstreetbets/comments/1xuw6jx/is_it_bad_that_i_miss_him_already/)
-- [Reuters: US Justice Department has not concluded Alice Huang was Chinese spy](https://www.reddit.com/r/wallstreetbets/comments/1xuvsod/reuters_us_justice_department_has_not_concluded/)
-- [‘I’m a Piece of Sh--’: Jensen Huang’s Last Hours as Nvidia CEO](https://www.reddit.com/r/wallstreetbets/comments/1xuvp44/im_a_piece_of_sh_jensen_huangs_last_hours_as/)
-- [‘I’m a Piece of Sh--’: Jensen Huang’s Last Hours as Nvidia CEO](https://www.reddit.com/r/wallstreetbets/comments/1xuvo8f/im_a_piece_of_sh_jensen_huangs_last_hours_as/)
+- [Where It All Began](https://www.reddit.com/r/wallstreetbets/comments/1xvs5la/where_it_all_began/)
+- [Take care fellas](https://www.reddit.com/r/wallstreetbets/comments/1xvrz4l/take_care_fellas/)
+- [Definitely SI](https://www.reddit.com/r/wallstreetbets/comments/1xvo77i/definitely_si/)
+- [The true reason Jensen was pushed out in a concerted effort, and why it will juice up Anthropic’s IPO](https://www.reddit.com/r/wallstreetbets/comments/1xvnsxx/the_true_reason_jensen_was_pushed_out_in_a/)
+- [US National Weather Service reports nationwide internet, communications issues](https://www.reddit.com/r/wallstreetbets/comments/1xvm2xs/us_national_weather_service_reports_nationwide/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
