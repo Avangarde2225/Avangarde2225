@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Where It All Began](https://www.reddit.com/r/wallstreetbets/comments/1xvs5la/where_it_all_began/)
-- [Take care fellas](https://www.reddit.com/r/wallstreetbets/comments/1xvrz4l/take_care_fellas/)
-- [Definitely SI](https://www.reddit.com/r/wallstreetbets/comments/1xvo77i/definitely_si/)
-- [The true reason Jensen was pushed out in a concerted effort, and why it will juice up Anthropic’s IPO](https://www.reddit.com/r/wallstreetbets/comments/1xvnsxx/the_true_reason_jensen_was_pushed_out_in_a/)
-- [US National Weather Service reports nationwide internet, communications issues](https://www.reddit.com/r/wallstreetbets/comments/1xvm2xs/us_national_weather_service_reports_nationwide/)
+- [Anthropic&#39;s Claude model blackmailed an engineer having an affair in test runs](https://www.reddit.com/r/wallstreetbets/comments/1xwkgxh/anthropics_claude_model_blackmailed_an_engineer/)
+- [According to WP, China hawks in DC were behind the toppling of Huang](https://www.reddit.com/r/wallstreetbets/comments/1xwjtnf/according_to_wp_china_hawks_in_dc_were_behind_the/)
+- [Major misconception about the export control on Nvidia chips and their Singapore revenue &lpar;spoiler: they are perfectly legal&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1xwiot6/major_misconception_about_the_export_control_on/)
+- [RIVN: Wall Street Is Pricing Rivian for Failure. I Think December 9th Could Change That.](https://www.reddit.com/r/wallstreetbets/comments/1xwi1zy/rivn_wall_street_is_pricing_rivian_for_failure_i/)
+- [So NVDA puts right?](https://www.reddit.com/r/wallstreetbets/comments/1xwhukf/so_nvda_puts_right/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
