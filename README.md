@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [Anthropic&#39;s Claude model blackmailed an engineer having an affair in test runs](https://www.reddit.com/r/wallstreetbets/comments/1xwkgxh/anthropics_claude_model_blackmailed_an_engineer/)
-- [According to WP, China hawks in DC were behind the toppling of Huang](https://www.reddit.com/r/wallstreetbets/comments/1xwjtnf/according_to_wp_china_hawks_in_dc_were_behind_the/)
-- [Major misconception about the export control on Nvidia chips and their Singapore revenue &lpar;spoiler: they are perfectly legal&rpar;](https://www.reddit.com/r/wallstreetbets/comments/1xwiot6/major_misconception_about_the_export_control_on/)
-- [RIVN: Wall Street Is Pricing Rivian for Failure. I Think December 9th Could Change That.](https://www.reddit.com/r/wallstreetbets/comments/1xwi1zy/rivn_wall_street_is_pricing_rivian_for_failure_i/)
-- [So NVDA puts right?](https://www.reddit.com/r/wallstreetbets/comments/1xwhukf/so_nvda_puts_right/)
+- [GOOG Gemini model launches turn the entire narrative upside down and seems not priced in?](https://www.reddit.com/r/wallstreetbets/comments/1xxcqwg/goog_gemini_model_launches_turn_the_entire/)
+- [If you went all-in on a random S&amp;P 500 company on 1/1/2000 and held until now, the chance of losing almost everything is 62%.](https://www.reddit.com/r/wallstreetbets/comments/1xxceyf/if_you_went_allin_on_a_random_sp_500_company_on/)
+- [Jensen choosing his assistant after returning to Nvidia](https://www.reddit.com/r/wallstreetbets/comments/1xxakkr/jensen_choosing_his_assistant_after_returning_to/)
+- [I’m from the future, this is what Jensens return on the upcoming earnings call will look like](https://www.reddit.com/r/wallstreetbets/comments/1xx9vhd/im_from_the_future_this_is_what_jensens_return_on/)
+- [What Are Your Moves Tomorrow, November 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xx6mql/what_are_your_moves_tomorrow_november_16_2026/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
