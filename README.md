@@ -26,11 +26,11 @@
 
  # 📩 Latest WallStreetBeats Subreddit Topics
 <!-- BLOG-POST-LIST:START -->
-- [GOOG Gemini model launches turn the entire narrative upside down and seems not priced in?](https://www.reddit.com/r/wallstreetbets/comments/1xxcqwg/goog_gemini_model_launches_turn_the_entire/)
-- [If you went all-in on a random S&amp;P 500 company on 1/1/2000 and held until now, the chance of losing almost everything is 62%.](https://www.reddit.com/r/wallstreetbets/comments/1xxceyf/if_you_went_allin_on_a_random_sp_500_company_on/)
-- [Jensen choosing his assistant after returning to Nvidia](https://www.reddit.com/r/wallstreetbets/comments/1xxakkr/jensen_choosing_his_assistant_after_returning_to/)
-- [I’m from the future, this is what Jensens return on the upcoming earnings call will look like](https://www.reddit.com/r/wallstreetbets/comments/1xx9vhd/im_from_the_future_this_is_what_jensens_return_on/)
-- [What Are Your Moves Tomorrow, November 16, 2026](https://www.reddit.com/r/wallstreetbets/comments/1xx6mql/what_are_your_moves_tomorrow_november_16_2026/)
+- [DOJ and Commerce Confirm NVIDIA Placed Megaspeed on “No Sell” List in June 2025](https://www.reddit.com/r/wallstreetbets/comments/1xybly3/doj_and_commerce_confirm_nvidia_placed_megaspeed/)
+- [HSBC offloads $300 million troubled AI data center loan at steep discount - report By Investing.com](https://www.reddit.com/r/wallstreetbets/comments/1xybdul/hsbc_offloads_300_million_troubled_ai_data_center/)
+- [The Fellowship of the Dip](https://www.reddit.com/r/wallstreetbets/comments/1xyb6mo/the_fellowship_of_the_dip/)
+- [Joint Statement from Department of Commerce and Department of Justice on Megaspeed Investigation](https://www.reddit.com/r/wallstreetbets/comments/1xyb07o/joint_statement_from_department_of_commerce_and/)
+- [Leopold Aschenbrenner&#39;s portfolio per last filing](https://www.reddit.com/r/wallstreetbets/comments/1xy69bm/leopold_aschenbrenners_portfolio_per_last_filing/)
 <!-- BLOG-POST-LIST:END -->
 
 <br>
